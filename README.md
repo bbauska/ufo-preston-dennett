@@ -292,9 +292,10 @@ the luxury of disbelief. They not only carry the weight of knowing their experie
 true but dealing with a society that refuses to accept the reality of ET contact. 
 Thankfully things are changing for the better.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #271. IT WAS NOT HUMAN: SEVEN SHOCKING HUMANOID ENCOUNTERS. LINK: https://youtu.be/7TNSZi3qgaI  July 4, 2025
+<h3><a href="https://youtu.be/7TNSZi3qgaI">EPISODE #271. IT WAS NOT HUMAN: SEVEN SHOCKING HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/7TNSZi3qgaI</h5>                                                             <h5>July 4, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-24,368 views  Jul 4, 2025
+<h7>24,368 views  Jul 4, 2025</h7>
 <p>One of the most interesting aspects of the UFO phenomenon are humanoid encounters, and 
 there are a lot of them. People across the world report a wide variety of humanoids: 
 grays, reptilian creatures, human-looking figures, short humanoids and more. While most 
@@ -363,9 +364,10 @@ direct contact with extraterrestrials. And yet they are just the tip of the iceb
 truth about ET contact has been covered up for too long. It’s time for all humanity to 
 know that there is other life in the universe. And they find humanity of great interest.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #270: TEN TRULY BIZARRE HUMANOID ENCOUNTERS. LINK: https://www.youtube.com/watch?v=WgXIQheRGSk  June 6, 2025
+<h3><a href="https://www.youtube.com/watch?v=WgXIQheRGSk">EPISODE #270: TEN TRULY BIZARRE HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://www.youtube.com/watch?v=WgXIQheRGSk</h5>                                              <h5>June 6, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-27,620 views  Jun 6, 2025
+<h7>27,620 views  Jun 6, 2025</h7>
 <p>There can be no doubt that the UFO phenomenon is real. Documented reports of UFOs number 
 in the many millions. There is much debate about what they are and where they come from, 
 but the evidence is overwhelming that they do exist. The same is true for humanoids. Such 
@@ -440,8 +442,9 @@ acknowledge the many humanoid reports. This is strange because these cases repre
 cutting edge of UFO research. After all, something or someone is inside UFOs. The 
 evidence points towards UFOs being craft piloted by extraterrestrials.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #269. HAVE NO FEAR: SEVEN ASTOUNDING ONBOARD UFO Encounters. 
-  LINK: https://www.youtube.com/watch?v=SiE1G9Ku9YQ                                                     May 30, 2025
+<h3><a href="https://www.youtube.com/watch?v=SiE1G9Ku9YQ">
+EPISODE #269. HAVE NO FEAR: SEVEN ASTOUNDING ONBOARD UFO Encounters</a>.</h3>
+<h5>LINK: https://www.youtube.com/watch?v=SiE1G9Ku9YQ</h5>                                              <h5>May 30, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>Of all types of UFO encounters, the most extensive and profound are cases where people 
 are taken onboard a craft and interact with extraterrestrials face-to-face. Thousands of 
@@ -513,7 +516,8 @@ face. There are so many cases with remarkable commonalities, coming from all ove
 world, that they are impossible to deny or explain away. They provide powerful testimony 
 that we are being visited by a wide variety of beings from beyond Earth.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #2xx. UFOS IN YOUR HOMETOWN: EPISODE TWELVE. LINK: https://youtu.be/6TBn8rcJ6jQ                 June 27, 2025
+<h3><a href="https://youtu.be/6TBn8rcJ6jQ">EPISODE #2xx. UFOS IN YOUR HOMETOWN: EPISODE TWELVE</a>.</h3>
+<h5>LINK: https://youtu.be/6TBn8rcJ6jQ</h5>                                                             <h5>June 27, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>Welcome to “UFOs in Your Hometown: Episode Twelve,” the ongoing UFO investigative series 
 exploring a wide variety of locations on Earth, proving that every town and city on this 
@@ -587,9 +591,10 @@ are far more common than previously believed. It means that UFOs are apparently
 conducting a vigorous publicity campaign announcing their presence. And most important 
 of all, it means that we are not alone, and UFOs are real!</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #270. UFOS IN YOUR HOMETOWN: EPISODE ELEVEN. LINK: https://youtu.be/                            May 23, 2025
+<h3><a href="https://youtu.be/QcooG_RCb4M">EPISODE #2xx. UFOS IN YOUR HOMETOWN: EPISODE ELEVEN</a>.</h3>
+<h5>LINK: https://youtu.be/QcooG_RCb4M</h5>                                                             <h5>May 23, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-19,898 views  May 23, 2025
+<h7>19,898 views  May 23, 2025</h7>
 <p>Welcome to Episode Eleven of the ongoing series: UFOs in Your Hometown. This series was 
 born from a challenge: name any town, city or location on this planet, and I will find at 
 least one UFO encounter there. With nearly 100 locations explored from across the planet, 
@@ -655,13 +660,15 @@ location on this planet has truly been visited by UFOs, the implications of this
 profound. UFOs appear to be putting on a publicity campaign announcing their presence. 
 The ETs have done their part to disclose. The rest is up to us.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #269.                     https://youtu.be/                                                     May 16, 2025
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #269 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="">EPISODE #269</a>.</h3>
+<h5>LINK:</h5>                                                                                          <h5>May 16, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #268. FIVE INCREDIBLE ONBOARD UFO ENCOUNTERS. LINK: https://youtu.be/g6as_XUXO-g                May 9, 2025
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-26,354 May 9, 2025
+<h3><a href="https://youtu.be/g6as_XUXO-g">EPISODE #268. FIVE INCREDIBLE ONBOARD UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/g6as_XUXO-g</h5>                                                             <h5>May 9, 2025</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h7>26,354 May 9, 2025</h7>
 <p>Being taken onboard a UFO! It is the ultimate type of UFO encounter, the most extensive, 
 and the most controversial. There are thousands of cases on record. These cases have the 
 greatest potential to answer the many questions surrounding the extraterrestrial presence 
@@ -729,14 +736,24 @@ providing further evidence of extraterrestrial intervention on planet Earth. It 
 unknown exactly how many people have had an experience like this, but some researchers 
 believe it may number in the millions.</p>
 ​<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #267. NOT HUMAN: TWELVE VERY WEIRD HUMANOID ENCOUNTERS. LINK: https://youtu.be/Px6FhCzaAx8      May 2, 2025
+<h3><a href="">EPISODE #267. NOT HUMAN: TWELVE VERY WEIRD HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/Px6FhCzaAx8</h5>                                                             <h5>May 2, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-
-
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #266. UFOS IN YOUR HOMETOWN: EPISODE TEN. LINK: https://youtu.be/kgCSWrY9DrA                    April 25, 2025
+<h3><a href="">EPISODE #266. UFOS IN YOUR HOMETOWN: EPISODE TEN</a>.</h5>
+<h5>LINK: https://youtu.be/kgCSWrY9DrA</h5>                                                             <h5>April 25, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p>Welcome to Episode Ten of UFOs in Your Hometown. The challenge continues: name any town or city in the world, and I will find a UFO encounter there! This includes sighting, landings, humanoids and onboard encounters. It appears that the UFO occupants are conducting a carefully orchestrated and vigorous publicity campaign, visiting every location on Earth, in an apparent attempt to announce their presence. In this latest installment, we explore four new locations: Slovakia; Covington, Kentucky, Chicago, Illinois and Sarasota, Florida. These four locations alone represent a microcosm of UFO activity, containing enough cases to provide an accurate representation of the UFO phenomenon. There are cases with multiple witnesses, landing traces, medical effects, animal reactions, electromagnetic disturbances, photographs, radar returns, and more. So come along on a journey that is sure to change the way you feel about UFOs.</p>
+<p>Welcome to Episode Ten of UFOs in Your Hometown. The challenge continues: name any 
+town or city in the world, and I will find a UFO encounter there! This includes sighting, 
+landings, humanoids and onboard encounters. It appears that the UFO occupants are 
+conducting a carefully orchestrated and vigorous publicity campaign, visiting every 
+location on Earth, in an apparent attempt to announce their presence. In this latest 
+installment, we explore four new locations: Slovakia; Covington, Kentucky, Chicago, 
+Illinois and Sarasota, Florida. These four locations alone represent a microcosm of UFO 
+activity, containing enough cases to provide an accurate representation of the UFO 
+phenomenon. There are cases with multiple witnesses, landing traces, medical effects, 
+animal reactions, electromagnetic disturbances, photographs, radar returns, and more. 
+So come along on a journey that is sure to change the way you feel about UFOs.</p>
 
 <p>SLOVAKIA: In 1944, a physician observed a fleet of 8 UFO. In 1959, Air Force officers and airport employees viewed an object hover over an airfield and was caught on radar. In December 1967, many people in the small village of Myjava saw a UFO appeared directly above the local church. In 1971, three people were taken from their apartment to what they believed to be another planet. Slovakia’s most famous encounter occurred in 1987 when a helicopter crew chased a UFO over the Vranov reservoir. In 1997, the residents of the small town of Milicin were panicked by a very intense wave of encounters. In 1991 and 1992, more sightings were viewed by police and caught on radar. The years of 1993 and 1994 were particularly active, with landings, multiple face-to-face encounters with humanoids and a gentleman whose car was levitated into the sky. In 2005 and 2006, multiple low-level sightings over the Bohunice and Temelin Nuclear power stations caused concern at high levels of government.</p>
 
@@ -749,7 +766,8 @@ EPISODE #266. UFOS IN YOUR HOMETOWN: EPISODE TEN. LINK: https://youtu.be/kgCSWrY
 <p>As can be seen, UFOs are ubiquitous. They are being seen all over this planet. This is important as it reveals that the ETs appear to have an agenda to announce their presence to all humanity. The ETs have done their part to disclose their presence. The rest is up to us!</p>
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE: #XXX: THE SPACESHIP HOUSE. LINK: https://youtu.be/fMphYLQySzI                                  April 18, 2025
+<h3><a href="">EPISODE: #XXX: THE SPACESHIP HOUSE</a>.</h3>
+<h5>LINK: https://youtu.be/fMphYLQySzI</h5>                                                             <h5>April 18, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>Joe Gardner (an artist from Huntington, West Virginia) was five years old when he had his first strange encounter. It was 1974 and he and his mother stood in the parking lot of the local Foodland grocery store. Suddenly Joe heard a singsong voice speak s in his mind, “Joe-Joe. Joe-Joe.” Looking up he saw a shiny metallic cylindrical object floating overhead. He pointed it out to his mother who also saw it. So began Joe’s life of high strangeness. Following this, he and his entire family had a dramatic missing time encounter with a landed UFO. A few years later, Joe had another onboard encounter. But for various reasons, both these events became buried in his mind and shrouded in forgetfulness.</p>
 
@@ -768,8 +786,8 @@ EPISODE: #XXX: THE SPACESHIP HOUSE. LINK: https://youtu.be/fMphYLQySzI          
 <p>Now, as an adult, Joe began having many close-up UFO sightings and was able to take photographs of a few of them. He learned his mom had a missing time encounter. He experienced a wide variety of paranormal events, including another episode of telepathic communication. Then on April 3, 2007, Joe had a truly bizarre encounter with a blue-skinned humanoid that changed his entire outlook about his experiences, and he wondered if perhaps they weren’t ETs at all, but more akin to Djinns.</p>
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #264. EXAMINED BY ALIENS: SEVEN SHOCKING ONBOARD UFO ENCOUNTERS. 
-LINK: https://youtu.be/XrhxuCzYRuE                                                                    April 11, 2025
+<h3><a href="">EPISODE #264. EXAMINED BY ALIENS: SEVEN SHOCKING ONBOARD UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/XrhxuCzYRuE</h5>                                                             <h5>April 11, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>The general public has no idea how common humanoid encounters are. There are not hundreds 
 of cases, but many thousands, perhaps more than that. Cases go back more than 100 years 
@@ -850,26 +868,65 @@ to occur.</p>
 increasingly difficult to deny the truth of the UFO phenomenon. Sooner or later, all 
 humanity will become aware that we are not alone in this universe.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #263. VERY STRANGE: TWELVE ENCOUNTERS WITH EXTRATERRESTRIAL HUMANOIDS. 
-  LINK: https://youtu.be/FIWvuJtAqaE                                                                    April 4, 2025
+<h3><a href="https://youtu.be/FIWvuJtAqaE">EPISODE #263. VERY STRANGE: 
+TWELVE ENCOUNTERS WITH EXTRATERRESTRIAL HUMANOIDS</a>.</h3>
+<h5>LINK: https://youtu.be/FIWvuJtAqaE</h5>                                                             <h5>April 4, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p>The general public has no idea how common humanoid encounters are. There are not hundreds of cases, but many thousands, perhaps more than that. Cases go back more than 100 years and come from across the world. The coverup is one reason cases like these are thought of as rare. Another is that an encounter with a humanoid can be so strange that people are reluctant to report it for fear of being disbelieved or ridiculed. Still, many people have found the courage to come forward. Almost everything we know about UFOs and ETs comes from these reports. This episode presents twelve cases from 1940-2013, occurring across the planet, involving a wide variety of humanoids.</p>
+<p>The general public has no idea how common humanoid encounters are. There are not 
+hundreds of cases, but many thousands, perhaps more than that. Cases go back more than 
+100 years and come from across the world. The coverup is one reason cases like these 
+are thought of as rare. Another is that an encounter with a humanoid can be so strange 
+that people are reluctant to report it for fear of being disbelieved or ridiculed. 
+Still, many people have found the courage to come forward. Almost everything we know 
+about UFOs and ETs comes from these reports. This episode presents twelve cases from 
+1940-2013, occurring across the planet, involving a wide variety of humanoids.</p>
  
-<p>TALL HUMANOIDS IN GLOWING METALLIC OUTFITS. Sometime in the early 1940s, police sergeant Vicente Pedone was stationed in Oriente, Buenos Aires, Argentina when a local resident reported a strange aircraft seemingly coming in for a crash-landing. Going to investigate, they saw a landed craft with tall humanoids next to it. Fear soon caused them to flee the scene.</p>
+<p>TALL HUMANOIDS IN GLOWING METALLIC OUTFITS. Sometime in the early 1940s, police 
+sergeant Vicente Pedone was stationed in Oriente, Buenos Aires, Argentina when a local 
+resident reported a strange aircraft seemingly coming in for a crash-landing. Going 
+to investigate, they saw a landed craft with tall humanoids next to it. Fear soon 
+caused them to flee the scene.</p>
 
-<p>THE CLOUDED CRAFT. Early one night in 1952, a group of stoneworkers near the Nimes-Courbessac Airport in France saw a strange cloud approach. In moments, it revealed itself to be a solid metallic craft with portholes. And through the portholes they saw 5 or 6 figures inside. The craft darted away, again hidden by clouds. Other people saw the object too.</p>
+<p>THE CLOUDED CRAFT. Early one night in 1952, a group of stoneworkers near the Nimes-
+Courbessac Airport in France saw a strange cloud approach. In moments, it revealed 
+itself to be a solid metallic craft with portholes. And through the portholes they 
+saw 5 or 6 figures inside. The craft darted away, again hidden by clouds. Other people 
+saw the object too.</p>
 
-<p>A UFO DRIVE-BY, WITH HUMANOIDS. One night in October 1957, a couple driving through the Store Vildmose Bog near Aalborg, Denmark saw a bright light zooming towards them just above the ground. In moments, it was right next to them. They now saw it was a craft with a glass-like dome on top, and seated inside were two uniformed men. Afraid, the wife insisted they flee.</p>
+<p>A UFO DRIVE-BY, WITH HUMANOIDS. One night in October 1957, a couple driving through 
+the Store Vildmose Bog near Aalborg, Denmark saw a bright light zooming towards them 
+just above the ground. In moments, it was right next to them. They now saw it was a 
+craft with a glass-like dome on top, and seated inside were two uniformed men. Afraid, 
+the wife insisted they flee.</p>
 
-<p>THEY LOOKED JUST LIKE PEOPLE…BUT THEY WEREN’T. At 9pm on December 18, 1977, Bruno Nygard was walking to his home in Sahavaara, Sweden and saw a strange craft floating above the road. As it approached, he saw two short men sitting on top. The two men hopped off and began picking up things from the road. Seeing Bruno, they hopped back onto their ship and zoomed off.</p>
+<p>THEY LOOKED JUST LIKE PEOPLE…BUT THEY WEREN’T. At 9pm on December 18, 1977, Bruno 
+Nygard was walking to his home in Sahavaara, Sweden and saw a strange craft floating 
+above the road. As it approached, he saw two short men sitting on top. The two men 
+hopped off and began picking up things from the road. Seeing Bruno, they hopped back 
+onto their ship and zoomed off.</p>
 
-<p>IT WAS NOT HUMAN. On the night of August 7, 1979, two women driving near Duluth, Minnesota saw three short figures on the road ahead of them. They appeared at first to be children. Then two seemed to float off the road, but the third stood in the road, blocking their way. The witnesses stopped their car and stared in shock: it was not human. After 10 scary minutes, they drove off.</p>
+<p>IT WAS NOT HUMAN. On the night of August 7, 1979, two women driving near Duluth, 
+Minnesota saw three short figures on the road ahead of them. They appeared at first to 
+be children. Then two seemed to float off the road, but the third stood in the road, 
+blocking their way. The witnesses stopped their car and stared in shock: it was not 
+human. After 10 scary minutes, they drove off.</p>
 
-<p>NINE-FOOT-TALL HUMANOIDS. On February 12, 1980, during a wave of sightings near Algeciras, Spain, a couple and three children drove up to where the lights were being seen. They came upon a landed UFO and two 9-foot-tall humanoids. When the figures began to approach, they fled in their car. To their shock, the figures chased them in their car.</p>
+<p>NINE-FOOT-TALL HUMANOIDS. On February 12, 1980, during a wave of sightings near 
+Algeciras, Spain, a couple and three children drove up to where the lights were being 
+seen. They came upon a landed UFO and two 9-foot-tall humanoids. When the figures 
+began to approach, they fled in their car. To their shock, the figures chased them 
+in their car.</p>
 
-<p>REALLY SCARED, BUT ALSO CURIOUS. One summer evening in 1981, a woman was driving to her home in rural Utah when her car broken down. Walking the remaining 2 miles home, a UFO flew over her head then landed in the road in front of her. Out stepped a little man. She approached and waved at the being. A bright light flashed, and she fainted. When she awoke, the craft and humanoid were gone.</p>
+<p>REALLY SCARED, BUT ALSO CURIOUS. One summer evening in 1981, a woman was driving to 
+her home in rural Utah when her car broken down. Walking the remaining 2 miles home, a 
+UFO flew over her head then landed in the road in front of her. Out stepped a little 
+man. She approached and waved at the being. A bright light flashed, and she fainted. 
+When she awoke, the craft and humanoid were gone.</p>
 
-<p>IT WAS GONE WITHIN SECONDS. In August 1983, a wave of UFO activity struck central Puerto Rico. Many people had close-up sightings of strange craft. Among the strangest was a man who saw a pyramid-shaped object. It had windows on one side, and looking down at him were three humanoids.</p>
+<p>IT WAS GONE WITHIN SECONDS. In August 1983, a wave of UFO activity struck central 
+Puerto Rico. Many people had close-up sightings of strange craft. Among the strangest 
+was a man who saw a pyramid-shaped object. It had windows on one side, and looking 
+down at him were three humanoids.</p>
 
 <p>MINIATURE UFO AND HUMANOID. One spring day in 1984, a young boy was walking through a field near his home in Vancouver, Washington when he came upon a 3-foot-wide metallic disc with a clear dome on top. Inside it was a tiny humanoid. The boy picked up the craft, which emitted a buzzing noise, broke free from his grip and darted off into the sky.</p>
  
@@ -881,9 +938,19 @@ EPISODE #263. VERY STRANGE: TWELVE ENCOUNTERS WITH EXTRATERRESTRIAL HUMANOIDS.
 
 <p>Twelve cases, each adding to the growing database of human encounters, each making it increasingly difficult to deny the truth of the UFO phenomenon. Sooner or later, all humanity will become aware that we are not alone in this universe.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #262. UFOS IN YOUR HOMETOWN: EPISODE NINE. LINK: https://youtu.be/GSlGs6yh2Fg                   March 28, 2025
+<h3><a href="https://youtu.be/GSlGs6yh2Fg">EPISODE #262. UFOS IN YOUR HOMETOWN: EPISODE NINE</a>.</h3>
+<h5>LINK: https://youtu.be/GSlGs6yh2Fg</h5>                                                             <h5>March 28, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p>Welcome to Episode Nine of UFOs in Your Hometown. Name any town or city on this planet, and you will find a history of UFOs. So far I have examined almost 100 locations, and every single one of them has been visited by UFOs. The implications of this are profound; this shows that UFO encounters are far more common than previously believed. It appears that the UFO occupants are conducting a  publicity campaign and want to be seen. This latest episode of the ongoing series presents nine new locations including: Katwijk, Holland; Nanjing, China; Pakistan; Quapaw, Oklahoma; Salinas, California; Dubque, Iowa; Daytona Beach, Florida; Statesville, North Carolina; and Annadale, New York. Sightings, landings, face-to-face encounters and more…they are occurring everywhere on Earth.</p>
+<p>Welcome to Episode Nine of UFOs in Your Hometown. Name any town or city on this 
+planet, and you will find a history of UFOs. So far I have examined almost 100 
+locations, and every single one of them has been visited by UFOs. The implications 
+of this are profound; this shows that UFO encounters are far more common than previously 
+believed. It appears that the UFO occupants are conducting a  publicity campaign and 
+want to be seen. This latest episode of the ongoing series presents nine new locations 
+including: Katwijk, Holland; Nanjing, China; Pakistan; Quapaw, Oklahoma; Salinas, 
+California; Dubque, Iowa; Daytona Beach, Florida; Statesville, North Carolina; and 
+Annadale, New York. Sightings, landings, face-to-face encounters and more…they are 
+occurring everywhere on Earth.</p>
 
 <p>KATWIJK, HOLLAND. This small town of about twelve square miles has a couple of very interesting encounters. At 3:30 am on July 8, 2003, a woman noticed a spinning disc-shaped craft over her home. It remained in place for an hour. Afterwards, she had a terrible headache. On September 2, 2023, a witness not only saw a UFO, but photographed and filmed it.</p>
 
@@ -905,8 +972,9 @@ EPISODE #262. UFOS IN YOUR HOMETOWN: EPISODE NINE. LINK: https://youtu.be/GSlGs6
 
 <p>Nine new locations: each with a history of UFO encounters. These encounters are supported by multiple witnesses, landing traces, physiological effects, animal reactions, photographs and more. The huge number of cases make it undeniable that we are being visited.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #261. DO NOT BE AFRAID: EIGHT EXTRAORDINARY ONBOARD EXTRATERRESTRIAL ENCOUNTERS. 
-  LINK: https://youtu.be/dm4tX8Z0bow                                                                    March 21, 2025
+<h3><a href="https://youtu.be/dm4tX8Z0bow">EPISODE #261. DO NOT BE AFRAID: 
+EIGHT EXTRAORDINARY ONBOARD EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/dm4tX8Z0bow</h5>                                                             <h5>March 21, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>The most extensive UFO encounter is being taken onboard an extraterrestrial craft. This is the cutting edge of UFO research. These cases  hold the potential to answer the many questions surrounding ET contact: who are these visitors to our planet, where do they come from, and why are they here? This video presents eight amazing cases involving people who have been taken onboard a UFO and met aliens face-to-face.</p>
 
@@ -928,8 +996,9 @@ EPISODE #261. DO NOT BE AFRAID: EIGHT EXTRAORDINARY ONBOARD EXTRATERRESTRIAL ENC
 
 <p>Eight onboard cases, each with details which are remarkably similar and confirm each other’s accounts, and each with unique details that show how much we still have to learn. What these cases do show is that people all over the world are being taken onboard extraterrestrial craft and meeting extraterrestrials face-to-face. It has been happening for a long time.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #260. MY MOTHER THE MANTIS – THE TRUE EXTRATERRESTRIAL CONTACT STORY OF SONDRA X. 
-  LINK: https://youtu.be/6hEgoSfheuo                                                                    March 14, 2025
+<h3><a href="https://youtu.be/6hEgoSfheuo">EPISODE #260. MY MOTHER THE MANTIS: 
+THE TRUE EXTRATERRESTRIAL CONTACT STORY OF SONDRA X</a>.</h3>
+<h5>LINK: https://youtu.be/6hEgoSfheuo</h5>                                                             <h5>March 14, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>A teacher from Virginia, Sondra came from a military family and has lived in many locations on the planet. She was born in 1940, and like many ET contactees, unusual events surrounded her from a very young age. In fact, when she was only a few weeks old, her mother woke up one morning to see Sondra levitating above her crib! Soon other mystical events occurred. At age three, while living in sunny Long Beach in southern California, Sondra discovered that she was able to call forth the wind, and even make it snow.</p>
 
@@ -941,8 +1010,9 @@ EPISODE #260. MY MOTHER THE MANTIS – THE TRUE EXTRATERRESTRIAL CONTACT STORY O
 <p>Sondra grew up, got a few college degrees, fell in love, got married and had children. She continued to have OBEs and other unusual events. Then one day her husband said he had seen grays at the foot of the bed speaking to Sondra. She had no memory of this, but shortly later, she began having repeated visitations by the grays in her bedroom, who would hold long conversations with her. The visits occurred for many years. Only a few times did Sondra ever see them arrive or leave. She rarely remembered the content of the conversations.</p>
 <p>Eventually the visits slowed and one day stopped. One of her final visits occurred in 2018. The grays had come to again give her in urgent warning about future wars on our planet, and advise her to move out of the city and into the mountains, a warning which she and her husband heeded. Today, she lives there peacefully. Sondra agreed to share her story as she feels its important to communicate the warnings given to her by the ETs. If you are interested in hearing more about Sondra’s amazing encounter, her story (and many others) is presented in my book, “Humanoids and High Strangeness: Twenty True UFO Encounters.” Now available!</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #259. UNEARTHLY: TWELVE VERY WEIRD EXTRATERRESTRIAL ENCOUNTERS. 
-  LINK: https://youtu.be/GjgecsdVhwk                                                                    March 7, 2025
+<h3><a href="https://youtu.be/GjgecsdVhwk">EPISODE #259. UNEARTHLY: 
+TWELVE VERY WEIRD EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/GjgecsdVhwk</h5>                                                             <h5>March 7, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>There is nothing quite like a face-to-face encounter with a humanoid creature. An experience like this almost always has a profound effect on the witness, challenging them mentally, emotionally, and spiritually. It is something they remember for the rest of their lives. Encounters like these are far more common than you might think, and involve a mind-boggling variation of humanoid types. Here are ten little-known cases coming from across the planet, each involving different humanoid creatures, from tiny beings less than a foot tall, to creatures upwards of twelve feet in height. Several involve multiple witnesses, not to mention landing traces, electromagnetic disturbances, animal reactions and medical effects.</p>
 
