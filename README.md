@@ -1491,7 +1491,8 @@ TEN SPECTACULAR CASES</a>.</h3>
 
 <p>Seven encounters, each providing a tantalizing glimpse into the what it’s like to be taken onboard a UFO. Each case provides another piece of the puzzle and adds to our knowledge of ET contact. There are too many cases to explain away. UFOs are real; we are being visited.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISDOE #248. UFO ENTITIES: TEN TRUE EXTRATERRESTRIAL ENCOUNTERS. LINK: https://youtu.be/1WLbo_L2rNk    December 20, 2024
+EPISDOE #248. UFO ENTITIES: TEN TRUE EXTRATERRESTRIAL ENCOUNTERS.
+LINK: https://youtu.be/1WLbo_L2rNk    December 20, 2024
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 34,655 views  Dec 20, 2024
 Many questions remain regarding the nature and origin of UFO entities, which is why continuing research and documentation is so important. In this video I present ten little-known cases from across the world, from the 1940s to the 2010s. Many different types of humanoids are represented, gray ETs, short little beings, human-looking ETs, very tall figures and more. Many involve multiple witnesses and various forms of evidence. These ten cases provide a tantalizing glimpse into the very heart of the UFO phenomenon: face-to-face contact with extraterrestrials.
@@ -1518,8 +1519,8 @@ THE GIANT ALIEN. On the night of August 21, 2014, three friends decided to medit
 
 These ten cases show how truly strange and bizarre contact with UFO entities can be. So many different kinds of craft. So many varieties of humanoids. One thing that remains very consistent is that the experience always affects the witnesses profoundly, proving to them firsthand that we are not alone in this infinite universe.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #247. THE LITTLE PEOPLE: THE HIGH STRANGENESS ET CONTACT STORY OF KELLI ANDERSON. 
-  LINK: https://youtu.be/ivsD3gZccyI                                                                    December 13, 2024
+EPISODE #247. THE LITTLE PEOPLE: THE HIGH STRANGENESS ET CONTACT STORY OF KELLI ANDERSON.
+LINK: https://youtu.be/ivsD3gZccyI                                                                    December 13, 2024
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 26,222 views  Dec 13, 2024
 This video presents the high strangeness ET contacts of Kelli Anderson (pseudonym) from southern California. Her story involves a wide variety of paranormal entities and events, including ghosts, extraterrestrials, UFOs and missing time, psychic and paranormal events, OBEs, nature spirits, precognition, orb visitations, weird owl stories, an apparent miracle and more.
@@ -1540,7 +1541,8 @@ Strange events continued, including her home filling with eerie blue and green l
 
 To explore more about Kelli’s amazing extraterrestrial and paranormal experiences (and those of many others) check out my book, “Humanoids and High Strangeness: Twenty True UFO Encounters.” Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #246. UFOS AND THE AMERICAN SITCOM. LINK: https://youtu.be/ikuyytP-ZKg                          December 6, 2024
+EPISODE #246. UFOS AND THE AMERICAN SITCOM.
+LINK: https://youtu.be/ikuyytP-ZKg                          December 6, 2024
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 7,700 views  Dec 6, 2024
 UFOs appear in virtually all forms of media. Advertising, video-games, feature films, literature, radio, podcasts, social media platforms on the internet, and especially television. Countless documentaries, dramas, and reality TV shows have explored every facet of this subject. One form of television program that has prominently featured UFOs is the situation comedy.
@@ -1552,22 +1554,22 @@ Sitcoms have tackled many controversial issues such as sexuality, crime, corrupt
 This video explores two dozen high-profile sitcoms that have had the courage to present this controversial subject, and then we will see what the treatment of this subject has to say about America’s attitude toward the UFO phenomenon. The sitcoms are presented chronologically in order of appearance, and reflect how Americans’ perception and understanding of UFOs changes over the decades.
 https://prestondennett.weebly.com/
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #245. SHOCKING EXTRATERRESTRIAL ENCOUNTERS: TEN TRUE CASES. LINK: https://youtu.be/2nA5OYF5fyM  November 29, 2024
+EPISODE #245. SHOCKING EXTRATERRESTRIAL ENCOUNTERS: TEN TRUE CASES.
+LINK: https://youtu.be/2nA5OYF5fyM  November 29, 2024
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #244. WEIRD! WEIRD! WEIRD! TEN TRULY STRANGE UFO ENCOUNTERS. 
-  LINK: https://youtu.be/D83pblWXPt4                                                                    November 22, 2024
+EPISODE #244. WEIRD! WEIRD! WEIRD! TEN TRULY STRANGE UFO ENCOUNTERS.
+LINK: https://youtu.be/D83pblWXPt4                                                                    November 22, 2024
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #243. UFOS IN YOUR HOMETOWN: EPISODE SIX. LINK: https://youtu.be/YUbVSNSIu40                    November 15, 2024
+EPISODE #243. UFOS IN YOUR HOMETOWN: EPISODE SIX.
+LINK: https://youtu.be/YUbVSNSIu40                    November 15, 2024
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #242. MEETING THE EXTRATERRESTRIALS: TEN TRUE CASES. LINK: https://youtu.be/1qK7p8bUn3I         November 8, 2024
+EPISODE #242. MEETING THE EXTRATERRESTRIALS: TEN TRUE CASES.
+LINK: https://youtu.be/1qK7p8bUn3I         November 8, 2024
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-
 47,448 views  Nov 8, 2024
 Thousands of people have had the experience, if not millions: a face-to-face meeting with extraterrestrials. Cases come from all over the world, and they share profound commonalities and differences. It appears that the humanoid form is the universal template. And yet, many cases have rare or unique elements of high strangeness that defy comprehension. This article/video presents ten cases of this kind. These cases have much to teach us about the UFO phenomenon and these strange visitors to our planet.
 
@@ -1593,7 +1595,8 @@ THE WITHLACOOCHEE ET. On the night of April 2, 2015, “Philip” was driving an
 
 Ten cases, each providing more evidence of the extraterrestrial presence on our planet. The truth can no longer be denied, ignored, or explained away. We are being visited by ETs.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #241. THE ONBOARD UFO EXPERIENCE: SIX SHOCKING CASES. LINK: https://youtu.be/EN9sFHclJeI        November 1, 2024
+EPISODE #241. THE ONBOARD UFO EXPERIENCE: SIX SHOCKING CASES.
+LINK: https://youtu.be/EN9sFHclJeI        November 1, 2024
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 72,300 views  Nov 1, 2024
 It has been called the ultimate UFO encounter, the closest of all encounters: an onboard UFO experience. There are thousands of well-documented cases, and some researchers believe they may number in the millions. These cases of direct contact with ETs involve extensive interactions and contain more information about the extraterrestrials than any other kind of encounter. Here are six shocking cases from across the world: Australia, Canada, France and three from the United States. The UFO phenomenon is so much more than just simple sightings of unexplained lights in the sky. It’s about meeting people from other worlds.
@@ -1612,10 +1615,10 @@ SEVEN HOURS ONBOARD AN ALIEN SPACECRAFT. Eduardo Pons Prades was a famous politi
 
 Six shocking onboard UFO encounters, each providing profound insights into the nature and origins of extraterrestrials, each providing answers about the ET agenda on our planet. We are not alone!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #240. BEYOND BELIEF: TEN INCREDIBLE EXTRATERRESTRIAL ENCOUNTERS. 
-  LINK: https://youtu.be/HfySCeMWDT8                                                                    October 25, 2024
+<h3><a href="">EPISODE #240. BEYOND BELIEF: TEN INCREDIBLE EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/HfySCeMWDT8</h5>                                                             <h5>October 25, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-48,736 views  Oct 25, 2024  #111
+<h7>48,736 views  Oct 25, 2024  #111</h7>
 While there are still those who remain skeptical of UFOs and extraterrestrials, there are many who not only believe, they KNOW. They have moved beyond belief to actual experiential knowledge. A firsthand encounter with extraterrestrials changes the way a person views the universe. They know beyond doubt that we are not alone in this universe. And a lot of people have had this kind of experience. This video presents ten firsthand accounts of people who have met humanoids face-to-face. These cases come from all over the world. They show that we are not the only people in this universe. We are one of many!
 
 THE ALIENS AND THE SHEPHERD BOY. In the Summer of 1938, Mariano Melgar, a seven-year-old shepherd boy from Munico, Spain was minding his family’s herd of cows when an ET craft landed nearby. A door opened and three men stepped out. Mariano approached to get a closer look and one of them shot him with a beam of light. Mariano thought they might be from another country. Later he would change his mind.
@@ -1640,9 +1643,10 @@ THE HUNTERS BECOME THE HUNTED. It was 3am on December 12, 2011, as three hunters
 
 These ten cases provide just a brief glimpse into the nature of contact with UFOs and extraterrestrials. The truth is that there are thousands upon thousands of cases, each of them unique, each providing another piece of the puzzle that is the UFO mystery. The only thing we know for sure is that UFOs are real, and we are not alone in this universe.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #239. UFOS INYOUR HOMETOWN: EPISODE FIVE. LINK: https://youtu.be/Hq5RdDuqThQ                    October 18, 2024
+<h3><a href="">EPISODE #239. UFOS INYOUR HOMETOWN: EPISODE FIVE</a>.</h3>
+<h5>LINK: https://youtu.be/Hq5RdDuqThQ</h5>                    <h5>October 18, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-21,286 views  Oct 18, 2024
+<h7>21,286 views  Oct 18, 2024</h7>
 UFOs are ubiquitous! They are seen everywhere on our planet. Every town, every city, everywhere! In Part Five of this ongoing you the viewers have provided nine new locations to investigate and find UFO cases. And once again, research shows that UFOs have left no place behind. Eugene, Oregon----Homewood, Illinois----Niagara Falls, New York & Ontario Canada----Glenwood, MN----Helena, MT----Tucson, Arizona----Monterey, CA---Rotherham, UK: all of them have been visited by extraterrestrials. That includes sightings, landings, humanoids, and onboard experiences, with many cases supported by evidence including photos, radar-returns, landing traces, medical effects, electromagnetic disturbances, animal reactions and more. We are not alone!
 
 EUGENE, OREGON shows a long UFO history. In 1947, a married couple had a dramatic encounter with a low-level UFO. In July of 1955, the audience of a drive-in movie theater in Eugene witnessed a dazzling UFO display. Cases in 1959, 1960, 1971 and 1976, 1982, 1986, 1986—most involving multiple witnesses, including police. In 2015, a Eugene woman saw gray aliens in her bedroom. In 2016 a witness captured startling photos of a UFO.
@@ -1661,11 +1665,10 @@ MONTEREY, CALIFORNIA has several impressive encounters. In April 10, 1950, numer
 ROTHERHAM, UK was the location of a spooky humanoid goat-man seen back in 1937. The years of 1977, 1981, 1987, 1988 and 1997 produced many spectacular cases. More cases occur, even as late as 2001 when witnesses reported a craft moving with a strange pendulum motion.
 The cases speak for themselves. All over the world UFOs are being seen. UFO activity is far more common and widespread than previously thought. It appears that the ETs want us to know they are here! The truth is obvious: UFOs are seen all over the planet, including your own hometown.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #238. FROM THE STARS: TWELVE ASTOUNDING EXTRATERRESTRIAL ENCOUNTERS. 
-  LINK: https://youtu.be/1uPTeE4ZwxQ                                                                    October 11, 2024
+<h3><a href="">EPISODE #238. FROM THE STARS: TWELVE ASTOUNDING EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/1uPTeE4ZwxQ</h5>                                                             <h5>October 11, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-
-49,580 views  Oct 11, 2024
+<h7>49,580 views  Oct 11, 2024</h7>
 While there are still many questions surrounding the origin of UFOs and their occupants, the most popular theory is that they are from the stars, in other words: extraterrestrial. This video presents twelve cases from across the world involving a wide variety of ETs. These reports are supported by a wide variety of evidence: photos, medical effects, landing traces, animal reactions, electromagnetic disturbances and more. It’s time for this subject to be taken seriously by everyone on this planet.
 
 THE HUMANOID IN THE FIREBALL. One evening in the Summer of 1961, “Mike” (age 7) was camping with his buddy in the backyard of his home in Anaheim, California. Suddenly a fiery object swooped down and hovered overhead. Inside, he saw a humanoid figure looking down at him.
@@ -1694,10 +1697,9 @@ THE ET WHO WALKED ON WATER. One day in 1999, a man was hiking next to a pond in 
 
 These 12 cases alone make it undeniable that we are being visited by extraterrestrials, but the truth is that there are thousands of more cases. It is no longer possible to deny the truth of the ET presence on our planet. The evidence is clear: we are not alone!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #237. SO THAT HAPPENED! EIGHT INCREDIBLY WEIRD UFO ENCOUNTERS. 
-  LINK: https://youtu.be/15-KbtSEjxE                                                                    October 4, 2024
+<h3><a href="">EPISODE #237. SO THAT HAPPENED! EIGHT INCREDIBLY WEIRD UFO ENCOUNTERS</a>.</h3>
+LINK: https://youtu.be/15-KbtSEjxE                                                                    October 4, 2024
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-
 39,934 views  Oct 4, 2024
 Some UFO encounters are so incredibly weird, that after it occurs people can hardly believe that it actually happened! This episode presents eight cases from across the world of truly high strangeness, each involving close encounters of the second kind, in which the environment is affected in some way. Many of these cases have multiple witnesses, and virtually all of them involve some form of evidence: radar confirmation, photographs, landing traces, physiological effects, animal reactions, electromagnetic disturbances. These are the kinds of cases that simply cannot be denied.
 
@@ -1719,8 +1721,8 @@ HIGH STRANGENESS IN SLOCINA. At 10:42 pm on December 27, 2013, Ewa looked outsid
 
 These eight case, all close encounters of the second kind, show that UFOs can affect the environment (and the witnesses) in weird and unusual ways that defy comprehension. Cases like these have much to teach us about these strange craft visiting our planet, and the behavior of the occupants inside them.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #236. UNKNOWN HUMANOIDS: TEN CLOSE ENCOUNTERS OF THE THIRD KIND. 
-  LINK: https://youtu.be/pL5GYo7TIfc                                                                    September 27, 2024
+<h3><a href="">EPISODE #236. UNKNOWN HUMANOIDS: TEN CLOSE ENCOUNTERS OF THE THIRD KIND</a>.</h3>
+LINK: https://youtu.be/pL5GYo7TIfc                                                                    September 27, 2024
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 48,715 views  Sep 27, 2024
 A close encounter of third kind: meetings with humanoids. This happens more often than most people think. There are thousands upon thousands of cases on record, coming from all over the world. This episode presents ten cases of extraterrestrial humanoid encounters you probably haven’t heard before. Short and tall humanoids, human-looking ETs, robotic beings, grays…and more. Each case reveals remarkable insights into the nature of UFO contact, what they are doing, and why they are here.
@@ -1747,9 +1749,9 @@ AN INTERRUPTED JOURNEY. At 4:30 pm on August 25, 1999, mechanic Carlos Colon’s
 
 Ten more cases showing once more that we are not alone in the Universe. It’s time for the world to face this fact. UFOs are real. Extraterrestrials are here!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #235. UFOS IN YOUR HOMETOWN: EPISODE FOUR. LINK: https://youtu.be/ApdJMteplYQ                   September 20, 2024
+<h3><a href="">EPISODE #235. UFOS IN YOUR HOMETOWN: EPISODE FOUR</a>.</h3>
+LINK: https://youtu.be/ApdJMteplYQ                   September 20, 2024
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-
 28,876 views  Sep 20, 2024
 Welcome to Episode Four of my ongoing series of “UFOS IN YOUR HOMETOWN.” I have put out a challenge to anyone interested in this subject: name any location, such as your hometown, and I bet I can find a UFO encounter there. Hundreds of people responded. I am working my way down the list of locations. In this episode I investigate eight places: Fort Wayne, IN----Greenock, Scotland----Warsaw, Poland----New Paltz, NY----St Charles, MO----Boston, MA----van horn, TX----Grand Junction, CO. And guess what, there are cases in each of these areas! Sightings, landings, humanoids, onboard encounters…supported by eyewitness testimonies, photos, radar-returns, landing traces, medical effects and more. Has your hometown been visited? The answer is probably YES!
 
@@ -1771,8 +1773,8 @@ GRAND JUNCTION, COLORADO. In 1956, four people were shocked by the appearance of
 
 It appears that every location on Earth has a long and rich history of UFO encounters. The evidence speaks for itself. We are being visited by extraterrestrials.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #234. I WENT ONBOARD AN EXTRATERRESTRIAL CRAFT: SIX SCARY TRUE CASES. 
-  LINK: https://youtu.be/s0iz0uTUdQk                                                                    September 13, 2024
+<h3><a href="">EPISODE #234. I WENT ONBOARD AN EXTRATERRESTRIAL CRAFT: SIX SCARY TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/s0iz0uTUdQk</h5>                                                             <h5>September 13, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 141,307 views  Sep 13, 2024
 An onboard UFO encounter is the most extensive of all UFO cases, and there are a lot of them. According to the Roper Polling organization, as many as one in fifty people show the markers of being UFO contactees. An onboard experience is far more common than most people know, and the fact is, most people remain silent about their encounters. This video presents six incredible accounts from across the world of people who have been onboard an extraterrestrial craft. These cases are not only fascinating, they have a lot to teach us about the ET agenda.
@@ -1791,338 +1793,585 @@ CONTACT IN DEBRECEN. Late one evening in December 1990, teacher and artist Gabor
 
 These six cases show what it’s like to be taken onboard a craft and examined by ETs. They provide some answers as to what happens inside a UFO, and why people are being taken onboard. They show how profoundly an encounter can affect a person in many ways. And most importantly, they add to our knowledge of this subject and provide further evidence that we are not alone in this universe.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #233. VERY CLOSE ENCOUNTERS WITH HUMANOIDS: TEN SHOCKING TRUE CASES. 
-  LINK: https://youtu.be/QcfhUnuJNbE                                                                    September 6, 2024
+<h3><a href="https://youtu.be/QcfhUnuJNbE">EPISODE #233. VERY CLOSE ENCOUNTERS WITH HUMANOIDS: TEN SHOCKING TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/QcfhUnuJNbE</h5>                                                             <h5>September 6, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #232. VISITORS TO EARTH: TEN INCREDIBLE HUMANOID ENCOUNTERS. LINK: https://youtu.be/cLVWMVkyxJY August 30, 2024
+<h3><a href="https://youtu.be/cLVWMVkyxJY">EPISODE #232. VISITORS TO EARTH: TEN INCREDIBLE HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/cLVWMVkyxJY</h5>            <h5>August 30, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #231. UFOS IN YOUR HOMETOWN: EPISODE THREE. LINK: https://youtu.be/h5343qnNLkA                  August 23, 2024
+<h3><a href="https://youtu.be/h5343qnNLkA">EPISODE #231. UFOS IN YOUR HOMETOWN: EPISODE THREE</a>.</h3>
+<h5>LINK: https://youtu.be/h5343qnNLkA</h5>                  <h5>August 23, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #230. ASTOUNDING; TEN TRUE HUMANOID ENCOUNTERS. LINK: https://youtu.be/ITBbj6T_iv0              August 16, 2024
+<h3><a href="https://youtu.be/ITBbj6T_iv0">EPISODE #230. ASTOUNDING; TEN TRUE HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/ITBbj6T_iv0</h5>              <h5>August 16, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #229. BEWILDERED: TEN HUMANOIDS ENCOUNTERS. LINK: https://youtu.be/xdA0e3it6x8                  August 9, 2024
+<h3><a href="https://youtu.be/xdA0e3it6x8">EPISODE #229. BEWILDERED: TEN HUMANOIDS ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/xdA0e3it6x8</h5>                  <h5>August 9, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #228. ANYONE, ANYWHERE, ANYTIME: TEN HUMANOID ENCOUNTERS. LINK: https://youtu.be/_VPPmPzGbO4    August 2, 2024
+<h3><a href="https://youtu.be/_VPPmPzGbO4">EPISODE #228. ANYONE, ANYWHERE, ANYTIME: TEN HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/_VPPmPzGbO4</h5>    <h5>August 2, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #227. UFOS IN YOUR HOMETOWN-PART TWO. LINK: https://youtu.be/3v3S97WDd64                        July 26, 2024
+<h3><a href="https://youtu.be/3v3S97WDd64">EPISODE #227. UFOS IN YOUR HOMETOWN-PART TWO</a>.</h3>
+<h5>LINK: https://youtu.be/3v3S97WDd64</h5>                        <h5>July 26, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #226. FROM BEYOND EARTH: TEN HUMANOID ENCOUNTERS. LINK: https://youtu.be/_nrka0VJMms            July 19, 2024
+<h3><a href="https://youtu.be/_nrka0VJMms">EPISODE #226. FROM BEYOND EARTH: 
+TEN HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/_nrka0VJMms</h5>                                                             <h5>July 19, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #225. THE ULTIMATE UFO ENCOUNTER: SIX ONBOARD UFO ENCOUNTERS. 
-  LINK: https://youtu.be/Lcmue1wnMoM                                                                    July 12, 2024
+<h3><a href="https://youtu.be/Lcmue1wnMoM">EPISODE #225. THE ULTIMATE UFO ENCOUNTER: 
+SIX ONBOARD UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/Lcmue1wnMoM</h5>                                                             <h5>July 12, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #224. ALIENS TRIED TO ABDUCT MY DOG: THE JOHN TRASCO STORY. LINK: https://youtu.be/-xuPD9cG4rI  July 7, 2024
+<h3><a href="https://youtu.be/-xuPD9cG4rI">EPISODE #224. ALIENS TRIED TO ABDUCT MY DOG: 
+THE JOHN TRASCO STORY</a>.</h3>
+<h5>LINK: https://youtu.be/-xuPD9cG4rI</h5>  <h5>July 7, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #223. ALIENS ABDUCTED MY DOG. LINK: https://youtu.be/zubKBEuOOrM                                July 5, 2024
+<h3><a href="https://youtu.be/zubKBEuOOrM">EPISODE #223. ALIENS ABDUCTED MY DOG</a>.</h3>
+<h5>LINK: https://youtu.be/zubKBEuOOrM</h5>                                <h5>July 5, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #222. UFOS IN YOUR HOMETOWN – BY SPECIAL REQUEST. LINK: https://youtu.be/Ng-O1vql7iY            June 28, 2024
+<h3><a href="https://youtu.be/Ng-O1vql7iY">EPISODE #222. UFOS IN YOUR HOMETOWN – BY SPECIAL REQUEST</a>.</h3>
+<h5>LINK: https://youtu.be/Ng-O1vql7iY</h5>            <h5>June 28, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #221. THEY ARE HERE: TEN CLOSE ENCOUNTERS WITH EXTRATERRESTRIALS. 
-  LINK: https://youtu.be/CKtz-9dA9A0                                                                    June 21, 2024
+<h3><a href="https://youtu.be/CKtz-9dA9A0">EPISODE #221. THEY ARE HERE: TEN CLOSE ENCOUNTERS WITH EXTRATERRESTRIALS</a>.</h3>
+<h5>LINK: https://youtu.be/CKtz-9dA9A0</h5>                                                             <h5>June 21, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #220. FACE TO FACE: TEN VERY CLOSE ENCOUNTERS WITH EXTRATERRESTRIALS. 
-  LINK: https://youtu.be/qHun029FgFA                                                                    June 14, 2024
+<h3><a href="https://youtu.be/qHun029FgFA">EPISODE #220. FACE TO FACE: TEN VERY CLOSE ENCOUNTERS WITH EXTRATERRESTRIALS</a>.</h3>
+<h5>LINK: https://youtu.be/qHun029FgFA</h5>                                                             <h5>June 14, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #219. ASTONISHING: TEN CASES OF EXTRATERRESTRIAL CONTACT. LINK: https://youtu.be/HefLEAs1mFI    June 7, 2024
+<h3><a href="https://youtu.be/HefLEAs1mFI">EPISODE #219. ASTONISHING: TEN CASES OF EXTRATERRESTRIAL CONTACT</a>.</h3>
+<h5>LINK: https://youtu.be/HefLEAs1mFI</h5>    <h5>June 7, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #218. NOT ALONE: TEN SUPER-STRANGE ALIEN ENCOUNTERS. LINK: https://youtu.be/AGWKmPYFz6c         May 31, 2024
+<h3><a href="https://youtu.be/AGWKmPYFz6c">EPISODE #218. NOT ALONE: TEN SUPER-STRANGE ALIEN ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/AGWKmPYFz6c</h5>         <h5>May 31, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #217. MEETING THE ALIENS: FIVE ONBOARD UFO ENCOUNTERS. LINK: https://youtu.be/55KdbyIVK00       May 24, 2024
+<h3><a href="https://youtu.be/55KdbyIVK00">EPISODE #217. MEETING THE ALIENS: FIVE ONBOARD UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/55KdbyIVK00</h5>       <h5>May 24, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #216. TWELVE AMAZING UFO ENCOUNTERS. LINK: https://youtu.be/TYocXlD19Jk                         May 17, 2024
+<h3><a href="https://youtu.be/TYocXlD19Jk">EPISODE #216. TWELVE AMAZING UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/TYocXlD19Jk</h5>                         <h5>May 17, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #215. TRULY INCREDIBLE: TWELVE WEIRD HUMANOID ENCOUNTERS. LINK: https://youtu.be/bS_7JqPxEv4    May 10, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #214. TEN STARTLING CASES OF HUMANOIDS AND ALIENS. LINK: https://youtu.be/c_QaAdJmVaM           May 3, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #213. FIVE REALLY WEIRD EXTRATERRESTRIAL ENCOUNTERS. LINK: https://youtu.be/VyoikIl8qKs         April 26, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #212. STRANGE HUMANOIDS AROUND THE WORLD: TEN EYEWITNESS ACCOUNTS. 
-  LINK: https://youtu.be/53Emmv7ZHoU                                                                    April 19, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #211. FIVE FASCINATING ONBOARD UFO ENCOUNTERS. LINK: https://youtu.be/Y6gcstxbaDo               April 12, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #210. TEN TRULY STRANGE UFO ENCOUNTERS. LINK: https://youtu.be/P_BKYS32Iok                      April 5, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #209. ET CONTACT: TEN HUMANOID ENCOUNTERS. LINK: https://youtu.be/wUzW51WbFrU                   March 29, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #208. ALIEN VISITATIONS: TEN CASES FROM AROUND THE WORLD. LINK: https://youtu.be/rknpLADiWkk    March 22, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #207. PETER AND THE UFOS: A TRUE STORY OF CONTACT. LINK: https://youtu.be/dlPLMwWQxDQ           March 15, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #206. WHEN ASTRONOMERS SEE UFOS. LINK: https://youtu.be/qbJSnybGong                             March 8, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #205. TEN UNUSUAL EXTRATERRESTRIAL ENCOUNTERS. LINK: https://youtu.be/oIKbK7rv8EI               March 1, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #204. TEN TRUE HUMANOID ENCOUNTERS. LINK: https://youtu.be/G9HiW0c5JgA            (bearded)     February 23, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #203 A CENTURY OF HUMANOIDS: TWELVE TRUE ENCOUNTERS. LINK: https://youtu.be/tLbLFJuSgaY         February 16, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #202. EXTRATERRESTRIAL MEETINGS: FIVE TRUE CASES. LINK: https://youtu.be/K5kcAQQYrlU            February 9, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #201. IN THE PRESENCE OF EXTRATERRESTRIALS: TEN TRUE CASES. LINK: https://youtu.be/srKIwmkxGZ0  February 2, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #200. CLOSE ENCOUNTERS OF THE FOURTH KIND: FIVE TRUE CASES. LINK: https://youtu.be/m4hESDDIm5o  January 26, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #199. WEIRD WATER UFO ENCOUNTERS: TWELVE TRUE CASES. LINK: https://youtu.be/kamv9uX0qAI         January 19, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #198. EXTRAORDINARY HUMANOIDS: TEN TRUE ENCOUNTERS. LINK: https://youtu.be/e8R1j4N_760          January 12, 2024
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #197. UNDENIABLE: FIVE TRUE UFO ENCOUNTERS. LINK: https://youtu.be/_eNykzlYabw                  December 29, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #196. EXTRATERRESTRIAL RENDEZVOUS: FIVE AMAZING ONBOARD UFO ENCOUNTERS. 
-  LINK: https://youtu.be/uCPDKe240OM                                                                    December 22, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #195. REALLY STRANGE UFO ENCOUNTERS: TWELVE TRUE CASES. LINK: https://youtu.be/DWlSoYELCpE        
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #194. AMAZING ALIEN ENCOUNTERS: TEN TRUE CASES. LINK: https://youtu.be/P2rRaXxHbbk              December 15, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #193. THE HUMANOIDS: TWELVE TRUE CASES OF FACE-TO-FACE CONTACT WITH HUMANOIDS.     
-  LINK: https://youtu.be/_O9MFxki5jw                                                                    December 8, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #192. THE EXPERIENCERS: FIVE CASES OF ONBOARD UFO ENCOUNTERS. 
-  LINK: https://youtu.be/sjzF2NmWmvA                                                                    December 1, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #191. ENCOUNTERS WITH UFO OCCUPANTS: TEN TRUE CASES. LINK: https://youtu.be/JnzT1UraX10         November 24, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #190. 15 UFO CASES THAT MAKE YOU GO…HMMM… LINK: https://youtu.be/0jzF2UkmLTc                    November 17, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #189. LANDINGS, HUMANOIDS AND ONBOARD ENCOUNTERS: TEN TRUE CASES. 
-  LINK: https://youtu.be/ms8oNRBfS_M                                                                    November 10, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #188. INCREDIBLY ODD: TEN VERY STRANGE ENCOUNTERS WITH UFOS AND HUMANOIDS. 
-  LINK: https://youtu.be/PJsFy2skRFo                                                                    November 3, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #187. EXCEPTIONAL EXTRATERRESTRIAL ENCOUNTERS: TEN TRUE CASES. 
-  LINK: https://youtu.be/p6vM5DeAhXU                                                                    October 27, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #186. ALIENS, ALIENS, ALIENS! 100 YEARS OF HUMANOIDS: THIRTEEN TRUE UFO CASES. 
-  LINK: https://youtu.be/svMFTEgkID0                                                                    October 20, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #185. MORE STRANGE HUMANOIDS: 15 TRUE CASES. LINK: https://youtu.be/WYjSO_yX5VE                 October 13, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #184. TEN TRULY STRANGE UFO ENCOUNTERS. LINK: https://youtu.be/esqDGlMC7aM                      October 6, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #183. IF YOU CALL THEM, THEY WILL COME: THREE TRUE CE5 CASES WITH HUMANOIDS. 
-  LINK: https://youtu.be/eb7K6C8Y1i8                                                                    September 29, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #182. TAKEN ONBOARD A UFO: FIVE TRUE CASES. LINK: https://youtu.be/_1EFgknj5Uk                  September 22, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #181. I SAW AN ALIEN: TEN TRUE CASES. LINK: https://youtu.be/5h_y7EHVXvw                        September 15, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #180. THE FRENCH UFO WAVE OF 1954: THE HUMANOIDS. LINK: https://youtu.be/l0J7zroZ6Rk            September 8, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #179. TEN INCREDIBLE HUMANOID ENCOUNTERS. LINK: https://youtu.be/hfQFlNBJ4cA                    September 1, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #178. ELF OR ALIEN? TEN TRUE CASES. LINK: https://youtu.be/CAV-B8iMiKA                          August 25, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #177. UFOS & WEIRD ANIMAL STORIES. LINK: https://youtu.be/AOgZBQn8CVU                           August 18, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #176. THE LIGHT GATE WELCOMES EARL GRAY. LINK: https://youtu.be/U384EsT0Vkc                     August 14, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #175. FIVE AMAZING HUMANOID ENCOUNTERS. LINK: https://youtu.be/EtM9o9K5A2s                      August 11, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #174. FIVE FANTASTIC FACE-TO-FACE ENCOUNTERS WITH EXTRATERRESTRIALS. 
-  LINK: https://youtu.be/n4l1CsD9tlw                                                                    August 7, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #173. SO WEIRD! TEN TRUE UFO CASES OF EXTREME HIGH STRANGENESS. 
-  LINK: https://youtu.be/u0hjYl7hkzI                                                                    July 28, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #172. “A UFO LANDED RIGHT NEXT TO ME!”: TWELVE TRUE CASES. 
-  LINK: https://youtu.be/GvH5ghq4KIc                                                                    July 21, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #171. I SAW AN ALIEN THROUGH THE WINDOW OF A UFO: 14 TRUE CASES. 
-  LINK: https://youtu.be/2qrGRXxkG7g                                                                    July 14, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #170. THE LIGHT GATE WELCOMES DR. IRENA MCCAMMON SCOTT. LINK: https://youtu.be/WBDL80KsUW8      July 10, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #169. WHEN UFOS LAND AND HUMANOIDS COME OUT. LINK: https://youtu.be/G0arF6Tz05o                 Not available
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #168. SAVED BY ALIENS! TWELVE BENEVOLENT ENCOUNTERS. LINK: https://youtu.be/aPMjZJDOfis         June 30, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #167. “I WAS INSIDE A UFO!” TEN STRANGE TRUE CASES. LINK: https://youtu.be/0Tx7x7MseF4          June 23, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #166. BEAMED BY A UFO: TEN TRUE CASES. LINK: https://youtu.be/nSBo7DaMCf8                       June 16, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #165. WEIRD EFFECTS FROM UFOS. LINK: https://youtu.be/OgYr2rAfHFc                               June 9, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #164. EXTRAORDINARY EXTRATERRESTRIAL ENCOUNTERS: TEN TRUE CASES OF LANDINGS AND HUMANOIDS. 
-  LINK: https://youtu.be/AbWRmR0FNU0                                                                    June 2, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #163. THE LIGHT GATE WITH PRESTON DENNETT & DOLLY SAFRAN: EPISODE 5: BRIGITTE BARCLAY. 
-  LINK: https://youtu.be/oJnOtyTOZN0                                                                    May 26, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #162. ETS LOVE ALFALFA! – SIGHTINGS, LANDINGS, HUMANOIDS: 20 TRUE CASES. 
-  LINK: https://youtu.be/ePSTfxDXR-A                                                                    May 26, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #161. MORE CELEBRITY UFO ENCOUNTERS: THE LIST IS GROWING! LINK: https://youtu.be/fYfxyUHY-Ug    May 19, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #160. PHANTASMAGORICAL! TWELVE WEIRD & FREAKY UFO CASES. LINK: https://youtu.be/MN-i-ujJMQ8     May 12, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #159. “I WAS TAKEN ONBOARD A UFO!” TEN ASTONISHING TRUE CASES. 
-  LINK: https://youtu.be/WE33RZvI2jI                                                                    May 5, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #158. UFO LANDINGS & HUMANOIDS: SEVEN SPECTACULAR CASES. LINK: https://youtu.be/TL70AASWKgI     April 28, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #157. UFOS FAST & FURIOUS: UFO-CAR ENCOUNTERS. LINK: https://youtu.be/gbikOvkcUqI               April 21, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #156. BEYOND BIZARRE: EIGHT EXTRAORDINARY EXTRATERRESTRIAL ENCOUNTERS.                             
-  LINK: https://youtu.be/IxE0fQSRAeU                                                                    April 14, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #155. DO ALIENS HAVE A SENSE OF HUMOR? LINK: https://youtu.be/6U12HEsTMMk                       April 7, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #154. INTERVIEW WITH UFO EXPERIENCER AND FILMMAKER JOHN YOST.     
-  LINK: https://youtu.be/4oHyOEz6Xwo                                                                    March 31, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #153. THOSE AMAZING USOS! LINK: https://youtu.be/vMGeVhmh26k                                    March 24, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #152. INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART SIX: FLIGHT SCHOOL. 
-  LINK: https://youtu.be/jXZaPtVnuuI                                                                    March 17, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #151. UFOS OVER AIRPORTS: SIGHTINGS, LANDINGS AND HUMANOIDS. LINK: https://youtu.be/NXc5yvi2GUg March 10, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #150. TEN SHOCKING CASES OF UFO HEALINGS. LINK: https://youtu.be/IMmFg5IRjPc                    March 3, 2023
+<h3><a href="https://youtu.be/bS_7JqPxEv4">EPISODE #215. TRULY INCREDIBLE: TWELVE WEIRD HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/bS_7JqPxEv4</h5>    <h5>May 10, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #149. THOSE DAM UFOS!!! LINK: https://youtu.be/E5Z8oMehOUI                                      February 24, 2023
+<h3><a href="https://youtu.be/c_QaAdJmVaM">EPISODE #214. TEN STARTLING CASES OF HUMANOIDS AND ALIENS</a>.</h3>
+<h5>LINK: https://youtu.be/c_QaAdJmVaM</h5>           <h5>May 3, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #148. INDEPENDENCE DAY UFO ENCOUNTERS. LINK: https://youtu.be/WA-MniOYkTo                       February 17, 2023
+<h3><a href="https://youtu.be/VyoikIl8qKs">EPISODE #213. FIVE REALLY WEIRD EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/VyoikIl8qKs</h5>         <h5>April 26, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #147. “I PUNCHED A GRAY IN THE FACE!” LINK: https://youtu.be/UYKOzY6rnKQ                        February 10, 2023
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #146. CALIFORNIA UFO LANDINGS AND HUMANOIDS: TWELVE TRUE CASES. 
-  LINK: https://youtu.be/3fSdfSATLxI                                                                    January 27, 2023
+<h3><a href="https://youtu.be/53Emmv7ZHoU">EPISODE #212. STRANGE HUMANOIDS AROUND THE WORLD: TEN EYEWITNESS ACCOUNTS</a>.</h3>
+<h5>LINK: https://youtu.be/53Emmv7ZHoU</h5>                                                             <h5>April 19, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #145. ARIZONA HUMANOIDS: TEN TRUE CASES. LINK: https://youtu.be/0D2XWWn-fkg                     January 20, 2023
+<h3><a href="https://youtu.be/Y6gcstxbaDo">EPISODE #211. FIVE FASCINATING ONBOARD UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/Y6gcstxbaDo</h5>                                                             <h5>April 12, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #144. EXTRATERRESTRIAL HITCHHIKERS. LINK: https://youtu.be/tBAjYQsK1Ho                          January 13, 2023
+<h3><a href="https://youtu.be/P_BKYS32Iok">EPISODE #210. TEN TRULY STRANGE UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/P_BKYS32Iok</h5>                      <h5>April 5, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #143. INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART FIVE: GATHERING THE CHILDREN. 
-  LINK: https://youtu.be/azGrn4nMSDw                                                                    January 6, 2023
+<h3><a href="https://youtu.be/wUzW51WbFrU">EPISODE #209. ET CONTACT: TEN HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/wUzW51WbFrU</h5>                   <h5>March 29, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #142. I CRASHED INTO A UFO! LINK: https://youtu.be/Q-Ua792wFO0                                  December 30, 2022
+<h3><a href="https://youtu.be/rknpLADiWkk">EPISODE #208. ALIEN VISITATIONS: TEN CASES FROM AROUND THE WORLD</a>.</h3>
+<h5>LINK: https://youtu.be/rknpLADiWkk</h5>    <h5>March 22, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #141. HUMANOIDS AND HIGH STRANGENESS IN NEVADA: FIVE TRUE CASES. 
-  LINK: https://youtu.be/ljPzYvcZ00o                                                                    December 23, 2022
+<h3><a href="https://youtu.be/dlPLMwWQxDQ">EPISODE #207. PETER AND THE UFOS: A TRUE STORY OF CONTACT</a>.</h3>
+<h5>LINK: https://youtu.be/dlPLMwWQxDQ</h5>           <h5>March 15, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #140. DO ETS HAVE THE CURE FOR CANCER? LINK: https://youtu.be/anth_DSeBaY                       removed
+<h3><a href="https://youtu.be/qbJSnybGong">EPISODE #206. WHEN ASTRONOMERS SEE UFOS</a>.</h3>
+<h5>LINK: https://youtu.be/qbJSnybGong</h5>                             <h5>March 8, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #139. SIX STRANGE CASES OF HUMANOIDS IN NEW YORK STATE. LINK: https://youtu.be/t3se2Yi6lfE      December 9, 2022
+<h3><a href="https://youtu.be/oIKbK7rv8EI">EPISODE #205. TEN UNUSUAL EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/oIKbK7rv8EI</h5>                                                             <h5>March 1, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #138. ETS TEACH PEOPLE TO LEVITATE. LINK: https://youtu.be/C7hGChhR8c4                          December 2, 2022
+<h3><a href="https://youtu.be/G9HiW0c5JgA">EPISODE #204. TEN TRUE HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/G9HiW0c5JgA</h5>            <h5>(bearded)</h5>                               <h5>February 23, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #137. BIGFOOT IN CALIFORNIA. LINK: https://youtu.be/s2D0w_wQpRY                                 November 25, 2022
+<h3><a href="https://youtu.be/tLbLFJuSgaY">EPISODE #203 A CENTURY OF HUMANOIDS: TWELVE TRUE ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/tLbLFJuSgaY</h5>         <h5>February 16, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #136. SEVEN EXTRAORDINARY CASES OF EXTRATERRESTRIAL HEALING. LINK: https://youtu.be/iEm4Z5mzGlw November 18, 2022
+<h3><a href="https://youtu.be/K5kcAQQYrlU">EPISODE #202. EXTRATERRESTRIAL MEETINGS: FIVE TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/K5kcAQQYrlU</h5>            <h5>February 9, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #135. “TAKE ME TO YOUR LEADER.” LINK: https://youtu.be/pzLjKiNSGGQ                              November 4, 2022
+<h3><a href="https://youtu.be/srKIwmkxGZ0">EPISODE #201. IN THE PRESENCE OF EXTRATERRESTRIALS: TEN TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/srKIwmkxGZ0</h5>                                                             <h5>February 2, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #134. THE ET FERTILIZER CONNECTION. LINK: https://youtu.be/eHqCg6q0i8E                          November 4, 2022
+<h3><a href="https://youtu.be/m4hESDDIm5o">EPISODE #200. CLOSE ENCOUNTERS OF THE FOURTH KIND: 
+FIVE TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/m4hESDDIm5o</h5>                                                             <h5>January 26, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #133. INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART FOUR: WORLDS I HAVE SEEN. 
-  LINK: https://youtu.be/_glo48R7CDc                                                                    October 28, 2022
+<h3><a href="https://youtu.be/kamv9uX0qAI">EPISODE #199. WEIRD WATER UFO ENCOUNTERS: 
+TWELVE TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/kamv9uX0qAI</h5>                                                             <h5>January 19, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #132. UFO CAR-LIFT CASES. LINK: https://youtu.be/W_vS_8MB9mg                                    October 21, 2022
+<h3><a href="https://youtu.be/e8R1j4N_760">EPISODE #198. EXTRAORDINARY HUMANOIDS: 
+TEN TRUE ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/e8R1j4N_760</h5>                                                             <h5>January 12, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #131. THREE REALLY CREEPY GHOST STORIES. LINK: https://youtu.be/ZtV-fjpb3EE                     October 14, 2022
+<h3><a href="https://youtu.be/_eNykzlYabw">EPISODE #197. UNDENIABLE: FIVE TRUE UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/_eNykzlYabw</h5>                                                             <h5>December 29, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #130. 50 EYEWITNESS DRAWINGS OF UFOS. LINK: https://youtu.be/MC_ldvjQKHs                        October 7, 2022
+<h3><a href="https://youtu.be/uCPDKe240OM">EPISODE #196. EXTRATERRESTRIAL RENDEZVOUS: 
+FIVE AMAZING ONBOARD UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/uCPDKe240OM</h5>                                                             <h5>December 22, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #129. THREE INCREDIBLE CASES OF KIDS CONTACTING UFO CRAFT. LINK: https://youtu.be/iND9UoufHxE   September 30, 2022
+<h3><a href="https://youtu.be/DWlSoYELCpE">EPISODE #195. 
+REALLY STRANGE UFO ENCOUNTERS: TWELVE TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/DWlSoYELCpE</h5>                                                             <h5>December xx, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #128. ET E.R. – FIVE TRUE CASES OF EXTRATERRESTRIAL HEALING. LINK: https://youtu.be/eiUWOR_Nrgk September 23, 2022
+<h3><a href="https://youtu.be/P2rRaXxHbbk">EPISODE #194. AMAZING ALIEN ENCOUNTERS: TEN TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/P2rRaXxHbbk</h5>                                                             <h5>December 15, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #127. THE WHITE WITCH & GHOSTS OF THE INDIAN BURIAL GROUND. LINK: https://youtu.be/WVNJ7HNw9Og  September 16, 2022
+<h3><a href="https://youtu.be/_O9MFxki5jw">EPISODE #193. THE HUMANOIDS: 
+TWELVE TRUE CASES OF FACE-TO-FACE CONTACT WITH HUMANOIDS</a>.</h3>
+<h5>LINK: https://youtu.be/_O9MFxki5jw</h5>                                                             <h5>December 8, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #126. INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART THREE: EXTRATERRESTRIALS I HAVE MET. 
-  LINK: https://youtu.be/w1m2MyW7We8                                                                    September 9, 2022
+<h3><a href="https://youtu.be/sjzF2NmWmvA">EPISODE #192. 
+THE EXPERIENCERS: FIVE CASES OF ONBOARD UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/sjzF2NmWmvA</h5>                                                             <h5>December 1, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #125. SEVEN UFO LANDING CASES. LINK: https://youtu.be/4GiJ78ogpdY                               September 2, 2022
+<h3><a href="https://youtu.be/JnzT1UraX10">EPISODE #191. 
+ENCOUNTERS WITH UFO OCCUPANTS: TEN TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/JnzT1UraX10</h5>                                                             <h5>November 24, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-6,471 views  Sep 2, 2022
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/0jzF2UkmLTc">EPISODE #190. 
+15 UFO CASES THAT MAKE YOU GO…HMMM…</a></h3>
+<h5>LINK: https://youtu.be/0jzF2UkmLTc</h5>                                                             <h5>November 17, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/ms8oNRBfS_M">EPISODE #189. 
+LANDINGS, HUMANOIDS AND ONBOARD ENCOUNTERS: TEN TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/ms8oNRBfS_M</h5>                                                             <h5>November 10, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/PJsFy2skRFo">EPISODE #188. INCREDIBLY ODD: 
+TEN VERY STRANGE ENCOUNTERS WITH UFOS AND HUMANOIDS</a>.</h3>
+<h5>LINK: https://youtu.be/PJsFy2skRFo</h5>                                                             <h5>November 3, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/p6vM5DeAhXU">EPISODE #187. 
+EXCEPTIONAL EXTRATERRESTRIAL ENCOUNTERS: TEN TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/p6vM5DeAhXU</h5>                                                             <h5>October 27, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/svMFTEgkID0">EPISODE #186. ALIENS, ALIENS, ALIENS! 100 YEARS OF HUMANOIDS: 
+THIRTEEN TRUE UFO CASES</a>.</h3>
+<h5>LINK: https://youtu.be/svMFTEgkID0</h5>                                                             <h5>October 20, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/WYjSO_yX5VE">EPISODE #185. MORE STRANGE HUMANOIDS: 15 TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/WYjSO_yX5VE</h5>                                                             <h5>October 13, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/esqDGlMC7aM">EPISODE #184. TEN TRULY STRANGE UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/esqDGlMC7aM</h5>                                                             <h5>October 6, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/eb7K6C8Y1i8">EPISODE #183. IF YOU CALL THEM, THEY WILL COME: 
+THREE TRUE CE5 CASES WITH HUMANOIDS</a>.</h3>
+<h5>LINK: https://youtu.be/eb7K6C8Y1i8</h5>                                                             <h5>September 29, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/_1EFgknj5Uk">EPISODE #182. TAKEN ONBOARD A UFO: FIVE TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/_1EFgknj5Uk</h5>                  <h5>September 22, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/5h_y7EHVXvw">EPISODE #181. I SAW AN ALIEN: TEN TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/5h_y7EHVXvw</h5>                        <h5>September 15, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/l0J7zroZ6Rk">EPISODE #180. THE FRENCH UFO WAVE OF 1954: THE HUMANOIDS</a>.</h3>
+<h5>LINK: https://youtu.be/l0J7zroZ6Rk</h5>            <h5>September 8, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/hfQFlNBJ4cA">EPISODE #179. TEN INCREDIBLE HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/hfQFlNBJ4cA</h5>                    <h5>September 1, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/CAV-B8iMiKA">EPISODE #178. ELF OR ALIEN? TEN TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/CAV-B8iMiKA</h5>                          <h5>August 25, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/AOgZBQn8CVU">EPISODE #177. UFOS & WEIRD ANIMAL STORIES</a>.</h3>
+<h5>LINK: https://youtu.be/AOgZBQn8CVU</h5>                           <h5>August 18, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/U384EsT0Vkc">EPISODE #176. THE LIGHT GATE WELCOMES EARL GRAY</a>.</h3>
+<h5>LINK: https://youtu.be/U384EsT0Vkc</h5>                     <h5>August 14, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/EtM9o9K5A2s">EPISODE #175. FIVE AMAZING HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/EtM9o9K5A2s</h5>                      <h5>August 11, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/n4l1CsD9tlw">EPISODE #174. FIVE FANTASTIC FACE-TO-FACE ENCOUNTERS WITH EXTRATERRESTRIALS</a>.</h3>
+<h5>LINK: https://youtu.be/n4l1CsD9tlw</h5>                                                             <h5>August 7, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/u0hjYl7hkzI">EPISODE #173. SO WEIRD! 
+TEN TRUE UFO CASES OF EXTREME HIGH STRANGENESS</a>.</h3>
+<h5>LINK: https://youtu.be/u0hjYl7hkzI</h5>                                                                    <h5>July 28, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/GvH5ghq4KIc">EPISODE #172. “A UFO LANDED RIGHT NEXT TO ME!”: 
+TWELVE TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/GvH5ghq4KIc</h5>                                                                    <h5>July 21, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/2qrGRXxkG7g">EPISODE #171. I SAW AN ALIEN THROUGH THE WINDOW OF A UFO: 14 TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/2qrGRXxkG7g</h5>                                                                    <h5>July 14, 2023
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/WBDL80KsUW8">EPISODE #170. THE LIGHT GATE WELCOMES DR. IRENA MCCAMMON SCOTT</a>.</h3>
+<h5>LINK: https://youtu.be/WBDL80KsUW8</h5>      <h5>July 10, 2023
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/G0arF6Tz05o">EPISODE #169. WHEN UFOS LAND AND HUMANOIDS COME OUT</a>.</h3>
+<h5>LINK: https://youtu.be/G0arF6Tz05o</h5>                 <h5>Not available</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/aPMjZJDOfis">EPISODE #168. 
+SAVED BY ALIENS! TWELVE BENEVOLENT ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/aPMjZJDOfis</h5>         <h5>June 30, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/0Tx7x7MseF4">EPISODE #167. “I WAS INSIDE A UFO!” TEN STRANGE TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/0Tx7x7MseF4</h5>          <h5>June 23, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/nSBo7DaMCf8">EPISODE #166. BEAMED BY A UFO: TEN TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/nSBo7DaMCf8</h5>                                                             <h5>June 16, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/OgYr2rAfHFc">EPISODE #165. WEIRD EFFECTS FROM UFOS</a>.</h3>
+<h5>LINK: https://youtu.be/OgYr2rAfHFc</h5>                                                             <h5>June 9, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/AbWRmR0FNU0">EPISODE #164. EXTRAORDINARY EXTRATERRESTRIAL ENCOUNTERS: 
+TEN TRUE CASES OF LANDINGS AND HUMANOIDS</a>.</h3>
+<h5>LINK: https://youtu.be/AbWRmR0FNU0</h5>                                                             <h5>June 2, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/oJnOtyTOZN0">EPISODE #163. 
+THE LIGHT GATE WITH PRESTON DENNETT & DOLLY SAFRAN: EPISODE 5: BRIGITTE BARCLAY</a>.</h3>
+<h5>LINK: https://youtu.be/oJnOtyTOZN0</h5>                                                             <h5>May 26, 2023
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/ePSTfxDXR-A">EPISODE #162. ETS LOVE ALFALFA! – 
+SIGHTINGS, LANDINGS, HUMANOIDS: 20 TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/ePSTfxDXR-A</h5>                                                             <h5>May 26, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/fYfxyUHY-Ug">EPISODE #161. MORE CELEBRITY UFO ENCOUNTERS: 
+THE LIST IS GROWING!</a>.</h3>
+<h5>LINK: https://youtu.be/fYfxyUHY-Ug</h5>                                                             <h5>May 19, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/MN-i-ujJMQ8">EPISODE #160. PHANTASMAGORICAL! 
+TWELVE WEIRD & FREAKY UFO CASES</a>.</h3>
+<h5>LINK: https://youtu.be/MN-i-ujJMQ8</h5>                                                             <h5>May 12, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/WE33RZvI2jI">EPISODE #159. “I WAS TAKEN ONBOARD A UFO!” 
+TEN ASTONISHING TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/WE33RZvI2jI</h5>                                                             <h5>May 5, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/TL70AASWKgI">EPISODE #158. UFO LANDINGS & HUMANOIDS: 
+SEVEN SPECTACULAR CASES</a>.</h3>
+<h5>LINK: https://youtu.be/TL70AASWKgI</h5>                                                             <h5>April 28, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/gbikOvkcUqI">EPISODE #157. UFOS FAST & FURIOUS: 
+UFO-CAR ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/gbikOvkcUqI</h5>                                                             <h5>April 21, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/IxE0fQSRAeU">EPISODE #156. BEYOND BIZARRE: 
+EIGHT EXTRAORDINARY EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/IxE0fQSRAeU</h5>                                                             <h5>April 14, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/6U12HEsTMMk">EPISODE #155. DO ALIENS HAVE A SENSE OF HUMOR?</a>.</h3>
+<h5>LINK: https://youtu.be/6U12HEsTMMk</h5>                                                             <h5>April 7, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/4oHyOEz6Xwo">EPISODE #154. 
+INTERVIEW WITH UFO EXPERIENCER AND FILMMAKER JOHN YOST</a>.</h3>
+<h5>LINK: https://youtu.be/4oHyOEz6Xwo</h5>                                                             <h5>March 31, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/vMGeVhmh26k">EPISODE #153. THOSE AMAZING USOS!</a>.</h3>
+<h5>LINK: https://youtu.be/vMGeVhmh26k</h5>                                                             <h5>March 24, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/jXZaPtVnuuI">EPISODE #152. INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART SIX: 
+FLIGHT SCHOOL</a>.</h3>
+<h5>LINK: https://youtu.be/jXZaPtVnuuI</h5>                                                             <h5>March 17, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/NXc5yvi2GUg">EPISODE #151. UFOS OVER AIRPORTS: SIGHTINGS, LANDINGS AND HUMANOIDS</a>.</h3>
+<h5>LINK: https://youtu.be/NXc5yvi2GUg</h5>                                                             <h5>March 10, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/IMmFg5IRjPc">EPISODE #150. TEN SHOCKING CASES OF UFO HEALINGS</a>.</h3>
+<h5>LINK: https://youtu.be/IMmFg5IRjPc</h5>                                                             <h5>March 3, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/E5Z8oMehOUI">EPISODE #149. THOSE DAM UFOS!!!</a></h3>
+<h5>LINK: https://youtu.be/E5Z8oMehOUI</h5>                                                             <h5>February 24, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/WA-MniOYkTo">EPISODE #148. INDEPENDENCE DAY UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/WA-MniOYkTo</h5>                                                             <h5>February 17, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/UYKOzY6rnKQ">EPISODE #147. “I PUNCHED A GRAY IN THE FACE!”</a>.</h3>
+<h5>LINK: https://youtu.be/UYKOzY6rnKQ</h5>                                                             <h5>February 10, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/3fSdfSATLxI">EPISODE #146. CALIFORNIA UFO LANDINGS AND HUMANOIDS: TWELVE TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/3fSdfSATLxI</h5>                                                             <h5>January 27, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/0D2XWWn-fkg">EPISODE #145. ARIZONA HUMANOIDS: TEN TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/0D2XWWn-fkg</h5>                                                             <h5>January 20, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/tBAjYQsK1Ho">EPISODE #144. EXTRATERRESTRIAL HITCHHIKERS</a>.</h3>
+<h5>LINK: https://youtu.be/tBAjYQsK1Ho</h5>                                                             <h5>January 13, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/azGrn4nMSDw">EPISODE #143. INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART FIVE: 
+GATHERING THE CHILDREN</a>.</h3>
+<h5>LINK: https://youtu.be/azGrn4nMSDw</h5>                                                             <h5>January 6, 2023</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/Q-Ua792wFO0">EPISODE #142. I CRASHED INTO A UFO!</a></h3>
+<h5>LINK: https://youtu.be/Q-Ua792wFO0</h5>                                                             <h5>December 30, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/ljPzYvcZ00o">EPISODE #141. HUMANOIDS AND HIGH STRANGENESS IN NEVADA: FIVE TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/ljPzYvcZ00o</h5>                                                             <h5>December 23, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/anth_DSeBaY">EPISODE #140. DO ETS HAVE THE CURE FOR CANCER?</a></h3>
+<h5>LINK: https://youtu.be/anth_DSeBaY</h5>                                                             <h5>removed</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+removed by youTube.
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/t3se2Yi6lfE">EPISODE #139. SIX STRANGE CASES OF HUMANOIDS IN NEW YORK STATE</a>.</h3>
+<h5>LINK: https://youtu.be/t3se2Yi6lfE</h5>                                                             <h5>December 9, 2022
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/C7hGChhR8c4">EPISODE #138. ETS TEACH PEOPLE TO LEVITATE</a>.</h3>
+<h5>LINK: https://youtu.be/C7hGChhR8c4</h5>                                                             <h5>December 2, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/s2D0w_wQpRY">EPISODE #137. BIGFOOT IN CALIFORNIA</a>.</h3>
+<h5>LINK: https://youtu.be/s2D0w_wQpRY</h5>                                                             <h5>November 25, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/iEm4Z5mzGlw">EPISODE #136. SEVEN EXTRAORDINARY CASES OF EXTRATERRESTRIAL HEALING</a>.</h3>
+<h5>LINK: https://youtu.be/iEm4Z5mzGlw</h5>                                                             <h5>November 18, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/pzLjKiNSGGQ">EPISODE #135. “TAKE ME TO YOUR LEADER.”</a></h3>
+<h5>LINK: https://youtu.be/pzLjKiNSGGQ</h5>                                                             <h5>November 4, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/eHqCg6q0i8E">EPISODE #134. THE ET FERTILIZER CONNECTION</a>.</h3>
+<h5><a href="">LINK: https://youtu.be/eHqCg6q0i8E</h5>                                                  <h5>November 4, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/_glo48R7CDc">EPISODE #133. INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART FOUR: 
+WORLDS I HAVE SEEN</a>.</h3>
+<h5>LINK: https://youtu.be/_glo48R7CDc</h5>                                                             <h5>October 28, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/W_vS_8MB9mg">EPISODE #132. UFO CAR-LIFT CASES</a>.</h3>
+<h5>LINK: https://youtu.be/W_vS_8MB9mg</h5>                                                             <h5>October 21, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/ZtV-fjpb3EE">EPISODE #131. THREE REALLY CREEPY GHOST STORIES</a>.</h3>
+<h5>LINK: https://youtu.be/ZtV-fjpb3EE</h5>                                                             <h5>October 14, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/MC_ldvjQKHs">EPISODE #130. 50 EYEWITNESS DRAWINGS OF UFOS</a>.</h3>
+<h5>LINK: https://youtu.be/MC_ldvjQKHs</h5>                                                             <h5>October 7, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/iND9UoufHxE">EPISODE #129. 
+THREE INCREDIBLE CASES OF KIDS CONTACTING UFO CRAFT</a>.</h3>
+<h5>LINK: https://youtu.be/iND9UoufHxE</h5>                                                            <h5>September 30, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/eiUWOR_Nrgk">EPISODE #128. ET E.R. – FIVE TRUE CASES OF EXTRATERRESTRIAL HEALING</a>.</h3>
+<h5>LINK: https://youtu.be/eiUWOR_Nrgk</h5>                                                             <h5>September 23, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/WVNJ7HNw9Og">EPISODE #127. THE WHITE WITCH & GHOSTS OF THE INDIAN BURIAL GROUND</a>.</h3>
+<h5>LINK: https://youtu.be/WVNJ7HNw9Og</h5>                                                             <h5>September 16, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/w1m2MyW7We8">EPISODE #126. INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART THREE: 
+EXTRATERRESTRIALS I HAVE MET</a>.</h3>
+<h5>LINK: https://youtu.be/w1m2MyW7We8</h5>                                                             <h5>September 9, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h3><a href="https://youtu.be/4GiJ78ogpdY">EPISODE #125. SEVEN UFO LANDING CASES</a>.</h3>
+<h5>LINK: https://youtu.be/4GiJ78ogpdY</h5>                                                             <h5>September 2, 2022</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h7>6,471 views  Sep 2, 2022</h7>
 While seeing a UFO is undeniably interesting, far more compelling are cases of UFO landings. In these cases, the extraterrestrial craft are observed from a short distance, virtually removing any chance of misperception. This video presents seven cases from across the United States involving dramatic UFO landings.
 
 CASE ONE: UFO LANDING AT ELY.  On June 25, 1964, two brothers were driving from Spring Valley to the town of Ely, Nevada. At some point during the trip, they came upon an object landed directly in the center of the road. George stopped the car and attempted to walk up to the object, causing a surprising reaction from the UFO occupants.
@@ -2153,9 +2402,10 @@ LINK TO "UFOs over New Mexico": https://www.amazon.com/dp/0764339060/...
 
 LINK TO "UFOs over New York": https://www.amazon.com/dp/076432974X/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #124. CAN HUMANS WALK ON WATER? LINK: https://youtu.be/ho65PhT1OAk                              August 26, 2022
+<h3><a href="https://youtu.be/ho65PhT1OAk">EPISODE #124. CAN HUMANS WALK ON WATER?</a></h3>
+<h5>LINK: https://youtu.be/ho65PhT1OAk</h5>                                                             <h5>August 26, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-3,440 views  Aug 26, 2022
+<h7>3,440 views  Aug 26, 2022</h7>
 Jesus walking on water in the Sea of Galilee is a very well-known miraculous event. And of course, there is the account of Buddha performing the same wondrous talent. Although these men both lived thousands of years ago, their incredible feats are still remembered today. But what many people don't realize is that there are dozens of cases from many different cultures throughout history in which people have walked on water. Some of these accounts were widely viewed by outside witnesses and are surprisingly well-verified.
 
 For example, in the year 350, St. Ammon of Egypt was viewed by his disciple to float over a river.
@@ -2192,49 +2442,71 @@ These are just a few of the many cases of people who have displayed this unusual
 
 If you would like to learn more about people who have walked on water, and other accounts like it, check out my book, "Human Levitation: A True History." Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #123. THE UFO INVASION OF CALIFORNIA’S MILITARY BASES. LINK: https://youtu.be/EpHpNI9UHU4       August 19, 2022
+<h3><a href="https://youtu.be/EpHpNI9UHU4">EPISODE #123. THE UFO INVASION OF CALIFORNIA’S MILITARY BASES</a>.</h3>
+<h5>LINK: https://youtu.be/EpHpNI9UHU4</h5>                                                             <h5>August 19, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #122. A GHOST, A SPIRIT & A DEMON. LINK: https://youtu.be/_a05lTQf4tA                           August 12, 2022
+<h3><a href="https://youtu.be/_a05lTQf4tA">EPISODE #122. A GHOST, A SPIRIT & A DEMON</a>.</h3>
+<h5>LINK: https://youtu.be/_a05lTQf4tA</h5>                                                             <h5>August 12, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #121. ETS CURE KIDNEY DISEASE: TEN TRUE CASES. LINK: https://youtu.be/wzgErKIPM7A               August 5, 2022
+<h3><a href="https://youtu.be/wzgErKIPM7A">EPISODE #121. ETS CURE KIDNEY DISEASE: TEN TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/wzgErKIPM7A</h5>                                                             <h5>August 5, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #120. IS GRANDPA AN ALIEN? (AND FOUR OTHER CASES OF UFO CONTACT. 
-  LINK: https://youtu.be/NMSXgkm5R-s                                                                    July 29, 2022
+<h3><a href="https://youtu.be/NMSXgkm5R-s">EPISODE #120. IS GRANDPA AN ALIEN? (AND FOUR OTHER CASES OF UFO CONTACT. 
+<h5>LINK: https://youtu.be/NMSXgkm5R-s</h5>                                                             <h5>July 29, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-41,949 views  Jul 29, 2022
+<h7>41,949 views  Jul 29, 2022</h7>
 While UFO sightings are undeniably interesting, even more fascinating are accounts of actual contact. Missing time, face-to-face contact with ETs, onboard encounters -- these kinds of cases provide deep insights into what it's like to have an extraterrestrial experience. 
 
 This video presents five extraordinary cases of UFO contact. Each case is different and shows just how truly strange, bizarre and enlightening it can be to have a close-up encounter with beings from other worlds.
 
-CASE ONE: I DID NOT EXIST FOR A DAY
+<h4>CASE ONE: I DID NOT EXIST FOR A DAY</h4>
 In the summer of 1973, a wall street executive flew by 747 from Hawaii to his home in New York City. During the flight, he was shocked to see a metallic saucer outside the window, pacing the jet. At first, he thought it was just a simple sighting. It wasn't until he got home and received a huge shock that he realized his encounter was far more than just a sighting.
 
-CASE TWO: THE ABDUCTION OF TOM MURILLO
+<h4>CASE TWO: THE ABDUCTION OF TOM MURILLO</h4>
 One evening in 1976, New Mexico resident Tom Murillo took a drive to cool off after a family quarrel. Parking alongside a remote country road, he was approached by a strange tall figure. Moments later, he found himself being levitated inside a tube of light into a UFO craft. Inside, he was undressed, placed on a table and examined by gray ETs. But it's what they did next that left him stunned. And after being placed back in his car, Tom realized that he had just undergone the most profound and unusual experience of his life.
 
-CASE THREE: MISSING TIME IN MOUNDHOUSE
+<h4>CASE THREE: MISSING TIME IN MOUNDHOUSE</h4>
 One night in April of 1996, Paul (pseudonym), was driving to his home in Dayton, Nevada. Just after passing through the small desert town of Moundhouse, he saw a brilliant light ahead of him. Very quickly the light grew in size and landed alongside the highway, revealing itself to be an enormous saucer-shaped craft. Two tiers of windows lined the circumference. Looking through the windows, Paul saw more than a dozen strange figures looking down at him. Some were grays, but some were much stranger beings. And then they began to communicate with him, initiating an encounter that would alter the path of his life forever.
 
-CASE FOUR: CONTACT IN TONOPAH
+<h4>CASE FOUR: CONTACT IN TONOPAH</h4>
 On the evening of July 21, 2009, four friends (James, Henry, Heather and Jamie) decided to go UFO hunting in the deserts outside of Tonopah, Arizona. They had heard of recent sightings in the area and were hoping to have one themselves. Little did they realize that they were about to have a face-to-face encounter with extraterrestrials. Without warning, a gigantic triangular-shaped craft hovered overhead and then landed in front of them. A panel opened, and out stepped two strange humanoids, a short gray alien and an eight-foot-tall being. The two ETs began to communicate telepathically with the witnesses, giving them a dire warning to share with all humanity. James was able to videotape the entire encounter. After the craft departed however, the military showed up and surrounded their vehicle. Their lives, they knew, would never be the same.
 
-CASE FIVE: IS GRANDPA AN ALIEN?
-In 1955, five-year-old Marty Minetto was spending time with his grandparents in their home outside of Ault, Colorado. On April 9, Marty's grandfather approached him and asked him if he'd like to go for a walk and have a great adventure. Marty agreed. The next morning, Marty and his grandfather left the farmhouse and walked out into the remote fields by their home. To Marty's amazement, a large glowing egg-shaped craft dropped from the sky and landed in front of them. Moments later, a human-looking man stepped out and invited them both onboard. Marty's grandfather explained that it was time for Marty to learn about who his grandfather really was. So began an incredible onboard encounter during which Marty was given a tour of the craft and learned many secrets about the people inside it. It was the first of several other encounters that finally answered some of the strange mysteries surrounding his unusual grandfather.
+<h4>CASE FIVE: IS GRANDPA AN ALIEN?</h4>
+In 1955, five-year-old Marty Minetto was spending time with his grandparents in their 
+home outside of Ault, Colorado. On April 9, Marty's grandfather approached him and 
+asked him if he'd like to go for a walk and have a great adventure. Marty agreed. The 
+next morning, Marty and his grandfather left the farmhouse and walked out into the 
+remote fields by their home. To Marty's amazement, a large glowing egg-shaped craft 
+dropped from the sky and landed in front of them. Moments later, a human-looking man 
+stepped out and invited them both onboard. Marty's grandfather explained that it was 
+time for Marty to learn about who his grandfather really was. So began an incredible 
+onboard encounter during which Marty was given a tour of the craft and learned many 
+secrets about the people inside it. It was the first of several other encounters that 
+finally answered some of the strange mysteries surrounding his unusual grandfather.
 
-These five true cases of UFO contact are just a few of the many accounts that are occurring all across our planet. We are not alone in this universe. We have never been alone.
+These five true cases of UFO contact are just a few of the many accounts that are 
+occurring all across our planet. We are not alone in this universe. We have never 
+been alone.
 
-If you would like to learn more about these cases and others, check out my books, "UFOs over New York," "UFOs over New Mexico," "UFOs over Nevada," "UFOs over Arizona," and "UFOs over Colorado." Now available!
+If you would like to learn more about these cases and others, check out my books, "UFOs 
+over New York," "UFOs over New Mexico," "UFOs over Nevada," "UFOs over Arizona," and 
+"UFOs over Colorado." Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #119. FIFTY UFO PHOTOGRAPHS FROM CALIFORNIA. LINK: https://youtu.be/vCNyvu9b5E8                 July 22, 2022
+<h3><a href="https://youtu.be/vCNyvu9b5E8">EPISODE #119. FIFTY UFO PHOTOGRAPHS FROM CALIFORNIA</a>.</h3>
+<h5>LINK: https://youtu.be/vCNyvu9b5E8</h5>                                                             <h5>July 22, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-9,504 views  Jul 22, 2022
-According to the National UFO Reporting Center (NUFORC,) California has more UFO sightings than any other state in the United States. So it should come as no surprise that there are many cases involving UFO photographs. In fact, there are hundreds of incidents in which witnesses have been able to capture images of unidentified flying objects.
+<h7>9,504 views  Jul 22, 2022</h7>
+According to the National UFO Reporting Center (NUFORC,) California has more UFO 
+sightings than any other state in the United States. So it should come as no surprise 
+that there are many cases involving UFO photographs. In fact, there are hundreds of 
+incidents in which witnesses have been able to capture images of unidentified flying 
+objects.
 
 This video presents more than fifty cases of some of the best UFO photographs taken in the state of California. Many of these are multiple-witness cases with photographs that have been authenticated by UFO researchers and photographic experts. Some are well-known, while others have received almost no publicity. The majority of these photographs show solid metallic objects hovering in the sky. In some of these cases, it appears that the UFOs want to be seen, and are posing for the witnesses.
 
@@ -2242,16 +2514,19 @@ It has often been said that a picture is worth a thousand words. When it comes t
 
 With so many cases, the state of California has had a profound effect on our understanding and knowledge of the UFO phenomenon. If you would like to learn more about UFO activity in California, check out my book, "UFOs over California: A True History of Extraterrestrial Encounters in the Golden State." Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #118. THE BONY CRAB MONSTER: A TRUE STORY. LINK: https://youtu.be/pmX0alL6I8k                   July 8, 2022
+<h3><a href="https://youtu.be/pmX0alL6I8k">EPISODE #118. THE BONY CRAB MONSTER: A TRUE STORY</a>.</h3>
+<h5>LINK: https://youtu.be/pmX0alL6I8k</h5>                                                             <h5>July 8, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #117. INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART TWO: THE PHOTOGRAPHIC EVIDENCE. 
-  LINK: https://youtu.be/d8hf1j-kTzA                                                                    July 8, 2022
+<h3><a href="https://youtu.be/d8hf1j-kTzA">EPISODE #117. INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART TWO: 
+THE PHOTOGRAPHIC EVIDENCE</a>.</h3>
+<h5>LINK: https://youtu.be/d8hf1j-kTzA</h5>                                                             <h5>July 8, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #116. UFO DISPLAYS: SEVEN STRANGE CASES. LINK: https://youtu.be/_hz73wAeUKg                     July 1, 2022
+<h3><a href="https://youtu.be/_hz73wAeUKg">EPISODE #116. UFO DISPLAYS: SEVEN STRANGE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/_hz73wAeUKg</h5>                                                             <h5>July 1, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
@@ -2718,14 +2993,14 @@ EPISODE #004. NOT FROM HERE: SELECTED UFO ARTICLES VOLUME THREE. LINK: https://y
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #003. PHONE CALL FROM AN ET. LINK: https://youtu.be/N4lPUztiIWY                                 November 25, 2017
+<h3><a href="">EPISODE #003. PHONE CALL FROM AN ET. LINK: https://youtu.be/N4lPUztiIWY                                 November 25, 2017
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #002. INSIDE UFOS: TRUE ACCOUNTS OF CONTACT. LINK: https://youtu.be/3i3ffK48nc4                 October 28, 2017
+<h3><a href="">EPISODE #002. INSIDE UFOS: TRUE ACCOUNTS OF CONTACT. LINK: https://youtu.be/3i3ffK48nc4                 October 28, 2017
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #001. MINING DATA ON UFOS. LINK: https://youtu.be/X62q_xRyixs                                   August 28, 2017
+<h3><a href="">EPISODE #001. MINING DATA ON UFOS. LINK: https://youtu.be/X62q_xRyixs                                   August 28, 2017
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
