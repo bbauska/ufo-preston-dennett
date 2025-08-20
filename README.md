@@ -2442,22 +2442,26 @@ These are just a few of the many cases of people who have displayed this unusual
 
 If you would like to learn more about people who have walked on water, and other accounts like it, check out my book, "Human Levitation: A True History." Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3><a href="https://youtu.be/EpHpNI9UHU4">EPISODE #123. THE UFO INVASION OF CALIFORNIA’S MILITARY BASES</a>.</h3>
+<h3><a href="https://youtu.be/EpHpNI9UHU4">EPISODE #123. 
+THE UFO INVASION OF CALIFORNIA’S MILITARY BASES</a>.</h3>
 <h5>LINK: https://youtu.be/EpHpNI9UHU4</h5>                                                             <h5>August 19, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3><a href="https://youtu.be/_a05lTQf4tA">EPISODE #122. A GHOST, A SPIRIT & A DEMON</a>.</h3>
+<h3><a href="https://youtu.be/_a05lTQf4tA">EPISODE #122. 
+A GHOST, A SPIRIT & A DEMON</a>.</h3>
 <h5>LINK: https://youtu.be/_a05lTQf4tA</h5>                                                             <h5>August 12, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3><a href="https://youtu.be/wzgErKIPM7A">EPISODE #121. ETS CURE KIDNEY DISEASE: TEN TRUE CASES</a>.</h3>
+<h3><a href="https://youtu.be/wzgErKIPM7A">EPISODE #121. 
+ETS CURE KIDNEY DISEASE: TEN TRUE CASES</a>.</h3>
 <h5>LINK: https://youtu.be/wzgErKIPM7A</h5>                                                             <h5>August 5, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3><a href="https://youtu.be/NMSXgkm5R-s">EPISODE #120. IS GRANDPA AN ALIEN? (AND FOUR OTHER CASES OF UFO CONTACT. 
+<h3><a href="https://youtu.be/NMSXgkm5R-s">EPISODE #120. 
+IS GRANDPA AN ALIEN? (AND FOUR OTHER CASES OF UFO CONTACT. 
 <h5>LINK: https://youtu.be/NMSXgkm5R-s</h5>                                                             <h5>July 29, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h7>41,949 views  Jul 29, 2022</h7>
@@ -2498,7 +2502,8 @@ If you would like to learn more about these cases and others, check out my books
 over New York," "UFOs over New Mexico," "UFOs over Nevada," "UFOs over Arizona," and 
 "UFOs over Colorado." Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3><a href="https://youtu.be/vCNyvu9b5E8">EPISODE #119. FIFTY UFO PHOTOGRAPHS FROM CALIFORNIA</a>.</h3>
+<h3><a href="https://youtu.be/vCNyvu9b5E8">EPISODE #119. 
+FIFTY UFO PHOTOGRAPHS FROM CALIFORNIA</a>.</h3>
 <h5>LINK: https://youtu.be/vCNyvu9b5E8</h5>                                                             <h5>July 22, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h7>9,504 views  Jul 22, 2022</h7>
@@ -2530,477 +2535,585 @@ THE PHOTOGRAPHIC EVIDENCE</a>.</h3>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #115. COASTAL CALIFORNIA UFO CONTACT CLUSTER. LINK: https://youtu.be/JCF9YiOER58                June 24, 2022
+<h3><a href="">EPISODE #115. COASTAL CALIFORNIA UFO CONTACT CLUSTER</a>.</h3>
+LINK: https://youtu.be/JCF9YiOER58                June 24, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #114. NEW MEXICO UFO CRASH/RETRIEVALS. LINK: https://youtu.be/FvBcPkR4u3Y                       June 17, 2022
+<h3><a href="">EPISODE #114. NEW MEXICO UFO CRASH/RETRIEVALS</a>.</h3>
+LINK: https://youtu.be/FvBcPkR4u3Y                       June 17, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #113. INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACT PART ONE: THE AWAKENING. 
-  LINK: https://youtu.be/XnEVR9x3oaY                                                                    June 3, 2022
+<h3><a href="">EPISODE #113. INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACT PART ONE: 
+THE AWAKENING</a>.</h3>
+LINK: https://youtu.be/XnEVR9x3oaY                                                                    June 3, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #112. WHEN YOU WISH UPON A UFO (AND OTHER TOPANGA CANYON ENCOUNTERS.) 
-  LINK: https://youtu.be/bsFEzkLEUNA                                                                    May 27, 2022    
+<h3><a href="">EPISODE #112. WHEN YOU WISH UPON A UFO (AND OTHER TOPANGA CANYON ENCOUNTERS</a>.</h3>
+LINK: https://youtu.be/bsFEzkLEUNA                                                                    May 27, 2022    
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #111. 30 UFO LANDING TRACE CASES. LINK: https://youtu.be/6loDKcfLbrg                            May 20, 2022
+<h3><a href="">EPISODE #111. 30 UFO LANDING TRACE CASES</a>.</h3>
+LINK: https://youtu.be/6loDKcfLbrg                            May 20, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #110. BOATERS BEWARE! UFOS ARE TARGETING BOATERS! LINK: https://youtu.be/RR_6LCFdxlw            May 13, 2022
+<h3><a href="">EPISODE #110. BOATERS BEWARE! UFOS ARE TARGETING BOATERS!</a></h3>
+LINK: https://youtu.be/RR_6LCFdxlw            May 13, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #109. DUDLEY DELANEY’S ALIEN ENCOUNTER. LINK: https://youtu.be/d0CBPEi7jEA                      May 6, 2022
+<h3><a href="">EPISODE #109. DUDLEY DELANEY’S ALIEN ENCOUNTER</a>.</h3>
+LINK: https://youtu.be/d0CBPEi7jEA                      May 6, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #108. ALIEN BOOKS. LINK: https://youtu.be/MHHPHeYie3Q                                           April 29, 2022
+<h3><a href="">EPISODE #108. ALIEN BOOKS</a>.</h3>
+LINK: https://youtu.be/MHHPHeYie3Q                                           April 29, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #107. A GRAY ALIEN NAMED SEN. LINK: https://youtu.be/Nrdvn-jUgWU                                April 22, 2022
+<h3><a href="">EPISODE #107. A GRAY ALIEN NAMED SEN</a>.</h3>
+LINK: https://youtu.be/Nrdvn-jUgWU                                April 22, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #106. STOP! UFO! DON’T SHOOT! LINK: https://youtu.be/UKieIL7oqME                                April 15, 2022
+<h3><a href="">EPISODE #106. STOP! UFO! DON’T SHOOT!</a></h3>
+LINK: https://youtu.be/UKieIL7oqME                                April 15, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #105. THE CHATWORTH UFO EPIDEMIC. LINK: https://youtu.be/5IntqwWRrD0                            April 8, 2022
+<h3><a href="">EPISODE #105. THE CHATWORTH UFO EPIDEMIC</a>.</h3>
+LINK: https://youtu.be/5IntqwWRrD0                            April 8, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #104. ALIENS TOOK OUR BABY. LINK: https://youtu.be/rPO374q5Z6g                                  April 1, 2022
+<h3><a href="">EPISODE #104. ALIENS TOOK OUR BABY</a>.</h3>
+LINK: https://youtu.be/rPO374q5Z6g                                  April 1, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #103. THE MUDDY MAN. LINK: https://youtu.be/T-vTvMowC5I                                         March 25, 2022
+<h3><a href="">EPISODE #103. THE MUDDY MAN</a>.</h3>
+LINK: https://youtu.be/T-vTvMowC5I                                         March 25, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #102. THE ROBINSON FAMILY UFO SIEGE. LINK: https://youtu.be/zyM70NrqMtI                         March 18, 2022
+<h3><a href="">EPISODE #102. THE ROBINSON FAMILY UFO SIEGE</a>.</h3>
+LINK: https://youtu.be/zyM70NrqMtI                         March 18, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #101. GONE TO LIVE WITH THE ALIENS. LINK: https://youtu.be/OK6ld-DOp2Q                          March 11, 2022
+<h3><a href="">EPISODE #101. GONE TO LIVE WITH THE ALIENS</a>.</h3>
+LINK: https://youtu.be/OK6ld-DOp2Q                          March 11, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #100. AN ALIEN IMPLANT. LINK: https://youtu.be/oreyxXnKeF8                                      March 4, 2022
+<h3><a href="">EPISODE #100. AN ALIEN IMPLANT</a>.</h3>
+LINK: https://youtu.be/oreyxXnKeF8                                      March 4, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #099. THE CAT PEOPLE: A TRUE STORY OF UFO CONTACT. LINK: https://youtu.be/Ze_So4bNDKI           February 25, 2022
+<h3><a href="">EPISODE #099. THE CAT PEOPLE: A TRUE STORY OF UFO CONTACT</a>.</h3>
+LINK: https://youtu.be/Ze_So4bNDKI           February 25, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #098. A NINE-FOOT-TALL ET. LINK: https://youtu.be/_f5eyfTnnUA                                   February 18, 2022
+<h3><a href="">EPISODE #098. A NINE-FOOT-TALL ET</a>.</h3>
+LINK: https://youtu.be/_f5eyfTnnUA                                   February 18, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #097. ET HEART HEALINGS. LINK: https://youtu.be/z2-jEWSp20Y                                     February 11, 2022
+EPISODE #097. ET HEART HEALINGS</a>.</h3>
+LINK: https://youtu.be/z2-jEWSp20Y                                     February 11, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #096. UFOS OVER LOS ANGELES INTERNATIONAL AIRPORT. LINK: https://youtu.be/wv32X7cRFZY           February 4, 2022
+<h3><a href="">EPISODE #096. UFOS OVER LOS ANGELES INTERNATIONAL AIRPORT</a>.</h3>
+LINK: https://youtu.be/wv32X7cRFZY           February 4, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #095. THE ANCIENT ONES: THE TRUE STORY OF THE UFO CONTACTS OF DON ANDERSON. 
-  LINK: https://youtu.be/W7_wZT-U5u4                                                                    January 28, 2022
+<h3><a href="">EPISODE #095. THE ANCIENT ONES: THE TRUE STORY OF THE UFO CONTACTS OF DON ANDERSON</a>.</h3>
+LINK: https://youtu.be/W7_wZT-U5u4                                                                    January 28, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #094. TOP TWENTY UFO ENCOUNTERS IN ARIZONA: PART TWO. LINK: https://youtu.be/H6PgoM0ZuN8        January 21, 2022
+<h3><a href="">EPISODE #094. TOP TWENTY UFO ENCOUNTERS IN ARIZONA: PART TWO</a>.</h3>
+LINK: https://youtu.be/H6PgoM0ZuN8        January 21, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #093. TOP TWENTY UFO ENCOUNTERS IN ARIZONA: PART ONE. LINK: https://youtu.be/xeG0ea9UB6A        January 14, 2022
+<h3><a href="">EPISODE #093. TOP TWENTY UFO ENCOUNTERS IN ARIZONA: PART ONE</a>.</h3>
+LINK: https://youtu.be/xeG0ea9UB6A        January 14, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #092. WHAT LISA REMEMBERS. LINK: https://youtu.be/x71el01tzfU                                   January 7, 2022
+<h3><a href="">EPISODE #092. WHAT LISA REMEMBERS</a>.</h3>
+LINK: https://youtu.be/x71el01tzfU                                   January 7, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #091. THE UFOS OF BILL AND ROSE. LINK: https://youtu.be/D_tJRKKqOwg                             December 31, 2021
+<h3><a href="">EPISODE #091. THE UFOS OF BILL AND ROSE</a>.</h3>
+LINK: https://youtu.be/D_tJRKKqOwg                             December 31, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #090. THREE HOURS ONBOARD A UFO. LINK: https://youtu.be/cAQCVEWC3CM                             December 24, 2021
+<h3><a href="https://youtu.be/cAQCVEWC3CM">EPISODE #090. THREE HOURS ONBOARD A UFO</a>.</h3>
+LINK: https://youtu.be/cAQCVEWC3CM                             December 24, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #089. THE FLYING SAUCER AND THE ATLANTEAN BRACELET. LINK: https://youtu.be/TtH49ZMw4MM          December 18, 2021
+<h3><a href="https://youtu.be/TtH49ZMw4MM">EPISODE #089. THE FLYING SAUCER AND THE ATLANTEAN BRACELET</a>.</h3>
+LINK: https://youtu.be/TtH49ZMw4MM          December 18, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #088. THEY WALK AMONG US. LINK: https://youtu.be/m2St0QWmKsQ                                    December 10, 2021
+<h3><a href="https://youtu.be/m2St0QWmKsQ">EPISODE #088. THEY WALK AMONG US</a>.</h3>
+LINK: https://youtu.be/m2St0QWmKsQ                                    December 10, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #087. HOW TO FLY A UFO: AN INCREDIBLE ACCOUNT OF UFO CONTACT. 
-  LINK: https://youtu.be/5buidwwOc-4                                                                    December 3, 2021
+<h3><a href="">EPISODE #087. HOW TO FLY A UFO: 
+AN INCREDIBLE ACCOUNT OF UFO CONTACT</a>.</h3>
+LINK: https://youtu.be/5buidwwOc-4                                                                    December 3, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #086. ALIENS-R-US. LINK: https://youtu.be/wgRKTwJTEgw                                           November 26, 2021
+<h3><a href="">EPISODE #086. ALIENS-R-US</a>.</h3>
+LINK: https://youtu.be/wgRKTwJTEgw                                           November 26, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #085. STAR DAUGHTER: ONE MAN’S LIFELONG EXPERIENCES WITH EXTRATERRESTRIALS. 
-  LINK: https://youtu.be/VVvIHPO_CGI                                                                    November 19, 2021
+<h3><a href="">EPISODE #085. STAR DAUGHTER: 
+ONE MAN’S LIFELONG EXPERIENCES WITH EXTRATERRESTRIALS</a>.</h3>
+LINK: https://youtu.be/VVvIHPO_CGI                                                                    November 19, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #084. THREE BEDROOM VISITATIONS BY GRAY ALIENS. LINK: https://youtu.be/TRc_TTToNUw              November 12, 2021
+<h3><a href="">EPISODE #084. THREE BEDROOM VISITATIONS BY GRAY ALIENS</a>.</h3>
+LINK: https://youtu.be/TRc_TTToNUw              November 12, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #083. TWO SCHOOLYARD UFO ENCOUNTERS. LINK: https://youtu.be/pCZXDkozowU                         November 5, 2021
+<h3><a href="">EPISODE #083. TWO SCHOOLYARD UFO ENCOUNTERS</a>.</h3>
+LINK: https://youtu.be/pCZXDkozowU                         November 5, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #082. CAUGHT IN THE ACT! CASES OF OBSERVED UFO ABDUCTIONS. LINK: https://youtu.be/cTB44-t6jIQ   October 29, 2021
+<h3><a href="">EPISODE #082. CAUGHT IN THE ACT! CASES OF OBSERVED UFO ABDUCTIONS</a>.</h3>
+LINK: https://youtu.be/cTB44-t6jIQ   October 29, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #081. THE MALIBU ANOMALY: IS THIS AN UNDERSEA UFO BASE? LINK: https://youtu.be/Xe35bvRJNsc      October 22, 2021
+<h3><a href="">EPISODE #081. THE MALIBU ANOMALY: IS THIS AN UNDERSEA UFO BASE?</a></h3>
+LINK: https://youtu.be/Xe35bvRJNsc      October 22, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #080. HEALED BY LIGHTNING: 30 TRUE CASES (AND THE LINK TO UFO HEALINGS.) 
-  LINK: https://youtu.be/VSDv_g-bOkk                                                                    October 15, 2021
+<h3><a href="">EPISODE #080. HEALED BY LIGHTNING: 30 TRUE CASES (AND THE LINK TO UFO HEALINGS.</a>.</h3>
+LINK: https://youtu.be/VSDv_g-bOkk                                                                    October 15, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #079. GOVERNMENT UFO INSIDER. LINK: https://youtu.be/-cCZvkwf_uQ                                October 8, 2021
+<h3><a href="">EPISODE #079. GOVERNMENT UFO INSIDER</a>.</h3>
+LINK: https://youtu.be/-cCZvkwf_uQ                                October 8, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #078. MAKING FRIENDS WITH EXTRATERRESTRIALS: THE TAYLOR FOSTER STORY. 
-  LINK: https://youtu.be/W-z8WF_hs_4                                                                    October 1, 2021
+<h3><a href="">EPISODE #078. MAKING FRIENDS WITH EXTRATERRESTRIALS: THE TAYLOR FOSTER STORY</a>.</h3>
+LINK: https://youtu.be/W-z8WF_hs_4                                                                    October 1, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #077. ALIENS SYMBOLS ON THE SKIN. LINK: https://youtu.be/IZtwiyKvtT0                            September 24, 2021
+<h3><a href="">EPISODE #077. ALIENS SYMBOLS ON THE SKIN</a>.</h3>
+LINK: https://youtu.be/IZtwiyKvtT0                            September 24, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #076. THREE VERY CLOSE ENCOUNTERS. LINK: https://youtu.be/Q3YwvXMq6XM                           September 17, 2021
+<h3><a href="">EPISODE #076. THREE VERY CLOSE ENCOUNTERS</a>.</h3>
+LINK: https://youtu.be/Q3YwvXMq6XM                           September 17, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #075. SEVENTY CELEBRITIES WHO HAVE SEEN UFOS. LINK: https://youtu.be/SW5_aFkbjak                September 11, 2021
+<h3><a href="">EPISODE #075. SEVENTY CELEBRITIES WHO HAVE SEEN UFOS</a>.</h3>
+LINK: https://youtu.be/SW5_aFkbjak                September 11, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #074. THREE CASES OF MISSING TIME. LINK: https://youtu.be/FL7c8th6uGE                           September 4, 2021
+<h3><a href="">EPISODE #074. THREE CASES OF MISSING TIME</a>.</h3>
+LINK: https://youtu.be/FL7c8th6uGE                           September 4, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #073. THE SMELL OF UFOS. LINK: https://youtu.be/OsK117qRGiw                                     August 27, 2021
+<h3><a href="">EPISODE #073. THE SMELL OF UFOS</a>.</h3>
+LINK: https://youtu.be/OsK117qRGiw                                     August 27, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #072. THE NORTHRIDGE EARTHQUAKE UFO ENCOUNTER. LINK: https://youtu.be/IJ6MXBkjsac               August 21, 2021
+<h3><a href="">EPISODE #072. THE NORTHRIDGE EARTHQUAKE UFO ENCOUNTER</a>.</h3>
+LINK: https://youtu.be/IJ6MXBkjsac               August 21, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #071. UFO INVESTIGATOR’S DISEASE. LINK: https://youtu.be/QbRF7XRfAK0                            August 15, 2021
+<h3><a href="">EPISODE #071. UFO INVESTIGATOR’S DISEASE</a>.</h3>
+LINK: https://youtu.be/QbRF7XRfAK0                            August 15, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #070. TOP FIFTY UFO BOOKS. LINK: https://youtu.be/YNrFjcmSxh0                                   August 7, 2021
+<h3><a href="">EPISODE #070. TOP FIFTY UFO BOOKS</a>.</h3>
+LINK: https://youtu.be/YNrFjcmSxh0                                   August 7, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #069. TOP TWENTY UFO ENCOUNTERS IN NEW MEXICO PART TWO. LINK: https://youtu.be/9nKbuv1msAw      July 30, 2021
+<h3><a href="">EPISODE #069. TOP TWENTY UFO ENCOUNTERS IN NEW MEXICO PART TWO</a>.</h3>
+LINK: https://youtu.be/9nKbuv1msAw      July 30, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #068. TOP TWENTY UFO ENCOUNTERS IN NEW MEXICO PART ONE. LINK: https://youtu.be/jUxgBkW5avM      July 24, 2021
+<h3><a href="">EPISODE #068. TOP TWENTY UFO ENCOUNTERS IN NEW MEXICO PART ONE</a>.</h3>
+LINK: https://youtu.be/jUxgBkW5avM      July 24, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #067. THREE USO CASES WITH HUMANOIDS. LINK: https://youtu.be/tz0ul-twNCQ                        July 17, 2021
+<h3><a href="">EPISODE #067. THREE USO CASES WITH HUMANOIDS</a>.</h3>
+LINK: https://youtu.be/tz0ul-twNCQ                        July 17, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #066. OUT OF BODY EXPLORING: MY OWN EXPERIENCES WITH ASTRAL PROJECTION. 
-  LINK: https://youtu.be/RdbArYvBWCI                                                                    July 11, 2021
+<h3><a href="">EPISODE #066. OUT OF BODY EXPLORING: MY OWN EXPERIENCES WITH ASTRAL PROJECTION</a>.</h3>
+LINK: https://youtu.be/RdbArYvBWCI                                                                    July 11, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #065. THREE ENCOUNTERS WITH STRANGE HUMANOIDS. LINK: https://youtu.be/izsJQ3-q8z0               July 5, 2021
+<h3><a href="">EPISODE #065. THREE ENCOUNTERS WITH STRANGE HUMANOIDS</a>.</h3>
+LINK: https://youtu.be/izsJQ3-q8z0               July 5, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #064. THREE ENCOUNTERS WITH PRAYING MANTIS ALIENS. LINK: https://youtu.be/px6NUAlWuXM           June 27, 2021
+<h3><a href="">EPISODE #064. THREE ENCOUNTERS WITH PRAYING MANTIS ALIENS</a>.</h3>
+LINK: https://youtu.be/px6NUAlWuXM           June 27, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #063. MALMSTROM: A NEW WITNESS SPEAKS. LINK: https://youtu.be/KKdQECldrFQ                       June 20, 2021
+<h3><a href="">EPISODE #063. MALMSTROM: A NEW WITNESS SPEAKS</a>.</h3>
+LINK: https://youtu.be/KKdQECldrFQ                       June 20, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #062. CONVERSATION WITH AN EXTRATERRESTRIAL WALK-IN. LINK: https://youtu.be/rcCQyxi0vew         June 4, 2021
+<h3><a href="">EPISODE #062. CONVERSATION WITH AN EXTRATERRESTRIAL WALK-IN</a>.</h3>
+LINK: https://youtu.be/rcCQyxi0vew         June 4, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #061. UNIDENTIFIED SUBMERSIBLE OBJECTS: FIVE USO CASES WITH HIGH STRANGENESS. 
-  LINK: https://youtu.be/ebTY2NQVLgs                                                                    May 31, 2021
+<h3><a href="https://youtu.be/ebTY2NQVLgs">EPISODE #061. 
+UNIDENTIFIED SUBMERSIBLE OBJECTS: 
+FIVE USO CASES WITH HIGH STRANGENESS</a>.</h3>
+LINK: https://youtu.be/ebTY2NQVLgs                                                                    May 31, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #060. THE UFO INVASION OF EDWARDS AIR FORCE BASE. LINK: https://youtu.be/z4otrkUXv9Y            May 22, 2021
+<h3><a href="https://youtu.be/z4otrkUXv9Y">EPISODE #060. 
+THE UFO INVASION OF EDWARDS AIR FORCE BASE</a>.</h3>
+LINK: https://youtu.be/z4otrkUXv9Y            May 22, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #059. CALIFORNIA LAKE MONSTERS AND SEA SERPENTS. LINK: https://youtu.be/l9GCdmq5Bmw             May 16, 2021
+<h3><a href="https://youtu.be/l9GCdmq5Bmw">EPISODE #059. 
+CALIFORNIA LAKE MONSTERS AND SEA SERPENTS</a>.</h3>
+LINK: https://youtu.be/l9GCdmq5Bmw             May 16, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #058. CAN WE CONTACT UFOS WITH THE OUIJA BOARD? LINK: https://youtu.be/LcclBQOYyPw              May 9, 2021
+<h3><a href="https://youtu.be/LcclBQOYyPw">EPISODE #058. CAN WE CONTACT UFOS WITH THE OUIJA BOARD?</a></h3>
+LINK: https://youtu.be/LcclBQOYyPw              May 9, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #057. GARY VERSUS THE GRAYS. LINK: https://youtu.be/NkB02cN-qEE                                 May 1, 2021
+<h3><a href="">EPISODE #057. GARY VERSUS THE GRAYS</a>.</h3>
+LINK: https://youtu.be/NkB02cN-qEE                                 May 1, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #056. TOP TWENTY CASES OF HUMAN LEVITATION PART TWO. LINK: https://youtu.be/dpQQ8AXYHm4         April 24, 2021
+<h3><a href="">EPISODE #056. TOP TWENTY CASES OF HUMAN LEVITATION PART TWO</a>.</h3>
+LINK: https://youtu.be/dpQQ8AXYHm4         April 24, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #055. TOP TWENTY CASES OF HUMAN LEVITATION PART ONE. LINK: https://youtu.be/0M3fmxOAXDg         April 18, 2021
+<h3><a href="">EPISODE #055. TOP TWENTY CASES OF HUMAN LEVITATION PART ONE</a>.</h3>
+LINK: https://youtu.be/0M3fmxOAXDg         April 18, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #054. BE CAREFUL WHAT YOU WISH FOR: THE PAT BROWN STORY. LINK: https://youtu.be/MtDA3NwG-iA     April 11, 2021
+<h3><a href="">EPISODE #054. BE CAREFUL WHAT YOU WISH FOR: THE PAT BROWN STORY</a>.</h3>
+LINK: https://youtu.be/MtDA3NwG-iA     April 11, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #053. CONVERSATIONS WITH EXTRATERRESTRIALS. LINK: https://youtu.be/ZwHprH7R_sg                  April 4, 2021
+<h3><a href="">EPISODE #053. CONVERSATIONS WITH EXTRATERRESTRIALS</a>.</h3>
+LINK: https://youtu.be/ZwHprH7R_sg                  April 4, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #052. TEN STRANGE UFO SIGHTINGS. LINK: https://youtu.be/-RlTQ9APYPQ                             May 27, 2021
+<h3><a href="">EPISODE #052. TEN STRANGE UFO SIGHTINGS</a>.</h3>
+LINK: https://youtu.be/-RlTQ9APYPQ                             May 27, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #051. EIGHT TRUE CASES OF ANIMALS HEALED BY ALIENS. LINK: https://youtu.be/MhL4RWQoo_A          March 21, 2021
+<h3><a href="">EPISODE #051. EIGHT TRUE CASES OF ANIMALS HEALED BY ALIENS</a>.</h3>
+LINK: https://youtu.be/MhL4RWQoo_A          March 21, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #050. UFOS AT THE DRIVE-IN. LINK: https://youtu.be/LKzbMsGAq6g                                  March 14, 2021
+<h3><a href="">EPISODE #050. UFOS AT THE DRIVE-IN</a>.</h3>
+LINK: https://youtu.be/LKzbMsGAq6g                                  March 14, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #049. FOUR ENCOUNTERS WITH GRAY ALIENS. LINK: https://youtu.be/fgtNf5MkRg0                      March 6, 2021
+<h3><a href="">EPISODE #049. FOUR ENCOUNTERS WITH GRAY ALIENS</a>.</h3>
+LINK: https://youtu.be/fgtNf5MkRg0                      March 6, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #048. CALIFORNIA UFO CRASH/RETRIEVALS. LINK: https://youtu.be/FoeJGmHOqYw                       February 21, 2021
+<h3><a href="">EPISODE #048. CALIFORNIA UFO CRASH/RETRIEVALS</a>.</h3>
+LINK: https://youtu.be/FoeJGmHOqYw                       February 21, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #047. UFO ENCOUNTER AT BLACKJACK CAMPGROUND. LINK: https://youtu.be/N7uL7571w6o                 February 12, 2021
+<h3><a href="">EPISODE #047. UFO ENCOUNTER AT BLACKJACK CAMPGROUND</a>.</h3>
+LINK: https://youtu.be/N7uL7571w6o                 February 12, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #046. SEE A UFO – LOSE YOUR JOB. LINK: https://youtu.be/UQxe1poHkTI                             February 5, 2021
+<h3><a href="">EPISODE #046. SEE A UFO – LOSE YOUR JOB</a>.</h3>
+LINK: https://youtu.be/UQxe1poHkTI                             February 5, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #045. THE MYSTERY OF ANGEL HAIR. LINK: https://youtu.be/UqBReR60KOY                             January 30, 2021
+<h3><a href="">EPISODE #045. THE MYSTERY OF ANGEL HAIR</a>.</h3>
+LINK: https://youtu.be/UqBReR60KOY                             January 30, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #044. EYE DOCTORS FROM OUTER SPACE. LINK: https://youtu.be/w4DhJrM8Afw                          January 23, 2021
+<h3><a href="">EPISODE #044. EYE DOCTORS FROM OUTER SPACE</a>.</h3>
+LINK: https://youtu.be/w4DhJrM8Afw                          January 23, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #043. IS JESUS AN ALIEN? LINK: https://youtu.be/m5RJ4DvTL_4                                     January 17, 2021
+<h3><a href="">EPISODE #043. IS JESUS AN ALIEN?</a></h3>
+LINK: https://youtu.be/m5RJ4DvTL_4                                     January 17, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #042. IS BIGFOOT AN ALIEN? LINK: https://youtu.be/MyqF8pKgrTw                                   January 10, 2021
+<h3><a href="">EPISODE #042. IS BIGFOOT AN ALIEN?</a></h3>
+LINK: https://youtu.be/MyqF8pKgrTw                                   January 10, 2021
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #041. TOP TWENTY UFO ENCOUNTERS IN COLORADO. LINK: https://youtu.be/GeRPsOi0dqw                 January 3, 2021
+<h3><a href="https://youtu.be/GeRPsOi0dqw">EPISODE #041. TOP TWENTY UFO ENCOUNTERS IN COLORADO</a>.</h3>
+<h5>LINK: https://youtu.be/GeRPsOi0dqw</h5>                 <h5>January 3, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #040. UFOS OVER CATALINA ISLAND: THREE BOY SCOUT UFO ENCOUNTERS. 
-  LINK: https://youtu.be/IvPF8q85FuI                                                                    December 20, 2020
+<h3><a href="">EPISODE #040. UFOS OVER CATALINA ISLAND: THREE BOY SCOUT UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/IvPF8q85FuI</h5>                                                             <h5>December 20, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #039. UFO INCIDENT ON THE USS VALLEY FORGE. LINK: https://youtu.be/IJzauxGNQys                  December 13, 2020
+<h3><a href="">EPISODE #039. UFO INCIDENT ON THE USS VALLEY FORGE</a>.</h3>
+<h5>LINK: https://youtu.be/IJzauxGNQys</h5>                                                             <h5>December 13, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #038. UFOS AND SPIRITUALITY: SEVEN STRANGE CASES. LINK: https://youtu.be/RT2ah0H15mo            December 6, 2020
+<h3><a href="">EPISODE #038. UFOS AND SPIRITUALITY: SEVEN STRANGE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/RT2ah0H15mo</h5>            <h5>December 6, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #037. THE INCREDIBLE SHRINKING UFO ABDUCTEE. LINK: https://youtu.be/H0F20a43oQE                 November 28, 2020
+<h3><a href="">EPISODE #037. THE INCREDIBLE SHRINKING UFO ABDUCTEE</a>.</h3>
+<h5>LINK: https://youtu.be/H0F20a43oQE</h5>                 <h5>November 28, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #036. TOP 20 UFO CASES IN NEW YORK. LINK: https://youtu.be/2v2R_c0mhpc                          November 23, 2020
+<h3><a href="">EPISODE #036. TOP 20 UFO CASES IN NEW YORK</a>.</h3>
+LINK: https://youtu.be/2v2R_c0mhpc                          November 23, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #035. UFO INCIDENT ON THE USS CLAMAGORE. LINK: https://youtu.be/wzDvWxestJc                     November 14, 2020
+<h3><a href="">EPISODE #035. UFO INCIDENT ON THE USS CLAMAGORE</a>.</h3>
+LINK: https://youtu.be/wzDvWxestJc                     November 14, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #034. THE TRUTH BEHIND ALIEN ANAL PROBES. LINK: https://youtu.be/Qvib2bpiwgQ                    November 7, 2020
+<h3><a href="">EPISODE #034. THE TRUTH BEHIND ALIEN ANAL PROBES</a>.</h3>
+LINK: https://youtu.be/Qvib2bpiwgQ                    November 7, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #033. ANDY’S UFO ABDUCTION. LINK: https://youtu.be/pYagAn5pcsU                                  October 31, 2020
+<h3><a href="">EPISODE #033. ANDY’S UFO ABDUCTION</a>.</h3>
+LINK: https://youtu.be/pYagAn5pcsU                                  October 31, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #032. TOP TWENTY UFO ENCOUNTERS IN NEVADA. LINK: https://youtu.be/6crttnXpQAM                   October 25, 2020
+<h3><a href="">EPISODE #032. TOP TWENTY UFO ENCOUNTERS IN NEVADA</a>.</h3>
+LINK: https://youtu.be/6crttnXpQAM                   October 25, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #031. FORGETTING UFOS: THREE CASES WITH AMNESIA. LINK: https://youtu.be/Mu-f0RA2ves             October 17, 2020
+<h3><a href="">EPISODE #031. FORGETTING UFOS: THREE CASES WITH AMNESIA</a>.</h3>
+LINK: https://youtu.be/Mu-f0RA2ves             October 17, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #030. THE CORONADO ISLAND UFO INCIDENT. LINK: https://youtu.be/zTG_m1qb4W8                      October 10, 2020
+<h3><a href="">EPISODE #030. THE CORONADO ISLAND UFO INCIDENT</a>.</h3>
+LINK: https://youtu.be/zTG_m1qb4W8                      October 10, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #029. THE ALIEN CLOWN CONNECTION. LINK: https://youtu.be/sK0MoOAvlYM                            October 3, 2020
+<h3><a href="">EPISODE #029. THE ALIEN CLOWN CONNECTION</a>.</h3>
+LINK: https://youtu.be/sK0MoOAvlYM                            October 3, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #028. RESCUED BY EXTRATERRESTRIALS. LINK: https://youtu.be/sAVZ4b02ETw                          September 5, 2020
+<h3><a href="">EPISODE #028. RESCUED BY EXTRATERRESTRIALS</a>.</h3>
+LINK: https://youtu.be/sAVZ4b02ETw                          September 5, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #027. EXTRATERRESTRIAL MINERS. LINK: https://youtu.be/EY_sqB1qISg                               September 19, 2020
+<h3><a href="">EPISODE #027. EXTRATERRESTRIAL MINERS</a>.</h3>
+LINK: https://youtu.be/EY_sqB1qISg                               September 19, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #026. ALIEN ZOOS. LINK: https://youtu.be/u19vMBjTAK8                                            September 5, 2020
+<h3><a href="">EPISODE #026. ALIEN ZOOS</a>.</h3>
+LINK: https://youtu.be/u19vMBjTAK8                                            September 5, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #025. EXTRATERRESTRIAL GARDENERS. LINK: https://youtu.be/Xq2TqLhGRnA                            August 28, 2020
+<h3><a href="">EPISODE #025. EXTRATERRESTRIAL GARDENERS</a>.</h3>
+LINK: https://youtu.be/Xq2TqLhGRnA                            August 28, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #024. ONE WEEK IN NOVEMBER. LINK: https://youtu.be/WXxCtk5y5Pg                                  August 22, 2020
+<h3><a href="">EPISODE #024. ONE WEEK IN NOVEMBER</a>.</h3>
+LINK: https://youtu.be/WXxCtk5y5Pg                                  August 22, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #023. UFOS AND ROCKETS: SOMEONE IS WATCHING US. LINK: https://youtu.be/f13Ofb2IMvo              August 16, 2020
+<h3><a href="">EPISODE #023. UFOS AND ROCKETS: SOMEONE IS WATCHING US</a>.</h3>
+LINK: https://youtu.be/f13Ofb2IMvo              August 16, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #022: TOP TWENTY UFO HEALING CASES: LINK: https://www.youtube.com/watch?v=96_zqBA-JeI&t=1859s   August 8, 2020
+<h3><a href="">EPISODE #022: TOP TWENTY UFO HEALING CASES:</a></h3>
+LINK: https://www.youtube.com/watch?v=96_zqBA-JeI&t=1859s   August 8, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #021. UFOS OVER PRISONS. LINK: https://youtu.be/tgdcxaY10zo                                     August 1, 2020
+<h3><a href="">EPISODE #021. UFOS OVER PRISONS</a>.</h3>
+LINK: https://youtu.be/tgdcxaY10zo                                     August 1, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #020. NIGHT OF THE UFOS. LINK: https://youtu.be/ybm2Z1f1oPg                                     July 25, 2020
+<h3><a href="">EPISODE #020. NIGHT OF THE UFOS</a>.</h3>
+LINK: https://youtu.be/ybm2Z1f1oPg                                     July 25, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #019. THE UFO BREATHING POOL. LINK: https://youtu.be/Hsn4vI9auDA                                July 18, 2020
+<h3><a href="">EPISODE #019. THE UFO BREATHING POOL</a>.</h3>
+LINK: https://youtu.be/Hsn4vI9auDA                                July 18, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #018. ALIEN DRINKS. LINK: https://youtu.be/EM0CV-PWIDI                                          July 12, 2020
+<h3><a href="">EPISODE #018. ALIEN DRINKS</a>.</h3>
+LINK: https://youtu.be/EM0CV-PWIDI                                          July 12, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #017. SCHOOLYARD UFO ENCOUNTERS, PART TWO: LANDINGS & HUMANOIDS. 
-  LINK: https://youtu.be/JkHtvP08kK0                                                                    June 28, 2020
+<h3><a href="">EPISODE #017. SCHOOLYARD UFO ENCOUNTERS, PART TWO: LANDINGS & HUMANOIDS</a>.</h3>
+LINK: https://youtu.be/JkHtvP08kK0                                                                    June 28, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #016. SCHOOLYARD UFO ENCOUNTERS, PART ONE: SIGHTINGS. LINK: https://youtu.be/-yXw0jpPMtU        June 28, 2020
+EPISODE #016. S<h3><a href="">CHOOLYARD UFO ENCOUNTERS, PART ONE: SIGHTINGS</a>.</h3>
+LINK: https://youtu.be/-yXw0jpPMtU        June 28, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #015. ALIEN GIFTS. LINK: https://youtu.be/bqmTEqpSjlI                                           June 19, 2020
+<h3><a href="">EPISODE #015. ALIEN GIFTS</a>.</h3>
+LINK: https://youtu.be/bqmTEqpSjlI                                           June 19, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #014. ALIEN GRAVE ROBBERS. LINK: https://youtu.be/okHljTgChWo                                   Jun 9, 2020
+<h3><a href="">EPISODE #014. ALIEN GRAVE ROBBERS</a>.</h3>
+LINK: https://youtu.be/okHljTgChWo                                   Jun 9, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #013. 25 UFO RESEARCHERS WHO HAVE REPORTED UFO HEALING CASES. 
-  LINK: https://youtu.be/Q0GyqXn7M6Y                                                                    May 30, 2020
+<h3><a href="">EPISODE #013. 25 UFO RESEARCHERS WHO HAVE REPORTED UFO HEALING CASES</a>.</h3>
+LINK: https://youtu.be/Q0GyqXn7M6Y                                                                    May 30, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #012. ETS TEACH PEOPLE HOW TO BUILD ENERGY FREE MOTORS. LINK: https://youtu.be/wjR5JJNdLNM      May 23, 2020
+<h3><a href="">EPISODE #012. ETS TEACH PEOPLE HOW TO BUILD ENERGY FREE MOTORS</a>.</h3>
+LINK: https://youtu.be/wjR5JJNdLNM      May 23, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #011. NATIVE AMERICAN ENCOUNTER WITH THE STAR PEOPLE: THE INCREDIBLE UFO CONTACT CASE OF STAN HUGHES. 
-  LINK: https://youtu.be/filO_85ia4c                                                                    May 17, 2020
+<h3><a href="">EPISODE #011. NATIVE AMERICAN ENCOUNTER WITH THE STAR PEOPLE: 
+THE INCREDIBLE UFO CONTACT CASE OF STAN HUGHES</a>.</h3>
+LINK: https://youtu.be/filO_85ia4c                                                                    May 17, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #010. ARE REPTILIAN HUMANOIDS WORKING WITH THE UNITED STATES MILITARY? 
-  LINK: https://youtu.be/RZRE6IzYSVA                                                                    May 3, 2020
+<h3><a href="">EPISODE #010. ARE REPTILIAN HUMANOIDS WORKING WITH THE UNITED STATES MILITARY?</a></h3>
+LINK: https://youtu.be/RZRE6IzYSVA                                                                    May 3, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #009. ALIENS SAVE THE LIVES OF THOUSANDS AFTER VOLCANIC ERUPTION. 
-  LINK: https://youtu.be/8JKLqBBnR5w                                                                    April 14, 2020
+<h3><a href="">EPISODE #009. ALIENS SAVE THE LIVES OF THOUSANDS AFTER VOLCANIC ERUPTION</a>.</h3>
+LINK: https://youtu.be/8JKLqBBnR5w                                                                    April 14, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #008. ONBOARD UFO ENCOUNTERS. LINK: https://youtu.be/GMT1VNwF0d4                                April 1, 2020
+<h3><a href="">EPISODE #008. ONBOARD UFO ENCOUNTERS</a>.</h3>
+LINK: https://youtu.be/GMT1VNwF0d4                                April 1, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #007. 10 CASES OF ALIENS CURING COLDS, FLU AND PNEUMONIA. LINK: https://youtu.be/Fp0yhjvMgG8    March 25, 2020
+<h3><a href="">EPISODE #007. 10 CASES OF ALIENS CURING COLDS, FLU AND PNEUMONIA</a>.</h3>
+LINK: https://youtu.be/Fp0yhjvMgG8    March 25, 2020
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #006. UNDERSEA UFO BASE: A RARE HUMANOID CASE. LINK: https://youtu.be/qyXVqNPMQT8               December 28, 2019
+<h3><a href="">EPISODE #006. UNDERSEA UFO BASE: A RARE HUMANOID CASE</a>.</h3>
+LINK: https://youtu.be/qyXVqNPMQT8               December 28, 2019
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #005. THE MOST WIDELY VIEWED SCHOOLYARD UFO ENCOUNTERS. LINK: https://youtu.be/PMG9VT0OL7o      October 26, 2019
+<h3><a href="">EPISODE #005. THE MOST WIDELY VIEWED SCHOOLYARD UFO ENCOUNTERS</a>.</h3>
+LINK: https://youtu.be/PMG9VT0OL7o      October 26, 2019
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #004. NOT FROM HERE: SELECTED UFO ARTICLES VOLUME THREE. LINK: https://youtu.be/DUJnguJliGA     September 8, 2018
+<h3><a href="">EPISODE #004. NOT FROM HERE: SELECTED UFO ARTICLES VOLUME THREE</a>.</h3>
+LINK: https://youtu.be/DUJnguJliGA     September 8, 2018
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3><a href="">EPISODE #003. PHONE CALL FROM AN ET. LINK: https://youtu.be/N4lPUztiIWY                                 November 25, 2017
+<h3><a href="">EPISODE #003. PHONE CALL FROM AN ET</a>.</h3>
+LINK: https://youtu.be/N4lPUztiIWY                                 November 25, 2017
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3><a href="">EPISODE #002. INSIDE UFOS: TRUE ACCOUNTS OF CONTACT. LINK: https://youtu.be/3i3ffK48nc4                 October 28, 2017
+<h3><a href="">EPISODE #002. INSIDE UFOS: TRUE ACCOUNTS OF CONTACT</a>.</h3>
+LINK: https://youtu.be/3i3ffK48nc4                 October 28, 2017
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3><a href="">EPISODE #001. MINING DATA ON UFOS. LINK: https://youtu.be/X62q_xRyixs                                   August 28, 2017
+<h3><a href="">EPISODE #001. MINING DATA ON UFOS</a>.</h3>
+LINK: https://youtu.be/X62q_xRyixs                                   August 28, 2017
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
