@@ -1042,7 +1042,9 @@ TWELVE VERY WEIRD EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
 
 <p>These twelve cases offer a brief glimpse into what it’s like to have a face-to-face unearthly encounter with strange humanoids. These cases show how scary and traumatic an encounter can be, and make it clear that we still have a lot to learn about who is walking among us on this planet.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #258. UFOS IN ANTARCTICA: TWELVE TRUE CASES. LINK: https://youtu.be/tBxl3dv38-s                 February 28, 2025
+<h3><a href="https://youtu.be/tBxl3dv38-s">EPISODE #258. UFOS IN ANTARCTICA: 
+TWELVE TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/tBxl3dv38-s</h5>                                                             <h5>February 28, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>It’s the coldest, windiest, driest, highest and most remote place on Earth. Its average temperature is 50-70 degrees below zero Fahrenheit. It has no permanent residents. It contains up to 90 percent of the world’s freshwater. It covers 5.5 million square miles, about 98 percent of which is covered with ice. This is, of course, Antarctica. Nobody owns it. The 1951 Antarctic treaty outlawed ownership, and limits its use to peaceful, scientific research. Each year, 1000-5000 scientists and military officers are stationed at the various bases. About 40,000 tourists visit there yearly. As with the Arctic, conspiracies abound, from secret Nazi bases, to an entrance to the hollow Earth. True or not, what is undeniably true is that the Antarctic has a long and rich history of UFO encounters. This video presents twelve cases of UFOs in Antarctica. They reach back 75 years and include sightings, landings, and humanoids. A few represent some of the best-verified UFO encounters in the history of ufology.</p>
 
@@ -1072,37 +1074,63 @@ EPISODE #258. UFOS IN ANTARCTICA: TWELVE TRUE CASES. LINK: https://youtu.be/tBxl
 
 <p>With so many encounters, observed by so many trained scientists, verified by such a wide variety of scientific instruments and photographed, there is only one possible conclusion: the Antarctic is being visited by UFOs.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #257. UFOS IN THE ARCTIC: 25 TRUE CASES. LINK: https://youtu.be/Aj5WHbLlqOY                     February 21, 2025
+<h3><a href="https://youtu.be/Aj5WHbLlqOY">EPISODE #257. UFOS IN THE ARCTIC: 25 TRUE CASES</a>.</h3>
+<h5>LINK: https://youtu.be/Aj5WHbLlqOY</h5>                                                             <h5>February 21, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p>The Arctic has always been a place of mystery and wonder. The magical Northern Lights, a rich wildlife of polar bears, seals, foxes and more, surviving in one of the most inhospitable locations on our planet, continue to capture our imagination. Speculation and conspiracies about the Arctic abound. But what is the truth? Have UFOs been seen there? The answer of course is yes! The Arctic Circle is 9,900 miles in circumference. Only 8 countries are located within this area, and yet it encompasses about 7.7 million miles. It also has a rich, varied history of UFO encounters reaching back to 1850 continuing up to the current day. This video presents 25 of the best-verified and most fascinating accounts from the Arctic Circle.  These cases involve sightings, landings, humanoids and even an apparent UFO crash!</p>
+<p>The Arctic has always been a place of mystery and wonder. The magical Northern Lights, 
+a rich wildlife of polar bears, seals, foxes and more, surviving in one of the most 
+inhospitable locations on our planet, continue to capture our imagination. Speculation 
+and conspiracies about the Arctic abound. But what is the truth? Have UFOs been seen 
+there? The answer of course is yes! The Arctic Circle is 9,900 miles in circumference. 
+Only 8 countries are located within this area, and yet it encompasses about 7.7 million 
+miles. It also has a rich, varied history of UFO encounters reaching back to 1850 
+continuing up to the current day. This video presents 25 of the best-verified and most 
+fascinating accounts from the Arctic Circle.  These cases involve sightings, landings, 
+humanoids and even an apparent UFO crash!</p>
 
-<p>TWO UNKNOWN OBJECTS. In 1850, the crew of a ship sailing the Wellington Channel observed a mysterious glowing object.</p>
+<p>TWO UNKNOWN OBJECTS. In 1850, the crew of a ship sailing the Wellington Channel 
+observed a mysterious glowing object.</p>
 
-<p>AN EERIE EVENT. In 1912, the Russian Ship, Saint Anna became icebound in the Arctic for two years. On November 8, 1913, they had a remarkable sighting of a red glowing object.</p>
+<p>AN EERIE EVENT. In 1912, the Russian Ship, Saint Anna became icebound in the Arctic 
+for two years. On November 8, 1913, they had a remarkable sighting of a red glowing 
+object.</p>
 
-<p>ESKIMO VILLAGE DISAPPEARS. In 1930, trapper Joe Labelle went to Lake Angikuni, Canada to trade with the local village, only to find that everyone was gone. But where did they go?</p>
+<p>ESKIMO VILLAGE DISAPPEARS. In 1930, trapper Joe Labelle went to Lake Angikuni, Canada 
+to trade with the local village, only to find that everyone was gone. But where did they 
+go?</p>
 
-<p>THE WATCHING GLOBES. During WWII, four ships in a convoy in the Norwegian Sea had an extensive encounter with weird glowing objects.</p>
+<p>THE WATCHING GLOBES. During WWII, four ships in a convoy in the Norwegian Sea had an 
+extensive encounter with weird glowing objects.</p>
 
-<p>PROJECT PTARMIGAN. Researcher Lt. Col. Wendelle Stevens reveals that during his work in Alaska with Project Ptarmigan, many officers had incredible encounters with UFOs.</p>
+<p>PROJECT PTARMIGAN. Researcher Lt. Col. Wendelle Stevens reveals that during his work 
+in Alaska with Project Ptarmigan, many officers had incredible encounters with UFOs.</p>
 
-<p>“IT WAS OBSERVED BY THE ENTIRE POPULATION.” In August 1950, resident of an arctic village and Russian aviators observe glowing discs in the sky for three days in a row.</p>
+<p>“IT WAS OBSERVED BY THE ENTIRE POPULATION.” In August 1950, resident of an arctic 
+village and Russian aviators observe glowing discs in the sky for three days in a row.</p>
 
-<p>THE SPITSBERGEN ISLAND UFO CRASH. In May 1952, a disc with UFO occupants allegedly crashed on the remote Spitsbergen Island.</p>
+<p>THE SPITSBERGEN ISLAND UFO CRASH. In May 1952, a disc with UFO occupants allegedly 
+crashed on the remote Spitsbergen Island.</p>
 
-<p>UFO TRACKED ON THEODOLITE. On June 26, 1952, weather observers on Padloping Island track a UFO for five minutes.</p>
+<p>UFO TRACKED ON THEODOLITE. On June 26, 1952, weather observers on Padloping Island 
+track a UFO for five minutes.</p>
 
-<p>“YOU’RE NOT GOING TO BELIEVE IT.” On April 29, 1952, navy pilots at Thule, Greenland observe three UFOs investigating a skyhook weather balloon.</p>
+<p>“YOU’RE NOT GOING TO BELIEVE IT.” On April 29, 1952, navy pilots at Thule, Greenland 
+observe three UFOs investigating a skyhook weather balloon.</p>
 
-<p>A STRANGE OBJECT. In February 1953, the crew and passengers of a WV-2 Super Constellation observe a UFO over Thule, Greenland.</p>
+<p>A STRANGE OBJECT. In February 1953, the crew and passengers of a WV-2 Super 
+Constellation observe a UFO over Thule, Greenland.</p>
 
-<p>THIRD THULE SIGHTING. On December 9, 1953, three Navy flights over Thule, Greenland observe a strange craft near their jets.</p>
+<p>THIRD THULE SIGHTING. On December 9, 1953, three Navy flights over Thule, Greenland 
+observe a strange craft near their jets.</p>
 
-<p>UNIDENTIFIED. On August 29, 1954, the crew and passengers of a Dutch Airlines DC-4 see a fleet of dark objects near Prince Christian, Greenland.</p>
+<p>UNIDENTIFIED. On August 29, 1954, the crew and passengers of a Dutch Airlines DC-4 see 
+a fleet of dark objects near Prince Christian, Greenland.</p>
 
-<p>SOMETHING SUPERNATURAL. In 1956, two Russian pilots of a TU-4 aircraft have an extensive sighting of a pearly disc-shaped object pacing their plane.</p>
+<p>SOMETHING SUPERNATURAL. In 1956, two Russian pilots of a TU-4 aircraft have an 
+extensive sighting of a pearly disc-shaped object pacing their plane.</p>
 
-<p>EXTREME ALTITUDE ARCTIC OBJECT. In November 1958, a US radar station detects an object hovering above the Arctic Circle.</p>
+<p>EXTREME ALTITUDE ARCTIC OBJECT. In November 1958, a US radar station detects an 
+object hovering above the Arctic Circle.</p>
 
 <p>A DISC LANDS AT UMIAT. In 1958-1959 a wave of sightings in the Arctic Circle caused 
 concern within Finland and the Soviet Union. One case involved a landing at Umiat, 
@@ -1149,7 +1177,8 @@ uninhabited, most activity likely goes unobserved by human eyes.</p>
 
 <p>There are now enough cases to prove that UFOs and ETs are visiting the Arctic.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #256. ALIENS HEALED ME IN MY HOSPITAL ROOM. LINK: https://youtu.be/qWuYjGGaixg                  February 14, 2025
+<h3><a href="https://youtu.be/qWuYjGGaixg">EPISODE #256. ALIENS HEALED ME IN MY HOSPITAL ROOM</a>.</h3>
+<h5>LINK: https://youtu.be/qWuYjGGaixg</h5>                                                             <h5>February 14, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 16,921 views  Feb 14, 2025
@@ -1163,46 +1192,82 @@ place you would never expect: inside a hospital. It may sound incredible, but al
 percent of UFO healing cases fit this category. This video presents 17 cases of this kind, 
 which are only a small portion of the actual number of cases.</p>
 
-<p>MY SIGHT RESTORED. April 1945, Okinawa Island. After being struck by shrapnel in his eye and suffering an eye infection that rendered him blind, Howard Menger is visited in his hospital tent and healed.</p>
+<p>MY SIGHT RESTORED. April 1945, Okinawa Island. After being struck by shrapnel in his 
+eye and suffering an eye infection that rendered him blind, Howard Menger is visited in 
+his hospital tent and healed.</p>
 
-<p>EYES FILLED WITH GREAT COMPASSION. June 1946, Camp Lee, VA. Allan Edwards is visited by a beautiful and unusual-looking man who he believes healed a patient of severe assault injuries.</p>
+<p>EYES FILLED WITH GREAT COMPASSION. June 1946, Camp Lee, VA. Allan Edwards is visited 
+by a beautiful and unusual-looking man who he believes healed a patient of severe assault 
+injuries.</p>
 
-<p>YOU WERE SUPPOSED TO LOSE THAT FINGER. 1960s, NJ. After losing his hearing in a sled accident, Richard Rylka is healed in his hospital room by human-looking ETs. Later, after crushing his finger in an industrial accident, the ETs visit him again in the hospital.</p>
+<p>YOU WERE SUPPOSED TO LOSE THAT FINGER. 1960s, NJ. After losing his hearing in a sled 
+accident, Richard Rylka is healed in his hospital room by human-looking ETs. Later, 
+after crushing his finger in an industrial accident, the ETs visit him again in the 
+hospital.</p>
 
-<p>WE’VE NEVER SEEN ANYTHING LIKE IT. May 1962, Durham, England. After being diagnosed with a hole in his lung, Fred White is visited by a human-looking ET who heals him with a strange instrument.</p>
+<p>WE’VE NEVER SEEN ANYTHING LIKE IT. May 1962, Durham, England. After being diagnosed 
+with a hole in his lung, Fred White is visited by a human-looking ET who heals him with 
+a strange instrument.</p>
 
-<p>THE MIRACLE PATIENT. 1967, Lima, Peru. In 1967, Ludwig Pallman is visited in his room in the Maison Hospital by a human-looking female ET who cures him of kidney problems.</p>
+<p>THE MIRACLE PATIENT. 1967, Lima, Peru. In 1967, Ludwig Pallman is visited in his room 
+in the Maison Hospital by a human-looking female ET who cures him of kidney problems.</p>
 
-<p>“THIS IS IMPOSSIBLE.” 1971, Laguna, CA. Burned on his neck and chest, Dr. Fred Bell is healed in his hospital room with the help of an artifact given to him by human-looking ETs.</p>
+<p>“THIS IS IMPOSSIBLE.” 1971, Laguna, CA. Burned on his neck and chest, Dr. Fred Bell 
+is healed in his hospital room with the help of an artifact given to him by human-
+looking ETs.</p>
 
-<p>MY DOCTOR WAS AMAZED. November 1981, Hubbard, OR. After an emergency C-section, Denise Twiggs is visited by an ET who speeds up the healing of her caesarean scar.</p>
+<p>MY DOCTOR WAS AMAZED. November 1981, Hubbard, OR. After an emergency C-section, Denise 
+Twiggs is visited by an ET who speeds up the healing of her caesarean scar.</p>
 
-<p>A SOLUTION TO MY PROBLEM. Summer 1982, Willamette, Oregon. Suffering from a strep infection which has spread through his body, “Douglas” is healed by an ET using a strange silver instrument.</p>
+<p>A SOLUTION TO MY PROBLEM. Summer 1982, Willamette, Oregon. Suffering from a strep 
+infection which has spread through his body, “Douglas” is healed by an ET using a 
+strange silver instrument.</p>
 
-<p>TOTALLY RECUPERATED. Summer 1989, Kiev, Ukraine. Lying in his hospital room after a stroke, Sergey K is visited by a human-looking figure who heals him by waving his hand over his body.</p>
+<p>TOTALLY RECUPERATED. Summer 1989, Kiev, Ukraine. Lying in his hospital room after a 
+stroke, Sergey K is visited by a human-looking figure who heals him by waving his hand 
+over his body.</p>
 
-<p>GET UP AND GO! April 18, 1989, Krasnoperekopsk, Ukraine. At the end stages of heart disease, Liudmila Petrovna is brought back to full health by a glowing man who appears in her hospital room.</p>
+<p>GET UP AND GO! April 18, 1989, Krasnoperekopsk, Ukraine. At the end stages of heart 
+disease, Liudmila Petrovna is brought back to full health by a glowing man who appears 
+in her hospital room.</p>
 
-<p>I WAS SAVED. 1990s. Location unknown. When doctors were unable to heal her of pneumonia, Joni Ferris is abducted from her hospital room and cured by ETs.</p>
+<p>I WAS SAVED. 1990s. Location unknown. When doctors were unable to heal her of 
+pneumonia, Joni Ferris is abducted from her hospital room and cured by ETs.</p>
 
-MIRACLE LEGS. November 1995, Sacramento, CA. After doctors told Connie Isele that they would have to amputate her leg, she is visited by ETs who cure her!</p>
+MIRACLE LEGS. November 1995, Sacramento, CA. After doctors told Connie Isele that they 
+would have to amputate her leg, she is visited by ETs who cure her!</p>
 
-<p>COMPLETELY HEALED. 2002. Italy. A man suffering from cancer is healed by three humanoid figures in glowing jumpsuits. The event is allegedly caught on video in his hospital room.</p>
+<p>COMPLETELY HEALED. 2002. Italy. A man suffering from cancer is healed by three 
+humanoid figures in glowing jumpsuits. The event is allegedly caught on video in his 
+hospital room.</p>
 
-<p>THEY CURED ME. 2005, Miami, FL. While being prepared for emergency surgery to remove a cancerous tumor in his lungs, Alberto Fernandez is suddenly healed by his ET friends.</p>
+<p>THEY CURED ME. 2005, Miami, FL. While being prepared for emergency surgery to remove 
+a cancerous tumor in his lungs, Alberto Fernandez is suddenly healed by his ET friends.</p>
 
-<p>THEY LOOKED LIKE PRAYING MANTIS. 2008, Canada. A woman visits her friend (suffering from a head injury) is amazed to see two praying mantis humanoids trying to heal her friend.</p>
+<p>THEY LOOKED LIKE PRAYING MANTIS. 2008, Canada. A woman visits her friend (suffering 
+from a head injury) is amazed to see two praying mantis humanoids trying to heal her 
+friend.</p>
 
-<p>A SHINING GOLDEN LIGHT. February 2009, Andorra, Spain. Doctors report that at least four children are visited by ETs in their hospital rooms, curing them of terminal cancer.</p>
+<p>A SHINING GOLDEN LIGHT. February 2009, Andorra, Spain. Doctors report that at least 
+four children are visited by ETs in their hospital rooms, curing them of terminal cancer.</p>
 
-<p>TAUGHT BY THE ETS. Professor Bochereshoni, a mental health doctor from Tbilisi, Georgia, says he is visited by ETs in the hospital who assist him in diagnosing and curing patients suffering from mental illness.</p>
+<p>TAUGHT BY THE ETS. Professor Bochereshoni, a mental health doctor from Tbilisi, 
+Georgia, says he is visited by ETs in the hospital who assist him in diagnosing and 
+curing patients suffering from mental illness.</p>
 
-<p>Cases like these may sound incredible, but there are far too many to explain away as hoaxes, hallucinations, misperceptions, or mental illness. The miraculous recoveries verified by doctors and researchers speak for themselves. The UFO healing cases provide compelling evidence for extraterrestrial intervention. With 300 documented cases, it’s undeniable that ETs are on a healing mission across our planet. To explore these cases in more detail (and many others) check out my book, “The Healing Power of UFOs,” now available!</p>
+<p>Cases like these may sound incredible, but there are far too many to explain away 
+as hoaxes, hallucinations, misperceptions, or mental illness. The miraculous recoveries 
+verified by doctors and researchers speak for themselves. The UFO healing cases provide 
+compelling evidence for extraterrestrial intervention. With 300 documented cases, it’s 
+undeniable that ETs are on a healing mission across our planet. To explore these cases 
+in more detail (and many others) check out my book, “The Healing Power of UFOs,” now 
+available!</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #255. I COULDN’T TALK ABOUT IT: TEN INCREDIBLE HUMANOID ENCOUNTERS. 
-  LINK: https://youtu.be/vWKV2vmoxTU                                                                    February 7, 2025
+<h3><a href="https://youtu.be/vWKV2vmoxTU">EPISODE #255. I COULDN’T TALK ABOUT IT: 
+TEN INCREDIBLE HUMANOID ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/vWKV2vmoxTU</h5>                                                             <h5>February 7, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-36,085 views  Feb 7, 2025
+<h7>36,085 views  Feb 7, 2025</h7>
 <p>For many people, a humanoid encounter is one of the most shocking and incredible experiences of their lives. When someone experiences something that is completely foreign to their worldview, it can be incredibly difficult to understand and process. An encounter can be so shocking that it becomes almost impossible to speak about it. This video presents ten very close encounters with humanoids, several of which only became investigated through fortuitous circumstances. Many of these involve multiple witnesses and a wide variety of physical evidence such as landing traces, animal reactions, medical effects, electromagnetic disturbances and more.</p>
 
 <p>THE UFO NEXT DOOR. On the night of May 5, 1952, Ann L Sohn (a nurse) looked out the window of her home in Prospect Park, Illinois and saw a massive, saucer-shaped craft. Through the portholes, Ann saw humanoids looking down at her. After a few moments, the craft darted away. Later, Ann learned that other people in the area saw UFOs on that same night. And the plants where the craft had hovered died.</p>
@@ -1227,7 +1292,8 @@ EPISODE #255. I COULDN’T TALK ABOUT IT: TEN INCREDIBLE HUMANOID ENCOUNTERS.
 
 <p>These ten cases are just a small portion of the actual number of cases, and yet they each provide amazing insights about ET contact. There are now enough documented cases to conclude that we are being visited by extraterrestrials.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #254. UFOS IN YOUR HOMETOWN: EPISODE EIGHT. LINK: https://youtu.be/xNBQyJjFYBQ                  January 31, 2025
+<h3><a href="https://youtu.be/xNBQyJjFYBQ">EPISODE #254. UFOS IN YOUR HOMETOWN: EPISODE EIGHT</a>.</h3>
+<h5>LINK: https://youtu.be/xNBQyJjFYBQ</h5>                                                             <h5>January 31, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 15,893 views  Jan 31, 2025
 <p>UFOs are being seen all over this planet. To prove this fact, I put out a challenge: name any town or city, and I will find an encounter there. And I have! I have explored almost 100 towns and cities and every one of them has a history of UFO encounters. Not just sightings, but landings, face-to-face meetings with humanoids, onboard encounters and even UFO crashes. In this latest episode, we explore eight new places including, Albion, MI; Austin, TX; Leesville, LA; Whittier, CA; Huntsville, AL; Elkton, MD; Seoul, South Korea and finally, Oshkosh, WI. These cases reach back decades and have lots of evidence: photos, radar-returns, landing traces, animal reactions, medical effects, and even metal fragments. We are not alone!</p>
@@ -1250,121 +1316,180 @@ EPISODE #254. UFOS IN YOUR HOMETOWN: EPISODE EIGHT. LINK: https://youtu.be/xNBQy
 
 <p>So many cases involving close encounters of the first, second and third kind. Too many cases to deny or explain away. The only alternative is that these cases are true; we are being visited by extraterrestrials. It doesn’t matter where you live on Earth, UFOs have been there!</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #253. THE ALIEN IN MY BED: THE UFO & ET CONTACT STORY OF MIKE W. 
-  LINK: https://youtu.be/S4m5yLsM6TY                                                                    January 24, 2025
+<h3><a href="https://youtu.be/S4m5yLsM6TY">EPISODE #253. THE ALIEN IN MY BED: 
+THE UFO & ET CONTACT STORY OF MIKE W</a>.</h3>
+<h5>LINK: https://youtu.be/S4m5yLsM6TY</h5>                                                             <h5>January 24, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 15,601 views  Jan 24, 2025
-<p>People across the world are reporting direct contact with UFOs and extraterrestrials. Cases reach back more than 100 years and number in the many thousands, or as some researcher believe, in the millions. Researchers have discovered that contact is often generational, following certain family lines. As a general rule, it begins in early childhood and continues throughout a person’s life. This video presents the contact experiences of Mike W, a retired apartment manager originally from Norman, Oklahoma. His encounters include events that are both typical and commonly reported, as well as unique elements of extreme high strangeness.</p>
+<p>People across the world are reporting direct contact with UFOs and extraterrestrials. 
+Cases reach back more than 100 years and number in the many thousands, or as some 
+researcher believe, in the millions. Researchers have discovered that contact is often 
+generational, following certain family lines. As a general rule, it begins in early 
+childhood and continues throughout a person’s life. This video presents the contact 
+experiences of Mike W, a retired apartment manager originally from Norman, Oklahoma. 
+His encounters include events that are both typical and commonly reported, as well as 
+unique elements of extreme high strangeness.</p>
 
-<p>Born in 1945, Mike’s experiences began in the early 1950s. Around age five, Mike would periodically and inexplicably disappear from his home. His parents and family would search for him, and find him sometimes miles from their home on a random street corner. Mike has no memories of these missing time encounters, but his parents assured him that it happened many times. Around that time, his parents extracted what appeared to be a strange, tiny, ceramic rod from his arm. In hindsight, Mike wonders, could this have been an alien implant?</p>
+<p>Born in 1945, Mike’s experiences began in the early 1950s. Around age five, Mike 
+would periodically and inexplicably disappear from his home. His parents and family 
+would search for him, and find him sometimes miles from their home on a random street 
+corner. Mike has no memories of these missing time encounters, but his parents assured 
+him that it happened many times. Around that time, his parents extracted what appeared 
+to be a strange, tiny, ceramic rod from his arm. In hindsight, Mike wonders, could this 
+have been an alien implant?</p>
 
-<p>Years passed with no unusual experiences. Mike moved to Portland, Oregon. And on May 11, 1970, Mike (now 25 years old) had a series of three consecutive encounters on that day that would leave him baffled for the rest of his life. The first occurred while walking down the sidewalk in downtown Portland, near the local University where a series of anti-war protests had escalated to riots that would garner national headlines. Mike noticed two seven-foot-tall, identical-looking gentleman wearing dark suits walking towards him. They confronted him and told him, “We can take you anytime we feel like it.” A short conversation followed, and the men identified themselves as CIA agents. Mike didn’t believe them, but shocked and afraid, he turned and ran.</p>
+<p>Years passed with no unusual experiences. Mike moved to Portland, Oregon. And on May 
+11, 1970, Mike (now 25 years old) had a series of three consecutive encounters on that 
+day that would leave him baffled for the rest of his life. The first occurred while 
+walking down the sidewalk in downtown Portland, near the local University where a 
+series of anti-war protests had escalated to riots that would garner national headlines. 
+Mike noticed two seven-foot-tall, identical-looking gentleman wearing dark suits walking 
+towards him. They confronted him and told him, “We can take you anytime we feel like it.” 
+A short conversation followed, and the men identified themselves as CIA agents. Mike 
+didn’t believe them, but shocked and afraid, he turned and ran.</p>
 
-<p>Later that night, he was walking down Jefferson Street when he saw a crowd of people watching a fight in front of a bar. Mike’s attention was drawn to two tall, identical-looking gentlemen standing behind the crowd observing intently. The two men were seven feet tall, dressed identically in ankle-length brown robes and golden Nefertiti-like headwear. Also odd was that nobody seemed to notice them. Even stranger, they held their hands out in a peculiar way. Curious about their weird appearance and behavior, Mike stood next to them and asked them what they were doing. One of them replied that they were reading people’s minds to determine what was going on. Mike offered to investigate for them and almost ended up getting involved in the bar fight. When he turned around, the men were gone. Only then did he wonder, were they the same men who had confronted him earlier?</p>
+<p>Later that night, he was walking down Jefferson Street when he saw a crowd of people 
+watching a fight in front of a bar. Mike’s attention was drawn to two tall, identical-
+looking gentlemen standing behind the crowd observing intently. The two men were seven 
+feet tall, dressed identically in ankle-length brown robes and golden Nefertiti-like 
+headwear. Also odd was that nobody seemed to notice them. Even stranger, they held 
+their hands out in a peculiar way. Curious about their weird appearance and behavior, 
+Mike stood next to them and asked them what they were doing. One of them replied that 
+they were reading people’s minds to determine what was going on. Mike offered to 
+investigate for them and almost ended up getting involved in the bar fight. When he 
+turned around, the men were gone. Only then did he wonder, were they the same men who 
+had confronted him earlier?</p>
 
-<p>Walking back home, he had his third and strangest encounter. An attractive woman dressed in the same kind of ankle-length brown robe approached him and said, “I need to have sex with you.” It was an offer Mike couldn’t resist, and he took the woman home. Making love, he was shocked to find that the woman’s anatomy had some profoundly strange abnormalities. Her skin seemed rubbery. She began to communicate to him telepathically. And at one point, he looked at her and was shocked to see that she appeared to be bald. After being intimate, she left without a word and was gone. After thinking about it and the other two encounters, he began to wonder if all three encounters were connected, and were the people he had seen even human?</p>
+<p>Walking back home, he had his third and strangest encounter. An attractive woman 
+dressed in the same kind of ankle-length brown robe approached him and said, “I need to 
+have sex with you.” It was an offer Mike couldn’t resist, and he took the woman home. 
+Making love, he was shocked to find that the woman’s anatomy had some profoundly strange 
+abnormalities. Her skin seemed rubbery. She began to communicate to him telepathically. 
+And at one point, he looked at her and was shocked to see that she appeared to be bald. 
+After being intimate, she left without a word and was gone. After thinking about it and 
+the other two encounters, he began to wonder if all three encounters were connected, and 
+were the people he had seen even human?</p>
 
-<p>Years later, one night in 1988, Mike (now living in northern California) went up to the mountains overlooking the San Francisco Bay to play with his ham radio. Shortly after parking, he realized a brilliant light was shining down on him. Exiting his car, he turned and saw a gigantic craft hovering right above a hill a short distance away. It was not normal, and Mike stood there in awe. The next thing he knew, he had a lapse of consciousness and the craft was in a different place. It then disappeared in a flash. Mike forgot about the entire incident until he had a series of terrifying dreams of being taken inside a craft and examined by gray ETs. Recalling his sighting and missing time, he realized he had been abducted by aliens.</p>
+<p>Years later, one night in 1988, Mike (now living in northern California) went up to 
+the mountains overlooking the San Francisco Bay to play with his ham radio. Shortly after 
+parking, he realized a brilliant light was shining down on him. Exiting his car, he 
+turned and saw a gigantic craft hovering right above a hill a short distance away. It was 
+not normal, and Mike stood there in awe. The next thing he knew, he had a lapse of 
+consciousness and the craft was in a different place. It then disappeared in a flash. 
+Mike forgot about the entire incident until he had a series of terrifying dreams of 
+being taken inside a craft and examined by gray ETs. Recalling his sighting and missing 
+time, he realized he had been abducted by aliens.</p>
 
-<p>Following this encounter, weird things began to happen. He developed an interest and advanced knowledge of electronics. He exhibited psychic abilities that were so powerful, he vowed to never use them again. The encounter also changed his view of the world and his place in it. Eventually, he would have another UFO sighting that convinced him he was being watched by extraterrestrials.</p>
+<p>Following this encounter, weird things began to happen. He developed an interest and 
+advanced knowledge of electronics. He exhibited psychic abilities that were so powerful, he 
+vowed to never use them again. The encounter also changed his view of the world and his 
+place in it. Eventually, he would have another UFO sighting that convinced him he was 
+being watched by extraterrestrials.</p>
 
-<p>Mike is just one of many people who are reporting UFO and extraterrestrial experiences. The complete story of his contacts is presented in my book, Humanoids and High Strangeness: Twenty True UFO Encounters , now available. LINK: https://amzn.to/3CaANiI.</p>
+<p>Mike is just one of many people who are reporting UFO and extraterrestrial experiences. 
+The complete story of his contacts is presented in my book, Humanoids and High Strangeness: 
+Twenty True UFO Encounters , now available. LINK: https://amzn.to/3CaANiI.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #252. ONBOARD AN EXTRATERRESTRIAL CRAFT: TEN SPECTACULAR CASES. https://youtu.be/UhMPwnz8K9g    January 17, 2025
+<h3><a href="https://youtu.be/UhMPwnz8K9g">EPISODE #252. ONBOARD AN EXTRATERRESTRIAL CRAFT: 
+TEN SPECTACULAR CASES</a>.</h3>
+<h5>LINK: https://youtu.be/UhMPwnz8K9g</h5>                                                             <h5>January 17, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-31,560 views  Jan 17, 2025
-For more than 100 years, people across the world have been taken onboard extraterrestrial craft. Many of the cases have commonalities that corroborate each other down to minute details. But they also have unique high strangeness aspects that have much to teach us. This video presents ten spectacular onboard UFO cases involving face-to-face interactions with a variety of ETs. Cases like these are the cutting edge of UFO research and have the potential to answer the many questions surrounding alien contact.
+<h7>31,560 views  Jan 17, 2025</h7>
+<p>For more than 100 years, people across the world have been taken onboard extraterrestrial craft. Many of the cases have commonalities that corroborate each other down to minute details. But they also have unique high strangeness aspects that have much to teach us. This video presents ten spectacular onboard UFO cases involving face-to-face interactions with a variety of ETs. Cases like these are the cutting edge of UFO research and have the potential to answer the many questions surrounding alien contact.</p>
 
-“I STARTED TO CRY.” THE ONBOARD UFO ENCOUNTER OF MR GB. One summer day of 1921, an 8-year-old boy was playing along the Canal Nord in Peronne, France when two tall, thin figures in metallic jumpsuits appeared, grabbed him, and took him into a strange craft. Inside he was placed on a flexible couch in a small room. Mr. GB cried and the ETs let him go, miles from where he had been taken.
+<p>“I STARTED TO CRY.” THE ONBOARD UFO ENCOUNTER OF MR GB. One summer day of 1921, an 8-year-old boy was playing along the Canal Nord in Peronne, France when two tall, thin figures in metallic jumpsuits appeared, grabbed him, and took him into a strange craft. Inside he was placed on a flexible couch in a small room. Mr. GB cried and the ETs let him go, miles from where he had been taken.</p>
 
-“THE SOUL LIVES FOREVER” THE ONBOARD UFO ENCOUNTER OF EMILIA. One day in July 1942, Emilia was walking to her home in Niinisalo, Finland when a lady appeared and spoke to her telepathically. The lady brought Emilia to a flying saucer and invited her inside, showed Emilia how to fly the craft and spoke to her of spiritual subjects. After being released, she fell ill and had to be hospitalized.
+<p>“THE SOUL LIVES FOREVER” THE ONBOARD UFO ENCOUNTER OF EMILIA. One day in July 1942, Emilia was walking to her home in Niinisalo, Finland when a lady appeared and spoke to her telepathically. The lady brought Emilia to a flying saucer and invited her inside, showed Emilia how to fly the craft and spoke to her of spiritual subjects. After being released, she fell ill and had to be hospitalized.</p>
 
-“IF YOU DON’T BELIEVE IT, I CAN’T SAY I BLAME YOU.” THE ONBOARD UFO ENCOUNTER OF RICARDO MACHADO. Riding his motorbike near Pajas Blancas, Argentina one morning in April 1957, Ricardo Machado saw a disc-shaped craft ahead of him. He ditched his motorbike and hid. A man emerged from the craft, approached Ricardo, and took him onboard. Unknown to Ricardo, many people in the area were seeing UFOs.
+<p>“IF YOU DON’T BELIEVE IT, I CAN’T SAY I BLAME YOU.” THE ONBOARD UFO ENCOUNTER OF RICARDO MACHADO. Riding his motorbike near Pajas Blancas, Argentina one morning in April 1957, Ricardo Machado saw a disc-shaped craft ahead of him. He ditched his motorbike and hid. A man emerged from the craft, approached Ricardo, and took him onboard. Unknown to Ricardo, many people in the area were seeing UFOs.</p>
 
-“THERE WAS SOMETHING ABOVE US.” THE ONBOARD UFO ENCOUNTER OF MR. GREENAMYER. One summer day in 1958, three boys were playing outside their homes in Novato, California when a strange silver craft appeared overhead. Two of the boys fell asleep and one of the boys was shocked to see weird figures around them. The witness had vague memories of attacking them. Later under hypnosis, he recalled being taken onboard.
+<p>“THERE WAS SOMETHING ABOVE US.” THE ONBOARD UFO ENCOUNTER OF MR. GREENAMYER. One summer day in 1958, three boys were playing outside their homes in Novato, California when a strange silver craft appeared overhead. Two of the boys fell asleep and one of the boys was shocked to see weird figures around them. The witness had vague memories of attacking them. Later under hypnosis, he recalled being taken onboard.</p>
 
-THEY CAME FROM THE STARS. THE ONBOARD ENCOUNTER OF MRS. D.S. While driving to her home in Sedalia, Missouri at 11pm on August 16, 1965, a young lady was shocked to see a strange figure and a weird light in a field. She drove off in fear and arrived home to find herself missing over an hour of time. Later under hypnosis, she recalled being taken onboard a craft where she was examined by ETs.
+<p>THEY CAME FROM THE STARS. THE ONBOARD ENCOUNTER OF MRS. D.S. While driving to her home in Sedalia, Missouri at 11pm on August 16, 1965, a young lady was shocked to see a strange figure and a weird light in a field. She drove off in fear and arrived home to find herself missing over an hour of time. Later under hypnosis, she recalled being taken onboard a craft where she was examined by ETs.</p>
 
-“I SAW THREE BEINGS.”  THE ONBOARD ENCOUNTER OF MRS. G. Hanging up her clothes in her backyard in Ermington, UK one day in October 1965, a woman saw a glowing blue light hover overhead. Suddenly three figures in jumpsuits appeared, grabbed her, and used a beam of light to lift her into the craft. She found herself in a small room, but quickly passed out. She woke up in her backyard as the craft zipped away.
+<p>“I SAW THREE BEINGS.”  THE ONBOARD ENCOUNTER OF MRS. G. Hanging up her clothes in her backyard in Ermington, UK one day in October 1965, a woman saw a glowing blue light hover overhead. Suddenly three figures in jumpsuits appeared, grabbed her, and used a beam of light to lift her into the craft. She found herself in a small room, but quickly passed out. She woke up in her backyard as the craft zipped away.</p>
 
-TAKEN TO ANOTHER PLANET. THE ONBOARD UFO ENCOUNTER OF DIRCEU GOES. One night in June 1967, Dirceu Goes saw a glowing sphere in the sky near his home in Sarandi, Brazil. A beam of light came from the craft, carrying two short humanoids who grabbed Dirceu and pulled him onboard. He found himself in a tiny low-ceilinged room and remained there for 6 hours as the beings took him to what appeared to another world, then took him back to Earth.
+<p>TAKEN TO ANOTHER PLANET. THE ONBOARD UFO ENCOUNTER OF DIRCEU GOES. One night in June 1967, Dirceu Goes saw a glowing sphere in the sky near his home in Sarandi, Brazil. A beam of light came from the craft, carrying two short humanoids who grabbed Dirceu and pulled him onboard. He found himself in a tiny low-ceilinged room and remained there for 6 hours as the beings took him to what appeared to another world, then took him back to Earth.</p>
 
-THEY LOOKED LIKE INSECTS. THE ONBOARD UFO ENCOUNTER OF WENDEL AND NANCY. While driving one night in June 1969 near Salt Lake City, Utah, a couple was chased by a UFO. They pulled off at a rest-stop and saw a weird humanoid approaching. Later under hypnosis, both recalled being taken onboard, put in a weird chair, and examined by short ETs with blue eyes.
+<p>THEY LOOKED LIKE INSECTS. THE ONBOARD UFO ENCOUNTER OF WENDEL AND NANCY. While driving one night in June 1969 near Salt Lake City, Utah, a couple was chased by a UFO. They pulled off at a rest-stop and saw a weird humanoid approaching. Later under hypnosis, both recalled being taken onboard, put in a weird chair, and examined by short ETs with blue eyes.</p>
 
-“THE FEELING I HAD WAS ONE OF UNDERSTANDING.” THE ONBOARD EXPERIENCE OF LUKE. While driving near Hillsboro, Kansas one night in November 1971, “Luke” was amazed to see a silver flying saucer hover over a nearby field. He stopped his car and approached. Two short, bald, human-looking ETs wearing robes invited him onboard and gave him a tour of the craft. Afterward Luke began having psychic experiences.
+<p>“THE FEELING I HAD WAS ONE OF UNDERSTANDING.” THE ONBOARD EXPERIENCE OF LUKE. While driving near Hillsboro, Kansas one night in November 1971, “Luke” was amazed to see a silver flying saucer hover over a nearby field. He stopped his car and approached. Two short, bald, human-looking ETs wearing robes invited him onboard and gave him a tour of the craft. Afterward Luke began having psychic experiences.</p>
 
-AN INSECTOID PRAYING MANTIS. THE ONBOARD EXPERIENCE OF JUNE. Driving to her home in West Palm Beach, Florida on the night of August 15, 1997, a woman was puzzled by a strange darkness descending over her car. She arrived home 30 minutes late. After having other weird encounters, she used hypnosis and recalled that she had been taken onboard a craft and examined by praying mantis type ETs.
+<p>AN INSECTOID PRAYING MANTIS. THE ONBOARD EXPERIENCE OF JUNE. Driving to her home in West Palm Beach, Florida on the night of August 15, 1997, a woman was puzzled by a strange darkness descending over her car. She arrived home 30 minutes late. After having other weird encounters, she used hypnosis and recalled that she had been taken onboard a craft and examined by praying mantis type ETs.</p>
 
-Ten cases, each adding to the growing database of similar accounts. One case like this could be easily dismissed, or ten or even a hundred. But there are thousands of cases like these, and some researchers believe it might number in the millions. As hard as they are to believe, there are too many cases to explain away as hoaxes, hallucinations, misperceptions, or mental illness. Humanity is in contact with aliens!
+<p>Ten cases, each adding to the growing database of similar accounts. One case like this could be easily dismissed, or ten or even a hundred. But there are thousands of cases like these, and some researchers believe it might number in the millions. As hard as they are to believe, there are too many cases to explain away as hoaxes, hallucinations, misperceptions, or mental illness. Humanity is in contact with aliens!</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #251. TEN EXTREME EXTRATERRESTRIAL ENCOUNTERS. LINK: https://youtu.be/3r40K3Bk4Cc               January 10, 2025
+<h3><a href="https://youtu.be/3r40K3Bk4Cc">EPISODE #251. TEN EXTREME EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/3r40K3Bk4Cc</h5>                                                             </h5>January 10, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-27,798 views  Jan 10, 2025
-The cutting edge of the UFO phenomenon are cases involving direct, firsthand, face-to-face contact with extraterrestrial humanoids. Unlike simple sightings, humanoid encounters allow us to closely interact with the UFO occupants themselves. Here are ten cases of extreme contact, cases of contact that are so close, so extensive, they cannot be denied or explained away. These are the kinds of cases that answer the many questions surrounding ET contact, such as who they are, where they come from and why they are here.
+<h7>27,798 views  Jan 10, 2025</h7>
+<p>The cutting edge of the UFO phenomenon are cases involving direct, firsthand, face-to-face contact with extraterrestrial humanoids. Unlike simple sightings, humanoid encounters allow us to closely interact with the UFO occupants themselves. Here are ten cases of extreme contact, cases of contact that are so close, so extensive, they cannot be denied or explained away. These are the kinds of cases that answer the many questions surrounding ET contact, such as who they are, where they come from and why they are here.</p>
 
-THE DISAPPOINTED ALIEN. On the night of October 18, 1954, Renzo Pugina returned home after a night at the movies. Walking up to his home in Parravicino, Italy, he was confronted by a four-foot-tall, olive-skinned entity wearing a jumpsuit and helmet. Afraid but curious, he approached the creature who struck him with a paralyzing beam of light. With great effort, Renzo broke free of the paralysis and chased the figure away.
+<p>THE DISAPPOINTED ALIEN. On the night of October 18, 1954, Renzo Pugina returned home after a night at the movies. Walking up to his home in Parravicino, Italy, he was confronted by a four-foot-tall, olive-skinned entity wearing a jumpsuit and helmet. Afraid but curious, he approached the creature who struck him with a paralyzing beam of light. With great effort, Renzo broke free of the paralysis and chased the figure away.</p>
  
-THE MARTIAN STONE. Around midnight on November 17, 1954, Alberto Sanmartin Comes (a nurse) was taking a walk in Madrid, Spain, when he came upon a fair-skinned, angelic-looking man wearing a strange jumpsuit. The man walked up to a small craft landed nearby, quickly returned, and gaveAlberto a small stone covered with odd symbols. He then returned to his craft, which flew away. Alberto’s case generated national headlines as scientists analyzed the alien artifact.
+<p>THE MARTIAN STONE. Around midnight on November 17, 1954, Alberto Sanmartin Comes (a nurse) was taking a walk in Madrid, Spain, when he came upon a fair-skinned, angelic-looking man wearing a strange jumpsuit. The man walked up to a small craft landed nearby, quickly returned, and gaveAlberto a small stone covered with odd symbols. He then returned to his craft, which flew away. Alberto’s case generated national headlines as scientists analyzed the alien artifact.</p>
 
-THE ALIEN FROGMEN. One night in 1956, just after midnight, 13-year-old, Mr. E. Venebles woke up in his bedroom in Aveley, UK, as a brilliant light flooded his backyard. Looking out the window he saw a huge craft covered with colored lights. Through the portholes he saw several strange figures wearing “frogmen’s suits.” Then he saw a shadowy figure standing near his home. As he opened his window, the figure disappeared and the UFO flew off.
+<p>THE ALIEN FROGMEN. One night in 1956, just after midnight, 13-year-old, Mr. E. Venebles woke up in his bedroom in Aveley, UK, as a brilliant light flooded his backyard. Looking out the window he saw a huge craft covered with colored lights. Through the portholes he saw several strange figures wearing “frogmen’s suits.” Then he saw a shadowy figure standing near his home. As he opened his window, the figure disappeared and the UFO flew off.</p>
 
-“I SAW A MAN.” On the morning of April 23, 1966, six-year-old Kim Baker was picking flowers outside her home in Bingham, Maine when a classic flying-saucer landed nearby. Kim was amazed to see a human-looking man smiling at her from one of the portholes. After a few moments, the craft took off. Kim rushed home and told her mother, who returned to the spot to find strange landing traces.
+<p>“I SAW A MAN.” On the morning of April 23, 1966, six-year-old Kim Baker was picking flowers outside her home in Bingham, Maine when a classic flying-saucer landed nearby. Kim was amazed to see a human-looking man smiling at her from one of the portholes. After a few moments, the craft took off. Kim rushed home and told her mother, who returned to the spot to find strange landing traces.</p>
 
-“A HUMAN-LIKE BEING WAS WATCHING ME.” On the night of March 25, 1972, Mr. B. of Soesterberg, the Netherlands was woken up by a strange noise. Looking outside, he saw a strange light by his car. He rushed outside and felt compelled to drive off into the night. Shortly later, he came upon a landed UFO and inside it, a human-like figure looking at him.
+<p>“A HUMAN-LIKE BEING WAS WATCHING ME.” On the night of March 25, 1972, Mr. B. of Soesterberg, the Netherlands was woken up by a strange noise. Looking outside, he saw a strange light by his car. He rushed outside and felt compelled to drive off into the night. Shortly later, he came upon a landed UFO and inside it, a human-like figure looking at him.</p>
 
-ALIENS IN IOWA. On June 6, 1972, Mr. Teig was working the cornfields of his farm in Dayton, Iowa when a silver egg-shaped craft landed nearby. Out stepped three short alien figures wearing metallic jumpsuits. Mr. Teig froze in amazement as the ETs explored his crops for the next 30 minutes then returned to their craft and departed. At that time, many farmers were finding strange burned circles in their fields.
+<p>ALIENS IN IOWA. On June 6, 1972, Mr. Teig was working the cornfields of his farm in Dayton, Iowa when a silver egg-shaped craft landed nearby. Out stepped three short alien figures wearing metallic jumpsuits. Mr. Teig froze in amazement as the ETs explored his crops for the next 30 minutes then returned to their craft and departed. At that time, many farmers were finding strange burned circles in their fields.</p>
 
-A SENSATION OF BEING WATCHED. One night in April 1973, a man was driving near Grelsby, Finland when he came upon a huge flying saucer. He exited his car to take a closer look. He smelled a powerful order, and watched the craft move towards him. He could now see strange figures in the portholes. The craft moved away. Later, the area would later having many dramatic encounters.
+<p>A SENSATION OF BEING WATCHED. One night in April 1973, a man was driving near Grelsby, Finland when he came upon a huge flying saucer. He exited his car to take a closer look. He smelled a powerful order, and watched the craft move towards him. He could now see strange figures in the portholes. The craft moved away. Later, the area would later having many dramatic encounters.</p>
 
-“THIS DEEP SILENCE SURROUNDED US.” On the night of August 22, 1975, two young men drove their motorcycles near St Omer, France. Suddenly a bright light zoomed up behind them. They thought it was a car, but it disappeared, and moments later, they saw a landed UFO and humanoids next to the highway. An eerie silence fell reigned as the two humanoids rushed towards them. The men fled in a panic.
+<p>“THIS DEEP SILENCE SURROUNDED US.” On the night of August 22, 1975, two young men drove their motorcycles near St Omer, France. Suddenly a bright light zoomed up behind them. They thought it was a car, but it disappeared, and moments later, they saw a landed UFO and humanoids next to the highway. An eerie silence fell reigned as the two humanoids rushed towards them. The men fled in a panic.</p>
 
-SHOCKED BY A UFO. On the night of October 12, 1977, Manoel Espirito Santo and four friends were outside his home in Santo Antonio do Taua, Brazil when a glowing light appeared, zoomed down and revealed itself to be a craft. Two figures stood inside looking down on the group. A beam of light flashed down and struck Manoel, immobilizing him. It then darted off. At the time, many people in the area were having similar encounters.
+<p>SHOCKED BY A UFO. On the night of October 12, 1977, Manoel Espirito Santo and four friends were outside his home in Santo Antonio do Taua, Brazil when a glowing light appeared, zoomed down and revealed itself to be a craft. Two figures stood inside looking down on the group. A beam of light flashed down and struck Manoel, immobilizing him. It then darted off. At the time, many people in the area were having similar encounters.</p>
 
-“WE HAVE BEEN WATCHING YOU.” In 1979, as a young child in Lima, Peru, Renato Longato woke up one evening to find a beautiful woman wearing a metallic jumpsuit approach his bedside and instruct him to learn how to “use his mind.” Renato decided to develop his psychic abilities, and years later, in 1985, had a face-to-face encounter with a handsome ET approached him with a special message just for him.
+<p>“WE HAVE BEEN WATCHING YOU.” In 1979, as a young child in Lima, Peru, Renato Longato woke up one evening to find a beautiful woman wearing a metallic jumpsuit approach his bedside and instruct him to learn how to “use his mind.” Renato decided to develop his psychic abilities, and years later, in 1985, had a face-to-face encounter with a handsome ET approached him with a special message just for him.</p>
 
-These ten firsthand cases of ET contact are just the tip of the iceberg. Thousands of cases like these are on record, reaching back decades and coming from across the world. There are too many cases to deny, too much evidence. The truth is evident: we are being visited by extraterrestrials.
+<p>These ten firsthand cases of ET contact are just the tip of the iceberg. Thousands of cases like these are on record, reaching back decades and coming from across the world. There are too many cases to deny, too much evidence. The truth is evident: we are being visited by extraterrestrials.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #250. UFOS IN YOUR HOMETOWN: EPISODE SEVEN. LINK: https://youtu.be/qoSMUhcgLJ0                  January 3, 2025
+<h3><a href="https://youtu.be/qoSMUhcgLJ0">EPISODE #250. UFOS IN YOUR HOMETOWN: EPISODE SEVEN</a>.</h3>
+<h5>LINK: https://youtu.be/qoSMUhcgLJ0</h5>                                                             <h5>January 3, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-15,425 views  Jan 3, 2025
-Now introducing UFOs In Your Hometown: Episode Seven. This ongoing series began with a challenge: name any town or city, and I bet I can find a UFO case there. The response has been tremendous. More than 700 locations were received. And so far, I have found UFO cases in every town and city I have investigated. Sightings, landings, humanoids, and onboard experiences – all are represented. And supporting them is a wide variety of evidence: multiple eyewitness testimonies, photos and videos, landing traces, medical effects, animal reactions, electromagnetic disturbances and more. Today we explore seven new locations, supplied by you, the viewers. These locations include Folsom, California; Napier, New Zealand; Bountiful, Utah; Hickory, North Carolina; Evansville, Indiana and Kalispell, Montana. Have UFOs been seen in your hometown? The answer is almost certainly, yes!
+<h7>15,425 views  Jan 3, 2025</h7>
+<p>Now introducing UFOs In Your Hometown: Episode Seven. This ongoing series began with a challenge: name any town or city, and I bet I can find a UFO case there. The response has been tremendous. More than 700 locations were received. And so far, I have found UFO cases in every town and city I have investigated. Sightings, landings, humanoids, and onboard experiences – all are represented. And supporting them is a wide variety of evidence: multiple eyewitness testimonies, photos and videos, landing traces, medical effects, animal reactions, electromagnetic disturbances and more. Today we explore seven new locations, supplied by you, the viewers. These locations include Folsom, California; Napier, New Zealand; Bountiful, Utah; Hickory, North Carolina; Evansville, Indiana and Kalispell, Montana. Have UFOs been seen in your hometown? The answer is almost certainly, yes!</p>
 
-FOLSOM, CALIFORNIA. On August 17, 1960, witnesses observed a UFO hover over the city for two hours. Throughout 1972, numerous witnesses observed UFO activity over Folsom Lake. This location would regularly produce more encounters over the years, including all the way up to 2016. A very dramatic sighting of a rare “daylight disc” occurred along Highway 50 when two women were buzzed in their car by a low flying craft.
+<p>FOLSOM, CALIFORNIA. On August 17, 1960, witnesses observed a UFO hover over the city for two hours. Throughout 1972, numerous witnesses observed UFO activity over Folsom Lake. This location would regularly produce more encounters over the years, including all the way up to 2016. A very dramatic sighting of a rare “daylight disc” occurred along Highway 50 when two women were buzzed in their car by a low flying craft.</p>
 
-NAPIER, NEW ZEALAND. An early Napier sighting occurred in 1952 when a trucker observed a fleet of six objects traveling in a row across the sky. In 1953, a group of boy-scouts described their encounter with a very strangely-shaped UFO. In 1955, more than 20 people driving through Napier pulled off the road to observe a brilliant green UFO. Two years later in 1957, multiple independent witnesses saw a UFO on the same day. Activity continued in 1961, 1967 and in 1968, when a low flying UFO resulted in a witness being taken to court for reckless driving. A sighting of a landed UFO in 1969 caught the attention of researchers as it involved strange landing traces. Major sightings continued, making it clear that Napier is of great interest to UFOs.
+<p>NAPIER, NEW ZEALAND. An early Napier sighting occurred in 1952 when a trucker observed a fleet of six objects traveling in a row across the sky. In 1953, a group of boy-scouts described their encounter with a very strangely-shaped UFO. In 1955, more than 20 people driving through Napier pulled off the road to observe a brilliant green UFO. Two years later in 1957, multiple independent witnesses saw a UFO on the same day. Activity continued in 1961, 1967 and in 1968, when a low flying UFO resulted in a witness being taken to court for reckless driving. A sighting of a landed UFO in 1969 caught the attention of researchers as it involved strange landing traces. Major sightings continued, making it clear that Napier is of great interest to UFOs.</p>
 
-BOUNTIFUL, UTAH. Although this city is fairly large, it has produced only a few significant UFO cases. One occurred in 1969 when two young men observed two UFOs while attending a late-night movie at a drive-in theater. A sighting on October 10, 2019 of multiple objects received considerable attention from researchers as the witness was able to obtain videotape of strange lights over the city.
+<p>BOUNTIFUL, UTAH. Although this city is fairly large, it has produced only a few significant UFO cases. One occurred in 1969 when two young men observed two UFOs while attending a late-night movie at a drive-in theater. A sighting on October 10, 2019 of multiple objects received considerable attention from researchers as the witness was able to obtain videotape of strange lights over the city.</p>
 
-HICKORY, NORTH CAROLINA. In 1952, two independent witnesses both observed a classic saucer move at high speed over the city. In 1959, a witness reported being chased by a glowing blue object in his car outside of Hickory, while numerous people in town and outside of it called police to report UFOs. In 1978, five young ladies reported a UFO circling over the local college. More cases of UFOs chasing cars down Hickory Highways occurred in 1980 and 1983.
+<p>HICKORY, NORTH CAROLINA. In 1952, two independent witnesses both observed a classic saucer move at high speed over the city. In 1959, a witness reported being chased by a glowing blue object in his car outside of Hickory, while numerous people in town and outside of it called police to report UFOs. In 1978, five young ladies reported a UFO circling over the local college. More cases of UFOs chasing cars down Hickory Highways occurred in 1980 and 1983.
 
-MCKINNEY, TEXAS. In 1956, more than a hundred people, including the mayor of the city, reported a UFO which hovered over McKinney for six hours. In 2008, an entire family was driving to a soccer match and all observed a strange cigar-shaped craft. In 2018, a couple reported the landing of a UFO in the field behind their home. It turned out that they had prior sightings and perhaps deeper levels of contact.
+<p>MCKINNEY, TEXAS. In 1956, more than a hundred people, including the mayor of the city, reported a UFO which hovered over McKinney for six hours. In 2008, an entire family was driving to a soccer match and all observed a strange cigar-shaped craft. In 2018, a couple reported the landing of a UFO in the field behind their home. It turned out that they had prior sightings and perhaps deeper levels of contact.</p>
 
-EVANSVILLE, INDIANA. In 1953, a young boy saw a spherical-shaped craft with humanoids looking down at him through portholes. Police were called who reportedly opened fire on the object. One night in 1955, a group of students observed strange green-skinned humanoids run across the playing field of a local high school. Major sightings occurred in 1957, 1959 and in 1963 when three people were in their car when it was disabled by a low-flying craft. Sightings continued in 1968, 1970, 1973 and in 1974 when a famous news-anchor reported his sighting of a craft, and four people say they were abducted by a UFO. More sightings occurred regularly, in 1975, 1976, 1978 and onward, including a 2008 sighting of a craft that was so close, the witnesses called it the scariest moment of their lives.
+<p>EVANSVILLE, INDIANA. In 1953, a young boy saw a spherical-shaped craft with humanoids looking down at him through portholes. Police were called who reportedly opened fire on the object. One night in 1955, a group of students observed strange green-skinned humanoids run across the playing field of a local high school. Major sightings occurred in 1957, 1959 and in 1963 when three people were in their car when it was disabled by a low-flying craft. Sightings continued in 1968, 1970, 1973 and in 1974 when a famous news-anchor reported his sighting of a craft, and four people say they were abducted by a UFO. More sightings occurred regularly, in 1975, 1976, 1978 and onward, including a 2008 sighting of a craft that was so close, the witnesses called it the scariest moment of their lives.</p>
 
-KALISPELL, MONTANA. In 1956, a UFO hovered over the nearby mountains for so long that the Air Force scrambled six Starfire fighter jets to investigate. Through the 1970s, numerous people reported a wide variety of sightings over Kalispell, some who were so impressed by their sightings, they reported them to UFO centers. Evan as late as 2019, UFOs were being seen over Kalispell.
+<p>KALISPELL, MONTANA. In 1956, a UFO hovered over the nearby mountains for so long that the Air Force scrambled six Starfire fighter jets to investigate. Through the 1970s, numerous people reported a wide variety of sightings over Kalispell, some who were so impressed by their sightings, they reported them to UFO centers. Evan as late as 2019, UFOs were being seen over Kalispell.</p>
 
-The cases speak for themselves. UFOs are ubiquitous. They are being seen everywhere on this planet. Name any location, and you can be sure that UFOs have been seen there. UFO encounters are far more common than most people think. In fact, the huge number of cases coming from all over the world show that the ETs are conducting a vigorous publicity campaign to announce their presence. They want us to know that we are not alone!
+<p>The cases speak for themselves. UFOs are ubiquitous. They are being seen everywhere on this planet. Name any location, and you can be sure that UFOs have been seen there. UFO encounters are far more common than most people think. In fact, the huge number of cases coming from all over the world show that the ETs are conducting a vigorous publicity campaign to announce their presence. They want us to know that we are not alone!</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #249. SEVEN INCREDIBLE ONBOARD UFO ENCOUNTERS. LINK: https://youtu.be/Q5Jt-SdgXDc               December 27, 2024
+<h3><a href="https://youtu.be/Q5Jt-SdgXDc">EPISODE #249. SEVEN INCREDIBLE ONBOARD UFO ENCOUNTERS</a>.</h3>
+<h5>LINK: https://youtu.be/Q5Jt-SdgXDc</h5>                                                             <h5>December 27, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-40,942 views  Dec 27, 2024
-There are many different types of UFO encounters: sightings, landings, face-to-face encounters with humanoids and more. But the most extensive of all UFO encounters is an onboard experience, being taken onboard an extraterrestrial craft. Thousands of people accross the world have reported this experience. Cases reach back more than 100 years. They involve a wide variety of humanoids and have both striking similarities and unique differences. Here are seven firsthand accounts of people who claim to have been taken onboard an ET craft.
+<h7>40,942 views  Dec 27, 2024</h7>
+<p>There are many different types of UFO encounters: sightings, landings, face-to-face encounters with humanoids and more. But the most extensive of all UFO encounters is an onboard experience, being taken onboard an extraterrestrial craft. Thousands of people accross the world have reported this experience. Cases reach back more than 100 years. They involve a wide variety of humanoids and have both striking similarities and unique differences. Here are seven firsthand accounts of people who claim to have been taken onboard an ET craft.</p>
 
-“PEACE BE WITH YOU”: THE ONBOARD ENCOUNTER OF JL BUICK. One day in July 1913, prospector J.L. Buick and a friend were explored the Badlands region of Montana when a “small brown man” approached and uttered the words, “Peace be with you, my friends.” Nearby sat a 100-foot-wide disc-shaped craft, surrounded by other small men. The man said that they had monitored Earth for more than a hundred years. After a short conversation, the ETs boarded the craft and departed. The craft returned the next day. J.L. Buick and his companion were invited onboard and given a tour of the craft. The ETs said they powered it with an “electromagnetic drive.” Afterwards, the men were returned to Earth.
+<p>“PEACE BE WITH YOU”: THE ONBOARD ENCOUNTER OF JL BUICK. One day in July 1913, prospector J.L. Buick and a friend were explored the Badlands region of Montana when a “small brown man” approached and uttered the words, “Peace be with you, my friends.” Nearby sat a 100-foot-wide disc-shaped craft, surrounded by other small men. The man said that they had monitored Earth for more than a hundred years. After a short conversation, the ETs boarded the craft and departed. The craft returned the next day. J.L. Buick and his companion were invited onboard and given a tour of the craft. The ETs said they powered it with an “electromagnetic drive.” Afterwards, the men were returned to Earth.</p>
 
-“GOD IS ONLY ONE”: THE ONBOARD ENCOUNTER OF MARIO RESTIER. On December 4, 1949, Mario Restier was driving near Volta Redonda in Brazil when a 50-foot-wide craft landed nearby. A telepathic voice said, “Don’t be afraid. Do you want to know what it is?” Mario approached and met two humanoids who invited him onboard and, he says, took him to their planet in the Orion system and given a tour of their city. He held a long conversation with them and was returned to Earth. A second encounter occurred a few years later. Mario began to study physics and soon began plans to build a magnetic motor.
+<p>“GOD IS ONLY ONE”: THE ONBOARD ENCOUNTER OF MARIO RESTIER. On December 4, 1949, Mario Restier was driving near Volta Redonda in Brazil when a 50-foot-wide craft landed nearby. A telepathic voice said, “Don’t be afraid. Do you want to know what it is?” Mario approached and met two humanoids who invited him onboard and, he says, took him to their planet in the Orion system and given a tour of their city. He held a long conversation with them and was returned to Earth. A second encounter occurred a few years later. Mario began to study physics and soon began plans to build a magnetic motor.</p>
 
-A STRANGE OCCURRENCE: THE ONBOARD ENCOUNTER OF COMMANDER HORATIO R. PENROSE. On May 13, 1954, Commander Horatio Penrose was driving near Derby, England when a brilliant light swooped over his car. The next thing he knew, he was waking up in a hospital recovering from head injuries. As time passed, he recalled that immediately after the accident he was pulled onboard a craft by human-looking ETs who were interested in his work with radar in the Navy. Later, Commander Penrose located a witness who had seen the UFO hovering over his car.
+<p>A STRANGE OCCURRENCE: THE ONBOARD ENCOUNTER OF COMMANDER HORATIO R. PENROSE. On May 13, 1954, Commander Horatio Penrose was driving near Derby, England when a brilliant light swooped over his car. The next thing he knew, he was waking up in a hospital recovering from head injuries. As time passed, he recalled that immediately after the accident he was pulled onboard a craft by human-looking ETs who were interested in his work with radar in the Navy. Later, Commander Penrose located a witness who had seen the UFO hovering over his car.</p>
 
-“THESE WERE NOT EARTH PEOPLE”: THE ONBOARD ENCOUNTERS OF MIMI GORZELLE. On the afternoon of May 30, 1965, Mimi Gorzelle lay on the roof of her cottage at Mason Lake, Wisconsin when a UFO appeared. To her shock, she saw two gray ETs looking at her from the portholes. The next thing she knew, the craft was leaving and four hours had passed. Afterwards, she meditated on the incident and recalled that she was taken onboard by the grays. A few months later, she was taken onboard again and saw human-looking figures who showed interest in her psychic abilities.
+<p>“THESE WERE NOT EARTH PEOPLE”: THE ONBOARD ENCOUNTERS OF MIMI GORZELLE. On the afternoon of May 30, 1965, Mimi Gorzelle lay on the roof of her cottage at Mason Lake, Wisconsin when a UFO appeared. To her shock, she saw two gray ETs looking at her from the portholes. The next thing she knew, the craft was leaving and four hours had passed. Afterwards, she meditated on the incident and recalled that she was taken onboard by the grays. A few months later, she was taken onboard again and saw human-looking figures who showed interest in her psychic abilities.</p>
  
-“I DIDN’T EVEN KNOW WHAT A UFO WAS.”: THE ONBOARD ENCOUNTER OF CARLOS ALBERTO DIAZ. Around 3:50 am on January 5, 1975, Carlos Alberto Diaz was walking with two friends to his home in Puerto Ingeniero White, Argentina when a UFO appeared overhead. Carlos was was pulled onboard in full view of his two friends. Inside, he met three greenish humanoids wearing tan, rubbery suits who began to take hair samples. Carlos passed out and woke up hours later, and more than 400 miles away. Rushed to the hospital, he was examined by 47 officials who became convinced of his encounter.
+<p>“I DIDN’T EVEN KNOW WHAT A UFO WAS.”: THE ONBOARD ENCOUNTER OF CARLOS ALBERTO DIAZ. Around 3:50 am on January 5, 1975, Carlos Alberto Diaz was walking with two friends to his home in Puerto Ingeniero White, Argentina when a UFO appeared overhead. Carlos was was pulled onboard in full view of his two friends. Inside, he met three greenish humanoids wearing tan, rubbery suits who began to take hair samples. Carlos passed out and woke up hours later, and more than 400 miles away. Rushed to the hospital, he was examined by 47 officials who became convinced of his encounter.</p>
 
-TAKEN FROM THE BACK YARD: THE ONBOARD ENCOUNTER OF VLADIMIR KHARITONOV. On January 15, 1978, student Vladimir Kharitonov went to visit his parents in Pskov, Russia. Going outside, he was shocked to see three humanoid figures dressed in metallic suits in the backyard. Next to them was a small craft with a transparent dome. Vladimir accepted an invitation to enter the craft, and suddenly realized that the craft was flying upwards. Fearing he was being taken away, he became hostile and fought the ETs. He promptly passed out and woke up lying in his parents’ backyard.
+<p>TAKEN FROM THE BACK YARD: THE ONBOARD ENCOUNTER OF VLADIMIR KHARITONOV. On January 15, 1978, student Vladimir Kharitonov went to visit his parents in Pskov, Russia. Going outside, he was shocked to see three humanoid figures dressed in metallic suits in the backyard. Next to them was a small craft with a transparent dome. Vladimir accepted an invitation to enter the craft, and suddenly realized that the craft was flying upwards. Fearing he was being taken away, he became hostile and fought the ETs. He promptly passed out and woke up lying in his parents’ backyard.</p>
 
-PSYCHOANALYZED BY THE GRAYS: THE ONBOARD ENCOUNTER OF BRIAN X. On February 24, 2011, Brian (pseudonym) was in his home in Lee's Summit, Missouri when colored lights entered his bedroom, putting him into a trance. He felt a small hand grab his. The next thing he knew, he was lying on a table being examined by three gray ETs. To his amazement, he had the impression that the craft itself was a living being, and that it was psychically connected to the grays. He sensed that the grays were there to help him. After being examined, he was returned to his bedroom.
+<p>PSYCHOANALYZED BY THE GRAYS: THE ONBOARD ENCOUNTER OF BRIAN X. On February 24, 2011, Brian (pseudonym) was in his home in Lee's Summit, Missouri when colored lights entered his bedroom, putting him into a trance. He felt a small hand grab his. The next thing he knew, he was lying on a table being examined by three gray ETs. To his amazement, he had the impression that the craft itself was a living being, and that it was psychically connected to the grays. He sensed that the grays were there to help him. After being examined, he was returned to his bedroom.</p>
 
-Seven encounters, each providing a tantalizing glimpse into the what it’s like to be taken onboard a UFO. Each case provides another piece of the puzzle and adds to our knowledge of ET contact. There are too many cases to explain away. UFOs are real; we are being visited.
+<p>Seven encounters, each providing a tantalizing glimpse into the what it’s like to be taken onboard a UFO. Each case provides another piece of the puzzle and adds to our knowledge of ET contact. There are too many cases to explain away. UFOs are real; we are being visited.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 EPISDOE #248. UFO ENTITIES: TEN TRUE EXTRATERRESTRIAL ENCOUNTERS. LINK: https://youtu.be/1WLbo_L2rNk    December 20, 2024
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
