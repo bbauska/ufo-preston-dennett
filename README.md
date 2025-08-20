@@ -1,9 +1,6 @@
-# preston-dennett-ufos
-Preston Dennett began researching UFOs and the paranormal in 1986. Since then, I have written dozens of books and more than 100 articles about UFOs and the paranormal.
-
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3>EPISODE #275. MINDBOGGLING HUMANOID ENCOUNTERSL SIX SHOCKING CASES.</h3>
-  LINK: https://youtu.be/TnGr33HOAaM                                                                    August 15, 2025
+<h3><a href="https://youtu.be/TnGr33HOAaM">EPISODE #275. MINDBOGGLING HUMANOID ENCOUNTERSL SIX SHOCKING CASES</a>.</h3>
+<h5>LINK: https://youtu.be/TnGr33HOAaM</h5>                                                             <h5>August 15, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>18,435 views  Aug 15, 2025</h6>
 <p>A face-to-face encounter with a humanoid creature is one of the most shocking and 
@@ -75,10 +72,11 @@ appears to be an intentional event designed to impart wisdom to an individual to
 guide them through their lives. They show that extraterrestrial contact can play a very 
 powerful role in a person’s life-path.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #274. ONBOARD AN EXTRATERRESTRIAL CRAFT: FIVE FANTASTIC FIRSTHAND CASES.</h3>
-LINK: https://youtu.be/cdvOvf3C4RE                                                                         August 8, 2025
+<h3><a href="https://youtu.be/cdvOvf3C4RE">EPISODE #274. ONBOARD AN EXTRATERRESTRIAL CRAFT: 
+FIVE FANTASTIC FIRSTHAND CASES</a>.</h3>
+<h5>LINK:https://youtu.be/cdvOvf3C4RE</h5>                                                              <h5>August 8, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-44,502 views  Aug 8, 2025
+<h6>44,502 views  Aug 8, 2025</h6>
 <p>It is the closest of all UFO experiences: being taken onboard a craft. Cases like these 
 represent the frontline of research. They contain more information than any other type 
 of UFO encounter and offer the opportunity to answer the many questions that surround 
@@ -146,8 +144,8 @@ don’t have the luxury of disbelief. The question is not, are these cases takin
 The evidence speaks for itself. The question is, will humanity heed the advice given 
 by the ETs?</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3>EPISODE #273. UFOS IN YOUR HOMETOWN: EPISIDE THIRTEEN.</h3>
-<h5>LINK: https://youtu.be/6TBn8rcJ6jQ</h5>                                                             August 1, 2025</h5>
+<h3><a href="https://youtu.be/6TBn8rcJ6jQ">EPISODE #273. UFOS IN YOUR HOMETOWN: EPISIDE THIRTEEN</a>.</h3>
+<h5>LINK: https://youtu.be/6TBn8rcJ6jQ</h5>                                                             <h5>August 1, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>Welcome to “UFOs in Your Hometown Episode Thirteen,” the continuing investigative series 
 which proves that UFOs are being seen everywhere on this planet. This series was born 
@@ -218,8 +216,8 @@ encounters, the actual number of cases must be mindbogglingly huge. It appears t
 extraterrestrials are conducting a vigorous and well-orchestrated publicity campaign to 
 announce their presence.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-EPISODE #272. ONBOARD AN EXTRATERRESTRIAL CRAFT: SEVEN FIRSTHAND CASES. 
-  LINK: https://youtu.be/_EyP2gq4rd8                                                                    July 11, 2025
+<h3><a href="https://youtu.be/_EyP2gq4rd8">EPISODE #272. ONBOARD AN EXTRATERRESTRIAL CRAFT: SEVEN FIRSTHAND CASES</a>.</h3>
+<h5>LINK: https://youtu.be/_EyP2gq4rd8</h5>                                                             <h5>July 11, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 144,202 views  Jul 11, 2025
 <p>The onboard UFO experience is the cutting edge of UFO research. It is the closest and 
