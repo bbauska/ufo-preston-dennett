@@ -14,7 +14,7 @@ particularly unusual cases. In each of these cases, the witnesses not only held
 conversations with the ETs, but they were given information that impacted them for the 
 rest of their lives.</p>
  
-<p>THE ALIEN PLAN. One evening in April 1962, five-year-old Worthington White woke up in his 
+<p><span class="bigBoy">THE ALIEN PLAN</span>. One evening in April 1962, five-year-old Worthington White woke up in his 
 grandmother’s home in Quantico, Virginia to see light flooding into his bedroom through 
 the attic door. He noticed three short child-like figures standing in the room. One of 
 them approached and began to communicate telepathically, downloading information into 
@@ -24,7 +24,7 @@ challenges, but the advice given to him by the ETs appeared in his mind and help
 the course of his life, eventually putting him in an incredibly influential career at 
 the very top of the US government.</p>
 
-<p>A GRAY SAT NEXT TO ME. One night in June 1963, seventeen-year-old Victor was driving 
+<p><span class="bigBoy">A GRAY SAT NEXT TO ME</span>. One night in June 1963, seventeen-year-old Victor was driving 
 along a remote road in Deptford, New Jersey. Without warning, his headlights failed, 
 his car engine quit, and he rolled to a stop. A sudden inexplicable and overwhelming 
 fear swept through him and he realized someone was sitting next to him in his car. 
@@ -33,7 +33,7 @@ peace that he became instantly calm. In then communicating him with telepathical
 filling his mind with volumes of information. It then disappeared, but from that 
 point on, Victor slowly discovered that the gray had taught him many things.</p>
 
-<p>THE RAINBOW MAN. One afternoon in summer 1974, two brothers, Thomas (age 5) and Kevin 
+<p><span class="bigBoy">THE RAINBOW MAN</span>. One afternoon in summer 1974, two brothers, Thomas (age 5) and Kevin 
 (age 4) from Needmore, Pennsylvania, noticed a hippy-looking man sit down in their 
 backyard. The man began to communicate to them telepathically. Both boys noticed the 
 man had a visible aura filled with rainbow colors. The man shared knowledge with them 
@@ -42,7 +42,7 @@ Earth’s natural wonders, and teaching them both about their past, present and 
 life. Both were deeply impacted by the encounter and found that the knowledge the man 
 shared with them helped to guide them throughout their adult life.</p>
 
-<p>I WAS SO SCARED, I STARTED TO CRY. One night in summer 1988, a young boy, Jose de Diego 
+<p><span class="bigBoy">I WAS SO SCARED, I STARTED TO CRY</span>. One night in summer 1988, a young boy, Jose de Diego 
 Vazquez, was walking through the Yunque Rain Forest in Puerto Rico as part of a survival 
 training course. Strange lights flew overhead and landed behind a large rock. Jose was 
 petrified with fear when a male humanoid stepped out and began to speak with him, 
@@ -50,7 +50,7 @@ telling him not to be afraid. The figure then used strange symbols to share asto
 information with the young boy. The man disappeared, and Jose ran back to camp only to 
 be faced with a strange mystery. No time had passed during the entire encounter!</p>
 
-<p>THE BLOOD OF THE KINGS. On the night of January 10, 2010, a man heard a strange knocking 
+<p><span class="bigBoy">THE BLOOD OF THE KINGS</span>. On the night of January 10, 2010, a man heard a strange knocking 
 sound on his back door in Toledo Ohio. Going to investigate, he was met by a short gray 
 alien. The man invited the gray inside, at which point, a long conversation followed. 
 The gray saud they had observed the man since childhood, that they were very interested 
@@ -58,7 +58,7 @@ in his genetics, and then proceeded to answer all the witness’s questions, eve
 the witness to touch the ET. The ET had some questions of his own. It was an encounter 
 that would change the witness’s life.</p>
 
-<p>THE HARVESTERS OF MEMORIES. Ever since he was a young boy, Christopher, a boy from South 
+<p><span class="bigBoy">THE HARVESTERS OF MEMORIES</span>. Ever since he was a young boy, Christopher, a boy from South 
 Dakota, had been visited by gray ETs. Usually they stood by his bed and seemed to study 
 him. The visits occurred at least twice a year, but doubled when Christopher (who was 
 being treated for Aspergers and depression) decided to stop taking prescription medicine. 
@@ -90,7 +90,7 @@ particularly extensive and lesser-known onboard UFO encounters from across the w
 of the cases involve multiple witnesses, each of who were given amazing information 
 about the ETs and/or the future of our planet.</p>
 
-<p>I HAVE NO FEAR. On the night of February 4, 1974, a family of three was camping in a 
+<p><span class="bigBoy">I HAVE NO FEAR</span>. On the night of February 4, 1974, a family of three was camping in a 
 remote and isolated area of the vast Sonoran Desert in Mexico. In the middle of the 
 night, they were awakened by a beeping noise but couldn’t locate the source. The next 
 morning, the mother had the impression that a UFO had visited them in the night. Years 
@@ -100,7 +100,7 @@ predictions about the future of humanity. The son recalled being shown strange a
 symbols. The mother could only recall being led up to the craft. All four say that the 
 strange encounter remains one of the most mysterious events of their lives.</p>
 
-<p>I HAD A ROLE TO PLAY. One night in June of 1975, a newly engaged couple were in Minong, 
+<p><span class="bigBoy">I HAD A ROLE TO PLAY</span>. One night in June of 1975, a newly engaged couple were in Minong, 
 Pennsylvania when they saw a UFO and experienced a period of missing time. They alerted 
 their family who also saw the object. They flashed a light at it, and it flashed back 
 and disappeared. Later, the couple realized that they had missing time and went under 
@@ -109,7 +109,7 @@ He told her that the world was on the verge of catastrophe, and that she had a r
 play in helping humanity. The man recalled only that the ETs were concerned for the 
 world. Both say the encounter was benevolent.</p>
 
-<p>MY WHOLE CONCEPT OF THE UNIVERSE CHANGED. In 1975, Frank Johnson of eastern Pennsylvania 
+<p><span class="bigBoy">MY WHOLE CONCEPT OF THE UNIVERSE CHANGED</span>. In 1975, Frank Johnson of eastern Pennsylvania 
 began meditating in the hopes of making contact with ETs. Immediately, he and his wife 
 Alice experienced a series of close-up sightings outside their home. Then, one evening, 
 the room lit up and the couple saw a UFO outside. The went outside and were suddenly 
@@ -119,7 +119,7 @@ medical condition. The husband held a long telepathic conversation with the ETs 
 astronomy, other dimensions and humanity. The two were then returned to their home. 
 Later the woman had another missing time encounter.</p>
 
-<p>OUR MISSION IS ONE OF PEACE. On the night of January 28, 1978, a man was hiking near Lago 
+<p><span class="bigBoy">OUR MISSION IS ONE OF PEACE</span>. On the night of January 28, 1978, a man was hiking near Lago 
 Vichuquen, Chile when a massive saucer-shaped craft appeared overhead, struck him with a 
 beam of light and pulled him into the craft. He was greeted by three human-looking 
 figures wearing tan-jumpsuits. Frightened at first, the witness calmed down as the ETs 
@@ -127,7 +127,7 @@ explained that they just wanted to speak with him. A very long conversation ensu
 during which the ETs answered all the man’s questions and offered volumes of information 
 about themselves and the history and future of humanity.</p>
 
-<p>A PURE LEARNING EXPERIENCE. At 2am on July 1, 1996, two men were driving near Coates, 
+<p><span class="bigBoy">A PURE LEARNING EXPERIENCE</span>. At 2am on July 1, 1996, two men were driving near Coates, 
 Minnesota when they heard a loud buzzing noise, and saw a glowing craft alongside the 
 road. They stopped the car. One of the witnesses exited the car to take a closer look. 
 The next thing they knew, hours had passed, they were approaching the next town, and 
@@ -164,7 +164,7 @@ are supported by compelling evidence: landing traces, medical effects, animal re
 EM disturbances, radar returns and startling photographs. This series proves beyond a 
 reasonable doubt that we are not alone in this universe.</p>
 
-<p>PITTSBURGH, PENNSYLVANIA. In 1948, military pilots saw strange objects in the skies. 
+<p><span class="bigBoy">PITTSBURGH, PENNSYLVANIA</span>. In 1948, military pilots saw strange objects in the skies. 
 More sightings occurred in the 1950s, which also produced startling cases of direct 
 contact. In 1950, a woman reports that small humanoids entered her home and communicated 
 with her telepathically. In 1954, a girl came upon a landed craft and a humanoid. In 
@@ -177,13 +177,13 @@ more startling encounters, including a couple who saw a disc over the Birmingham
 and man who collided into a UFO while driving. In the years that followed, Pittsburgh 
 produced more encounters, making it clear that the city is of great interest to the ETs.</p>
 
-<p>PITTSBURG, CALIFORNIA. This area has produced some very close encounters. In 1977, three 
+<p><span class="bigBoy">PITTSBURG, CALIFORNIA</span>. This area has produced some very close encounters. In 1977, three 
 boys were out hiking when a UFO landed nearby, and three strange humanoids chased them 
 for several blocks. In 2009, a man observed a UFO so close to his home, his windows 
 vibrated from the humming sound it produced. In 2014, a group of witnesses gathered in a 
 McDonald’s Restaurant Parking lot and observed strange craft at very elevation.</p>
 
-<p>ATTLEBORO, MASSACHUSETTS. In addition to many cases of anomalous lights, this city has 
+<p><span class="bigBoy">ATTLEBORO, MASSACHUSETTS</span>. In addition to many cases of anomalous lights, this city has 
 some truly amazing cases. In December 1975, an entire family observed a spherical craft 
 hover overhead. Some of them chased after it in their car, and they ended up having 
 missing time. In 1981, three sisters called the police after a craft swooped down from 
@@ -192,7 +192,7 @@ with a metallic disc which hovered right in front of their car. Unknown to them,
 other people also saw the craft. In 2010, a family saw strange dome-shaped craft while 
 driving near the home.</p>
 
-<p>OAHU, HAWAII. This island has a very rich history of encounter. 1924, a young boy had a 
+<p><span class="bigBoy">OAHU, HAWAII</span>. This island has a very rich history of encounter. 1924, a young boy had a 
 weird encounter with a humanoid on the beach. When a navy officer came upon a landed UFO 
 and humanoids in 1944, the case resulted in an apparent retrieval of the craft by the 
 military. The 1950s brought a flood of sightings, including a massive wave directly over 
@@ -201,7 +201,7 @@ more humanoid cases, including onboard UFO encounters complete with profound ali
 messages. There were also some amazing photographic cases. Activity continued with dozens 
 of encounters, even as recent as 2023.</p>
 
-<p>MORGANTON, NORTH CAROLINA. This small town has produced several amazing encounters. A 
+<p><span class="bigBoy">MORGANTON, NORTH CAROLINA</span>. This small town has produced several amazing encounters. A 
 sighting over the North Carolina School for the Deaf involved more than a dozen 
 witnesses. In 1980, a wave of sightings generated numerous calls to the police from 
 concerned residents describing metallic craft hovering near their homes. In 1981, two 
@@ -234,7 +234,7 @@ each of these cases, the witnesses were not only taken onboard; they were able t
 conversations with the ETs. Each of these cases provides fascinating and profound 
 insights into what it’s like to have direct contact with extraterrestrials.</p>
 
-<p>THE DISAPPEARANCE OF ANNI LATTU. In early 1917, the residents of the small village of 
+<p><span class="bigBoy">THE DISAPPEARANCE OF ANNI LATTU</span>. In early 1917, the residents of the small village of 
 Jyrinvaara, Finland were puzzled by the disappearance of Anni Lattu, who lived in the 
 area. When Annie returned, she shocked everyone with her claim that a silver craft had 
 landed next to her cottage, and short little beings had taken her onboard. Although 
@@ -242,7 +242,7 @@ she was frightened, the humanoids were very friendly and took her on a tour acro
 the world and into outer space. They offered her the opportunity to stay with them. 
 Annie declined, and they returned her to her home, days later.</p>
 
-<p>I WAS LIFTED INTO THE SKY. In the summer of 1953, Derek (age 5) was walking along a 
+<p><span class="bigBoy">I WAS LIFTED INTO THE SKY</span>. In the summer of 1953, Derek (age 5) was walking along a 
 remote dirt road near his home in rural Phenix City, Alabama. He was nervous, as he 
 had recently twice seen a Bigfoot-like creature in the nearby ravine. This time, he 
 was shocked when a beam of light struck him from above and he found himself being 
@@ -250,7 +250,7 @@ lifted into the sky toward a metallic craft. Inside, he saw three humanoids, who
 assured him that no harm would come to him. He was returned, but that night, he woke 
 up to see three even more unusual creatures in his room.</p>
 
-<p>I WAS BEING WATCHED. In 1961, Joyce Halfin (age 6) was in her bedroom in Ottawa, Canada 
+<p><span class="bigBoy">I WAS BEING WATCHED</span>. In 1961, Joyce Halfin (age 6) was in her bedroom in Ottawa, Canada 
 when she saw strange figures by her window. Suddenly she flew up in the sky over her 
 house. She blacked out and assumed it must have been a crazy dream. But she knew it 
 wasn’t and as she grew up, more encounters occurred. Curious, she tried hypnosis, and 
@@ -258,7 +258,7 @@ learned that in 1961, she was taken onboard by praying mantis-type ETs and physi
 examined. Later, she was taken again, and they told her how they pilot their craft and 
 other spiritual information.</p>
 
-<p>IT ACTUALLY HAPPENED TO ME. In June 1978, an anonymous high-ranking Soviet officer 
+<p><span class="bigBoy">IT ACTUALLY HAPPENED TO ME</span>. In June 1978, an anonymous high-ranking Soviet officer 
 walked along the shore of Lake Pyrogovskoye in the Soviet Union when he was approached 
 by two strange men in jumpsuits. They spoke to him telepathically, requested to speak 
 with him, and quickly took him onboard a craft. A long conversation followed as the ETs 
@@ -266,7 +266,7 @@ answered all his questions. They gave him a demonstration of their craft and eve
 him to their planet. They returned him to Earth and asked him not to speak about his 
 encounter.</p>
 
-<p>WE ARE ALL BROTHERS. While hunting near his home in Baependi, Brazil, on May 16, 1979, 
+<p><span class="bigBoy">WE ARE ALL BROTHERS</span>. While hunting near his home in Baependi, Brazil, on May 16, 1979, 
 Arlindo Gabriel dos Santos was amazed to see a small, strange object land in a nearby 
 forest clearing. It was followed by two more. Then a large craft landed, and short 
 humanoids emerged. Afraid, Arlindo turned to flee, but found himself being pulled 
@@ -274,14 +274,14 @@ onboard. The ETs held a conversation with him, explaining why they were there an
 where they came from. He was then returned. He suffered many physical symptoms. 
 Strange landing traces were found at the site.</p>
 
-<p>WE ARE JUST MEASURING YOU. On the night of May 28, 1991, Susan, a resident of Burien 
+<p><span class="bigBoy">WE ARE JUST MEASURING YOU</span>. On the night of May 28, 1991, Susan, a resident of Burien 
 Washington, was puzzled by the unexplained barking of her dog. That night, she was 
 woken in bed by an eerie blue light streaming through her window. Without warning, 
 she found herself lying on a table in a strange room surrounded by gray-type 
 extraterrestrials. They gave her a quick physical exam and returned her to her 
 bedroom.</p>
 
-<p>I COULDN’T LOOK AWAY. On the night of September 2, 2021, while cutting wood outside 
+<p><span class="bigBoy">I COULDN’T LOOK AWAY</span>. On the night of September 2, 2021, while cutting wood outside 
 his home in Wasilla, Alaska, Andrew was puzzled by the appearance of a shining golden 
 object in the sky. He became transfixed and started to receive powerful telepathic 
 communication. The object moved lower, and he found himself rising upwards and into 
