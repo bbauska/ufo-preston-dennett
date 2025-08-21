@@ -295,8 +295,8 @@ the luxury of disbelief. They not only carry the weight of knowing their experie
 true but dealing with a society that refuses to accept the reality of ET contact. 
 Thankfully things are changing for the better.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3><a href="https://youtu.be/7TNSZi3qgaI" target="_blank" rel="noopener noreferrer">EPISODE #271. IT WAS NOT HUMAN: 
-SEVEN SHOCKING HUMANOID ENCOUNTERS</a>.</h3>
+<h3><a href="https://youtu.be/7TNSZi3qgaI" target="_blank" rel="noopener noreferrer">EPISODE #271. 
+IT WAS NOT HUMAN: SEVEN SHOCKING HUMANOID ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/7TNSZi3qgaI</h5>                                                             <h5>July 4, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>24,368 views  Jul 4, 2025</h6>
@@ -447,8 +447,8 @@ acknowledge the many humanoid reports. This is strange because these cases repre
 cutting edge of UFO research. After all, something or someone is inside UFOs. The 
 evidence points towards UFOs being craft piloted by extraterrestrials.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3><a href="https://www.youtube.com/watch?v=SiE1G9Ku9YQ" target="_blank" rel="noopener noreferrer">
-EPISODE #269. HAVE NO FEAR: SEVEN ASTOUNDING ONBOARD UFO Encounters</a>.</h3>
+<h3><a href="https://www.youtube.com/watch?v=SiE1G9Ku9YQ" target="_blank" rel="noopener noreferrer">EPISODE #269. 
+HAVE NO FEAR: SEVEN ASTOUNDING ONBOARD UFO Encounters</a>.</h3>
 <h5>LINK: https://www.youtube.com/watch?v=SiE1G9Ku9YQ</h5>                                              <h5>May 30, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>Of all types of UFO encounters, the most extensive and profound are cases where people 
@@ -750,33 +750,85 @@ NOT HUMAN: TWELVE VERY WEIRD HUMANOID ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/Px6FhCzaAx8</h5>                                                             <h5>May 2, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>25,858 views  May 2, 2025</h6>
-One of the interesting things about encounters with strange beings is that they are humanoid in form, bipedal beings that look much like us, but are clearly not human. The humanoid form seems to be the universal template. This is what the first-hand accounts are showing us. There are thousands of cases, going back more than 100 years, coming from all over the world. Midget-like ETs, tall beings, grays, robotic creatures, mantids, human-looking and more. This video presents 12 cases, each showing the variety and the unique high-strangeness aspects of face-to-face encounters with humanoids.
+One of the interesting things about encounters with strange beings is that they are 
+humanoid in form, bipedal beings that look much like us, but are clearly not human. The 
+humanoid form seems to be the universal template. This is what the first-hand accounts 
+are showing us. There are thousands of cases, going back more than 100 years, coming 
+from all over the world. Midget-like ETs, tall beings, grays, robotic creatures, mantids, 
+human-looking and more. This video presents 12 cases, each showing the variety and the 
+unique high-strangeness aspects of face-to-face encounters with humanoids.
 
-<span class="bigBoy">WE COME FROM A DIFFERENT PLANET</span>. One evening in the summer of 1957, a woman awoke in the bedroom of her home in Jutland, Denmark to see three 2-foot-tall humanoids come through the closed window. Each looked identical, with beautiful human-looking faces and kind eyes. They said they came from a different planet and promptly left.
+<span class="bigBoy">WE COME FROM A DIFFERENT PLANET</span>. One evening in the summer of 
+1957, a woman awoke in the bedroom of her home in Jutland, Denmark to see three 2-foot-tall 
+humanoids come through the closed window. Each looked identical, with beautiful human-
+looking faces and kind eyes. They said they came from a different planet and promptly left.
 
-<span class="bigBoy">ETS LAND AT FARMHOUSE</span>. One day in October 1957, a farmer and his workers saw a flying saucer land on his farm in Campinas, Brazil. Three human-looking figures exited and went to collect water from the river. They returned to their craft, which took off. Many odd effects were found, landing traces, EM disturbances, metal fragments, and more witnesses.
+<span class="bigBoy">ETS LAND AT FARMHOUSE</span>. One day in October 1957, a farmer and 
+his workers saw a flying saucer land on his farm in Campinas, Brazil. Three human-looking 
+figures exited and went to collect water from the river. They returned to their craft, 
+which took off. Many odd effects were found, landing traces, EM disturbances, metal 
+fragments, and more witnesses.
 
-<span class="bigBoy">EXTRATERRESTRIAL TOURISTS?</span> One night in October 1959, Mrs. Moulet and her three children stepped out of their home in Aubagne, France to hang the laundry. Suddenly an egg-shaped craft hovered overhead. Through a big porthole, they saw 20 blond men in white shirts looking down smiling at them. Soon, the craft zoomed off.
+<span class="bigBoy">EXTRATERRESTRIAL TOURISTS?</span> One night in October 1959, Mrs. 
+Moulet and her three children stepped out of their home in Aubagne, France to hang the 
+laundry. Suddenly an egg-shaped craft hovered overhead. Through a big porthole, they 
+saw 20 blond men in white shirts looking down smiling at them. Soon, the craft zoomed 
+off.
 
-<span class="bigBoy">THE LITTLE GREEN MAN OF LUUMAKI</span>. On August 19, 1965 and the Kuningas family went berry-picking in the fields out of Hermunen in Luumaki, Finland. A 3-foot-tall humanoid appeared. It had red skin, a human-looking face, and wore a tight green jumpsuit. The father and son were unable to move as the being approached, then ran off into the woods.
+<span class="bigBoy">THE LITTLE GREEN MAN OF LUUMAKI</span>. On August 19, 1965 and the 
+Kuningas family went berry-picking in the fields out of Hermunen in Luumaki, Finland. A 
+3-foot-tall humanoid appeared. It had red skin, a human-looking face, and wore a tight 
+green jumpsuit. The father and son were unable to move as the being approached, then 
+ran off into the woods.
 
-<span class="bigBoy">IF I HADN’T SEEN IT MYSELF, I COULD NOT HAVE BEEN CONVINCED</span>. One night in February 1968, a couple looked out of their home in Greensburg, Pennsylvania to see a saucer-shaped craft over their backyard pond. To their shock, they saw a humanoid figure standing on a railing outside the craft looking down at them. They called their relatives who drove over and saw the craft.
+<span class="bigBoy">IF I HADN’T SEEN IT MYSELF, I COULD NOT HAVE BEEN CONVINCED</span>. 
+One night in February 1968, a couple looked out of their home in Greensburg, Pennsylvania 
+to see a saucer-shaped craft over their backyard pond. To their shock, they saw a humanoid 
+figure standing on a railing outside the craft looking down at them. They called their 
+relatives who drove over and saw the craft.
 
-<span class="bigBoy">SIX ALIENS ON BEENLEIGH ROAD</span>. At 2am on July 19, 1972, a man drove to work along the Beenleigh Road, in Kuraby, Queensland, Australia. Suddenly he saw six humanoid figures in cream-colored jumpsuits and diamond-like faceplates standing next to the road. Nearby, a large craft hovered. He drove off in fear and vowed to never drive that road again.
+<span class="bigBoy">SIX ALIENS ON BEENLEIGH ROAD</span>. At 2am on July 19, 1972, a man 
+drove to work along the Beenleigh Road, in Kuraby, Queensland, Australia. Suddenly he saw 
+six humanoid figures in cream-colored jumpsuits and diamond-like faceplates standing next 
+to the road. Nearby, a large craft hovered. He drove off in fear and vowed to never drive 
+that road again.
 
-<span class="bigBoy">THE MAN WAVED BACK</span>. Driving along a remote road in Covington, Michigan, one night in September 1973, a man was shocked to see a UFO hover over the car ahead of him. The car stopped, and the lady knelt down to pray. The man saw a blond man looking at him through a porthole. He waved, and the man waved back, and the craft zipped away.
+<span class="bigBoy">THE MAN WAVED BACK</span>. Driving along a remote road in Covington, 
+Michigan, one night in September 1973, a man was shocked to see a UFO hover over the car 
+ahead of him. The car stopped, and the lady knelt down to pray. The man saw a blond man 
+looking at him through a porthole. He waved, and the man waved back, and the craft zipped 
+away.
 
-<span class="bigBoy">A PRESSURE INSIDE HIS HEAD</span>. At 10pm on January 6, 1978, two men were walked along a street in Santo Antonio da Caparico, Portugal when a light zoomed overheard. They ran to get a closer look and saw by a 7-foot-tall being in a glowing white jumpsuit. They fled in panic. Later, landing traces were found and one of the men suffered weird effects.
+<span class="bigBoy">A PRESSURE INSIDE HIS HEAD</span>. At 10pm on January 6, 1978, two 
+men were walked along a street in Santo Antonio da Caparico, Portugal when a light zoomed 
+overheard. They ran to get a closer look and saw by a 7-foot-tall being in a glowing white 
+jumpsuit. They fled in panic. Later, landing traces were found and one of the men suffered 
+weird effects.
 
-<span class="bigBoy">THE CREATURES IN THE WOODS</span>. On April 27, 1986, a karate teacher and his student went jogging in the woods by Gravina di Puglia, Italy. Seeing two 7-foot-tall figures in white uniforms, they ran and called the police. They soon learned that three hunters also saw the beings. The police found odd marks on the ground where the beings had stood.
+<span class="bigBoy">THE CREATURES IN THE WOODS</span>. On April 27, 1986, a karate teacher 
+and his student went jogging in the woods by Gravina di Puglia, Italy. Seeing two 7-foot-tall 
+figures in white uniforms, they ran and called the police. They soon learned that three hunters 
+also saw the beings. The police found odd marks on the ground where the beings had stood.
 
-<span class="bigBoy">“WHY ARE YOU TRYING TO HURT ME?”</span> For days, “Lee” of Gary, Indiana had a feeling of being watched. Then on the night of June 15, 1986, he awoke to see a gray alien standing next to his bed. Afraid, he threw a pillow at it. The gray looked at him and asked, “Why are you trying to hurt me?” Lee felt great love coming from the being, who promptly vanished.
+<span class="bigBoy">“WHY ARE YOU TRYING TO HURT ME?”</span> For days, “Lee” of Gary, Indiana 
+had a feeling of being watched. Then on the night of June 15, 1986, he awoke to see a gray 
+alien standing next to his bed. Afraid, he threw a pillow at it. The gray looked at him and 
+asked, “Why are you trying to hurt me?” Lee felt great love coming from the being, who promptly 
+vanished.
 
-<span class="bigBoy">IT’S NOT HUMAN</span>. One night in October 2010, two men were walking along the foothills of the mountains in Tandil, Argentina when they saw a strange light. Getting closer, they saw it was a glowing humanoid, wearing a clear helmet. When it started to levitate, they turned and ran. To their shock, it began to follow them.
+<span class="bigBoy">IT’S NOT HUMAN</span>. One night in October 2010, two men were walking 
+along the foothills of the mountains in Tandil, Argentina when they saw a strange light. 
+Getting closer, they saw it was a glowing humanoid, wearing a clear helmet. When it started 
+to levitate, they turned and ran. To their shock, it began to follow them.
 
-<span class="bigBoy">THE ALIEN AND THE SQUIRRELS</span>. One morning in December 2012, a couple looked outside their home in Villaviciosa de Odon, Spain and were shocked to see 200 squirrels on their porch. Then they saw a 9-foot-tall humanoid in a red jumpsuit floating in their backyard. After 15 minutes, it departed, and the squirrels dispersed.
+<span class="bigBoy">THE ALIEN AND THE SQUIRRELS</span>. One morning in December 2012, a 
+couple looked outside their home in Villaviciosa de Odon, Spain and were shocked to see 
+200 squirrels on their porch. Then they saw a 9-foot-tall humanoid in a red jumpsuit 
+floating in their backyard. After 15 minutes, it departed, and the squirrels dispersed.
 
-Twelve cases, each showing the familiar humanoid form, yet each with  unique details. These cases make it clear that something profound is happening here, and that we still have much to understand about these visitors to our planet.
+Twelve cases, each showing the familiar humanoid form, yet each with  unique details. 
+These cases make it clear that something profound is happening here, and that we still 
+have much to understand about these visitors to our planet.
 
 PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
@@ -855,21 +907,73 @@ to us!</p>
 THE SPACESHIP HOUSE</a>.</h3>
 <h5>LINK: https://youtu.be/fMphYLQySzI</h5>                                                             <h5>April 18, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p>Joe Gardner (an artist from Huntington, West Virginia) was five years old when he had his first strange encounter. It was 1974 and he and his mother stood in the parking lot of the local Foodland grocery store. Suddenly Joe heard a singsong voice speak s in his mind, “Joe-Joe. Joe-Joe.” Looking up he saw a shiny metallic cylindrical object floating overhead. He pointed it out to his mother who also saw it. So began Joe’s life of high strangeness. Following this, he and his entire family had a dramatic missing time encounter with a landed UFO. A few years later, Joe had another onboard encounter. But for various reasons, both these events became buried in his mind and shrouded in forgetfulness.</p>
+<p>Joe Gardner (an artist from Huntington, West Virginia) was five years old when he had 
+his first strange encounter. It was 1974 and he and his mother stood in the parking lot 
+of the local Foodland grocery store. Suddenly Joe heard a singsong voice speak s in his 
+mind, “Joe-Joe. Joe-Joe.” Looking up he saw a shiny metallic cylindrical object floating 
+overhead. He pointed it out to his mother who also saw it. So began Joe’s life of high 
+strangeness. Following this, he and his entire family had a dramatic missing time 
+encounter with a landed UFO. A few years later, Joe had another onboard encounter. But 
+for various reasons, both these events became buried in his mind and shrouded in 
+forgetfulness.</p>
 
-<p>Years later, on January 22, 1997, Joe (now 22) had a dramatic sighting of a green orb arcing across the pre-dawn sky. Two years later, on the night of April 7, 1999, he was walking his dog when a glittering diamond-shaped object appeared. Joe sent out a telepathic message, “Who are you?” The response was instantaneous: “No, not now!” Joe felt an overwhelming sense of love coming from the object. These two sightings sent Joe on a journey of awakening and discovery. It was then that he remembered the sighting at age five, and the two other major experiences that followed.</p>
+<p>Years later, on January 22, 1997, Joe (now 22) had a dramatic sighting of a green orb 
+arcing across the pre-dawn sky. Two years later, on the night of April 7, 1999, he was 
+walking his dog when a glittering diamond-shaped object appeared. Joe sent out a 
+telepathic message, “Who are you?” The response was instantaneous: “No, not now!” Joe 
+felt an overwhelming sense of love coming from the object. These two sightings sent Joe 
+on a journey of awakening and discovery. It was then that he remembered the sighting 
+at age five, and the two other major experiences that followed.</p>
 
-<p>It was just a few months after the sighting at the Foodland grocery store that Joe’s family (father, mother, sister and Joe) went for a blackberry hunting trip into nearby Kentucky. It was early afternoon, and they drove along the backroads when Joe’s father pointed out a weird-looking “spaceship house” sitting on stilts a few hundred feet off the highway. It was shiny, metallic, with portholes around the circumference. Joe begged his father to stop. They pulled off the road. Joe’s father and Joe got out and walked up to the object. There was no driveway, no telephone wires. Joe’s father knocked on the side of it, and suddenly an opening appeared, an arm stuck and gestured, and voice said, “Up here!” At the time of the incident, the next thing Joe and his father knew, they were back in the car, driving home. But now, years later, Joe recalled that they actually went onboard.</p>
+<p>It was just a few months after the sighting at the Foodland grocery store that Joe’s 
+family (father, mother, sister and Joe) went for a blackberry hunting trip into nearby 
+Kentucky. It was early afternoon, and they drove along the backroads when Joe’s father 
+pointed out a weird-looking “spaceship house” sitting on stilts a few hundred feet off 
+the highway. It was shiny, metallic, with portholes around the circumference. Joe begged 
+his father to stop. They pulled off the road. Joe’s father and Joe got out and walked 
+up to the object. There was no driveway, no telephone wires. Joe’s father knocked on 
+the side of it, and suddenly an opening appeared, an arm stuck and gestured, and voice 
+said, “Up here!” At the time of the incident, the next thing Joe and his father knew, 
+they were back in the car, driving home. But now, years later, Joe recalled that they 
+actually went onboard.</p>
 
-<p>A small ladder came down and Joe and his father climbed up into the object. Joe immediately saw a humanoid figure with a large bald head, huge darks eyes and a skinny body. He looked more like a bug than a human, though his father didn’t seem to notice. While the man and Joe’s father talked, the being motioned Joe to a table where there were small black wafers and a tumbler filled with green liquid. Joe thought it was chocolate cookies and juice and took a bite of the cookie. It was bitter, so he took a sip of the juice and promptly passed out.</p>
+<p>A small ladder came down and Joe and his father climbed up into the object. Joe 
+immediately saw a humanoid figure with a large bald head, huge darks eyes and a skinny 
+body. He looked more like a bug than a human, though his father didn’t seem to notice. 
+While the man and Joe’s father talked, the being motioned Joe to a table where there 
+were small black wafers and a tumbler filled with green liquid. Joe thought it was 
+chocolate cookies and juice and took a bite of the cookie. It was bitter, so he took a 
+sip of the juice and promptly passed out.</p>
 
-<p>Joe awoke to find himself lying on a metal table while his father sat on a small bench, apparently in a trance. An unpleasant physical exam followed, and again, Joe lost consciousness. He awoke to see a tall gray-type ET, who asked Joe if he’d like a tour of the craft. Joe was taken to another room where he saw his family sitting unmoving in separate chairs, with all kinds of activity going on around them. Becoming upset, the gray told him, telepathically, not to be afraid, that it was just a checkup. Reassured, the being then took Joe up to a room where he saw a field of stars.</p>
+<p>Joe awoke to find himself lying on a metal table while his father sat on a small 
+bench, apparently in a trance. An unpleasant physical exam followed, and again, Joe 
+lost consciousness. He awoke to see a tall gray-type ET, who asked Joe if he’d like a 
+tour of the craft. Joe was taken to another room where he saw his family sitting 
+unmoving in separate chairs, with all kinds of activity going on around them. Becoming 
+upset, the gray told him, telepathically, not to be afraid, that it was just a checkup. 
+Reassured, the being then took Joe up to a room where he saw a field of stars.</p>
 
-<p>Joe’s next memory is being in the car driving home. His whole family was upset. His father cursed angrily, and both his mother and sister were crying. When they arrived home, they discovered they were missing almost ten hours. Joe was the only one who had some recall of being taken onboard. After a visit by a Man in Black, Joe’s father forbade him to talk about it ever again.</p>
+<p>Joe’s next memory is being in the car driving home. His whole family was upset. His 
+father cursed angrily, and both his mother and sister were crying. When they arrived home, 
+they discovered they were missing almost ten hours. Joe was the only one who had some 
+recall of being taken onboard. After a visit by a Man in Black, Joe’s father forbade him 
+to talk about it ever again.</p>
 
-<p>Three years later, at age eight, Joe woke up in his bedroom to hear his name being called inside his head. Looking outside, he saw a landed craft with a man on top. “Do you want to go for a ride?” the man asked telepathically. Joe said yes, and he snuck out of the house into the craft. He was met by a human-looking man in a jumpsuit who took him to the control room, sat him in the seat and off they went, up over the city, over the earth, and the next thing Joe knew, he was looking at the planet Saturn. The experience was entirely benevolent. Returning Joe to his home, the man urged Joe to study hard at school and tell nobody about the encounter.</p>
+<p>Three years later, at age eight, Joe woke up in his bedroom to hear his name being 
+called inside his head. Looking outside, he saw a landed craft with a man on top. “Do 
+you want to go for a ride?” the man asked telepathically. Joe said yes, and he snuck 
+out of the house into the craft. He was met by a human-looking man in a jumpsuit who 
+took him to the control room, sat him in the seat and off they went, up over the city, 
+over the earth, and the next thing Joe knew, he was looking at the planet Saturn. The 
+experience was entirely benevolent. Returning Joe to his home, the man urged Joe to 
+study hard at school and tell nobody about the encounter.</p>
 
-<p>Now, as an adult, Joe began having many close-up UFO sightings and was able to take photographs of a few of them. He learned his mom had a missing time encounter. He experienced a wide variety of paranormal events, including another episode of telepathic communication. Then on April 3, 2007, Joe had a truly bizarre encounter with a blue-skinned humanoid that changed his entire outlook about his experiences, and he wondered if perhaps they weren’t ETs at all, but more akin to Djinns.</p>
+<p>Now, as an adult, Joe began having many close-up UFO sightings and was able to take 
+photographs of a few of them. He learned his mom had a missing time encounter. He 
+experienced a wide variety of paranormal events, including another episode of telepathic 
+communication. Then on April 3, 2007, Joe had a truly bizarre encounter with a blue-
+skinned humanoid that changed his entire outlook about his experiences, and he wondered 
+if perhaps they weren’t ETs at all, but more akin to Djinns.</p>
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/XrhxuCzYRuE" target="_blank" rel="noopener noreferrer">EPISODE #264. 
@@ -1040,103 +1144,321 @@ California; Dubque, Iowa; Daytona Beach, Florida; Statesville, North Carolina; a
 Annadale, New York. Sightings, landings, face-to-face encounters and more…they are 
 occurring everywhere on Earth.</p>
 
-<p>KATWIJK, HOLLAND. This small town of about twelve square miles has a couple of very interesting encounters. At 3:30 am on July 8, 2003, a woman noticed a spinning disc-shaped craft over her home. It remained in place for an hour. Afterwards, she had a terrible headache. On September 2, 2023, a witness not only saw a UFO, but photographed and filmed it.</p>
+<p>KATWIJK, HOLLAND. This small town of about twelve square miles has a couple of very 
+interesting encounters. At 3:30 am on July 8, 2003, a woman noticed a spinning disc-
+shaped craft over her home. It remained in place for an hour. Afterwards, she had a 
+terrible headache. On September 2, 2023, a witness not only saw a UFO, but photographed 
+and filmed it.</p>
 
-<p>NANJING, CHINA. One of Nanjing’s earliest sightings occurred in 1892 and was widely-viewed and memorialized in a painting. In 1999, a glowing red cylindrical object hovered for four hours over the city. In 2002, three separate pilots witnessed an unidentified craft moving through the skies. In 2009, during a solar eclipse, scientists observed and photographed a glowing object.</p>
+<p>NANJING, CHINA. One of Nanjing’s earliest sightings occurred in 1892 and was widely-
+viewed and memorialized in a painting. In 1999, a glowing red cylindrical object hovered 
+for four hours over the city. In 2002, three separate pilots witnessed an unidentified 
+craft moving through the skies. In 2009, during a solar eclipse, scientists observed 
+and photographed a glowing object.</p>
 
-<p>PAKISTAN. In 1952, the Reuters News Service reported on a sighting in Karachi involving four flying saucers. Per a CIA document, UFOs were seen in 1953. In 1955, UFOs hovered over an airport. Also in 1955, thousands of witnesses who saw a craft with humanoids inside it. A sighting of a bright red disc occurred in 1956, and in 1969, Army intelligence officers in Peshawar saw three discs in the sky. They were sworn to silence. In 1986 a group of witnesses saw 8 objects. In 2002, Pakistani pilots had a close encounter with a UFO.</p>
+<p>PAKISTAN. In 1952, the Reuters News Service reported on a sighting in Karachi 
+involving four flying saucers. Per a CIA document, UFOs were seen in 1953. In 1955, 
+UFOs hovered over an airport. Also in 1955, thousands of witnesses who saw a craft 
+with humanoids inside it. A sighting of a bright red disc occurred in 1956, and in 
+1969, Army intelligence officers in Peshawar saw three discs in the sky. They were 
+sworn to silence. In 1986 a group of witnesses saw 8 objects. In 2002, Pakistani 
+pilots had a close encounter with a UFO.</p>
 
-<p>QUAPAW, OKLAHOMA. This tiny town is well-known for mysterious spook-lights. It also has UFO encounters. In 1972, a couple witnessed three UFOs hover over their home for over an hour. In 2006, a witness driving through Quapaw saw a silver cigar-shaped object hover and dart off at high speed. In 2014, a witness saw a UFO so close, he heard it humming.</p>
+<p>QUAPAW, OKLAHOMA. This tiny town is well-known for mysterious spook-lights. It also 
+has UFO encounters. In 1972, a couple witnessed three UFOs hover over their home for 
+over an hour. In 2006, a witness driving through Quapaw saw a silver cigar-shaped object 
+hover and dart off at high speed. In 2014, a witness saw a UFO so close, he heard it 
+humming.</p>
 
-<p>SALINAS, CALIFORNIA. In 1945, an army officer  at Salinas Army Airbase saw three flying disks. In 1947, a farmer saw a metallic disc-shaped craft in his field. It was quickly nabbed by the US military. In 1950, a mini-wave caused many people to call the police. In 1950 and 1952, a UFO hovered over two different factories. In 1967, a couple saw a  disc with portholes. In 1972, a man saw a gigantic UFO which prompted memories of being visited by humanoids. 1978 brought a multi-witness case of UFOs over the airport; a 7-year-old who saw a UFO and had missing time; five boys who had a close-up sighting; and a landing of a UFO at a high school. Cases in 1981 and 2002 involved communication with the UFO occupants. In 2013, a filmed UFO sighting and crop circle brought wide publicity. More sightings occurred in 2014 and in 2019, a weird humanoid encounter.</p>
+<p>SALINAS, CALIFORNIA. In 1945, an army officer  at Salinas Army Airbase saw three 
+flying disks. In 1947, a farmer saw a metallic disc-shaped craft in his field. It was 
+quickly nabbed by the US military. In 1950, a mini-wave caused many people to call the 
+police. In 1950 and 1952, a UFO hovered over two different factories. In 1967, a couple 
+saw a  disc with portholes. In 1972, a man saw a gigantic UFO which prompted memories 
+of being visited by humanoids. 1978 brought a multi-witness case of UFOs over the 
+airport; a 7-year-old who saw a UFO and had missing time; five boys who had a close-up 
+sighting; and a landing of a UFO at a high school. Cases in 1981 and 2002 involved 
+communication with the UFO occupants. In 2013, a filmed UFO sighting and crop circle 
+brought wide publicity. More sightings occurred in 2014 and in 2019, a weird humanoid 
+encounter.</p>
 
-<p>DUBUQUE, IOWA. So many cases here! In 1880, a woman claimed a bizarre encounter with fairies. In 1947, a couple saw metallic discs over their home. In 1952, a man had an odd encounter while driving outside the city. In 1960, a pilot filmed three UFOs over Dubuque. Many others saw the objects. In 1967 two families saw an egg-shaped craft. More sightings occurred in 1972, 1977 and 1982. In 1996, a teenage boy had a closeup UFO sighting and missing time. 2002 brought two more sightings, including one by two pilots.</p>
+<p>DUBUQUE, IOWA. So many cases here! In 1880, a woman claimed a bizarre encounter with 
+fairies. In 1947, a couple saw metallic discs over their home. In 1952, a man had an 
+odd encounter while driving outside the city. In 1960, a pilot filmed three UFOs over 
+Dubuque. Many others saw the objects. In 1967 two families saw an egg-shaped craft. 
+More sightings occurred in 1972, 1977 and 1982. In 1996, a teenage boy had a closeup 
+UFO sighting and missing time. 2002 brought two more sightings, including one by two 
+pilots.</p>
 
-<p>DAYTONA BEACH, FLORIDA. Sightings of metallic discs occurred in 1950 and 1952. In 1957, a lady says a UFO paced her car. In 1959, two pilots had a near-collision with a UFO. In 1964, a man saw a UFO with twelve humanoids inside it. In 2008, a father and son saw strange orbs hovering over the ocean. In 2023, a couple saw and filmed V-shaped craft over Daytona Beach.</p>
+<p>DAYTONA BEACH, FLORIDA. Sightings of metallic discs occurred in 1950 and 1952. In 
+1957, a lady says a UFO paced her car. In 1959, two pilots had a near-collision with a 
+UFO. In 1964, a man saw a UFO with twelve humanoids inside it. In 2008, a father and son 
+saw strange orbs hovering over the ocean. In 2023, a couple saw and filmed V-shaped 
+craft over Daytona Beach.</p>
 
-<p>STATESVILLE, NORTH CAROLINA. In 1955, a trained observer saw three discs cavorting playfully in the sky. In 1986, a father and son saw a massive metallic craft land in their corn field, and through the windows they could see many humanoid figures.</p>
+<p>STATESVILLE, NORTH CAROLINA. In 1955, a trained observer saw three discs cavorting 
+playfully in the sky. In 1986, a father and son saw a massive metallic craft land in 
+their corn field, and through the windows they could see many humanoid figures.</p>
 
-<p>ANNADALE, NEW YORK. In 1975 two boys walking in the forest saw a glowing object hovering over some trees. Returning the next day, they found strange burn marks in the trees. In 2004, a young man saw a glowing sphere appearing and disappearing over his home.</p>
+<p>ANNADALE, NEW YORK. In 1975 two boys walking in the forest saw a glowing object 
+hovering over some trees. Returning the next day, they found strange burn marks in 
+the trees. In 2004, a young man saw a glowing sphere appearing and disappearing over 
+his home.</p>
 
-<p>Nine new locations: each with a history of UFO encounters. These encounters are supported by multiple witnesses, landing traces, physiological effects, animal reactions, photographs and more. The huge number of cases make it undeniable that we are being visited.</p>
+<p>Nine new locations: each with a history of UFO encounters. These encounters are 
+supported by multiple witnesses, landing traces, physiological effects, animal 
+reactions, photographs and more. The huge number of cases make it undeniable that 
+we are being visited.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/dm4tX8Z0bow" target="_blank" rel="noopener noreferrer">EPISODE #261. 
 DO NOT BE AFRAID: EIGHT EXTRAORDINARY ONBOARD EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/dm4tX8Z0bow</h5>                                                             <h5>March 21, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p>The most extensive UFO encounter is being taken onboard an extraterrestrial craft. This is the cutting edge of UFO research. These cases  hold the potential to answer the many questions surrounding ET contact: who are these visitors to our planet, where do they come from, and why are they here? This video presents eight amazing cases involving people who have been taken onboard a UFO and met aliens face-to-face.</p>
+<p>The most extensive UFO encounter is being taken onboard an extraterrestrial craft. 
+This is the cutting edge of UFO research. These cases  hold the potential to answer the 
+many questions surrounding ET contact: who are these visitors to our planet, where do 
+they come from, and why are they here? This video presents eight amazing cases involving 
+people who have been taken onboard a UFO and met aliens face-to-face.</p>
 
-<p>THE EARTH WILL ROLL: THE ONBOARD UFO ENCOUNTER OF MARION FRANCIS. At 12:30 pm on Feb 10, 1969, Marion Francis and her friend Jim Wells drove from Jacksonville, FL to Daytona Beach. It should’ve taken one a half hours, but weirdly it took five. Marion suffered from a bad headache, weakness and depression. Later, she went under hypnosis and recalled being taken onboard a craft. She was examined by a gray ET. They showed her where they came from, and said that Earth would one day tilt on its axis, and that the ETs would be there to rescue those who are not afraid to go.</p>
+<p>THE EARTH WILL ROLL: THE ONBOARD UFO ENCOUNTER OF MARION FRANCIS. At 12:30 pm on Feb 
+10, 1969, Marion Francis and her friend Jim Wells drove from Jacksonville, FL to Daytona 
+Beach. It should’ve taken one a half hours, but weirdly it took five. Marion suffered 
+from a bad headache, weakness and depression. Later, she went under hypnosis and 
+recalled being taken onboard a craft. She was examined by a gray ET. They showed her 
+where they came from, and said that Earth would one day tilt on its axis, and that 
+the ETs would be there to rescue those who are not afraid to go.</p>
 
-<p>DAZED AND CONFUSED IN A UFO: THE ONBOARD UFO ENCOUNTER OF JOSE PEREIRA SACRAMENTO. On the night of May 20, 1969, Jose Pereira Sacramento heard a noise outside his home in Vila Operaria, Brazil. Going to investigate, he was shocked to see a UFO landing in his backyard. He was suddenly pulled inside it where he met short beings standing in weird cylinders, speaking an unknown language. He was frozen in place as the room filled with painfully bright light. Suddenly he found himself back in bed. His eyes were badly inflamed, and he suffered from lightheadedness for a full year.</p>
+<p>DAZED AND CONFUSED IN A UFO: THE ONBOARD UFO ENCOUNTER OF JOSE PEREIRA SACRAMENTO. On 
+the night of May 20, 1969, Jose Pereira Sacramento heard a noise outside his home in 
+Vila Operaria, Brazil. Going to investigate, he was shocked to see a UFO landing in 
+his backyard. He was suddenly pulled inside it where he met short beings standing in 
+weird cylinders, speaking an unknown language. He was frozen in place as the room 
+filled with painfully bright light. Suddenly he found himself back in bed. His eyes 
+were badly inflamed, and he suffered from lightheadedness for a full year.</p>
 
-<p>TRANSFORMED BY THE ETS: THE ONBOARD UFO ENCOUNTER OF JOSEPH SUSEDIK. On May 26, 1974, while camping at Mitchell Caverns in California, Joseph and his family saw a UFO. That night, he was woken up by colored lights outside the trailer and found himself immobilized. Upon awakening, he had vague memories of being taken somewhere. Later under hypnosis, he recalled an onboard UFO encounter where ETs showed him the inside of the craft, images of Saturn and various nebulae. Following this, Joseph became a prolific inventor, and he and his wife pioneered the field of prenatal learning.</p>
+<p>TRANSFORMED BY THE ETS: THE ONBOARD UFO ENCOUNTER OF JOSEPH SUSEDIK. On May 26, 
+1974, while camping at Mitchell Caverns in California, Joseph and his family saw a 
+UFO. That night, he was woken up by colored lights outside the trailer and found 
+himself immobilized. Upon awakening, he had vague memories of being taken somewhere. 
+Later under hypnosis, he recalled an onboard UFO encounter where ETs showed him the 
+inside of the craft, images of Saturn and various nebulae. Following this, Joseph 
+became a prolific inventor, and he and his wife pioneered the field of prenatal 
+learning.</p>
 
-<p>PROBED BY ALIENS: THE ONBOARD UFO ENCOUNTER OF JANET STEWART. While driving to a friend’s house in Bethel, Minnesota on the night of Jan 6, 1976, Janet was shocked when a UFO paced her car. Picking up her friend, she also saw the UFO. Arriving home, Janet was missing an hour of time, and had sore eyes. Under hypnosis, she recalled she had been stopped by the UFO, and taken onboard. She was physically examined and returned to her car. The encounter made, her a more easy-going, open-minded and tolerant person.</p>
+<p>PROBED BY ALIENS: THE ONBOARD UFO ENCOUNTER OF JANET STEWART. While driving to a 
+friend’s house in Bethel, Minnesota on the night of Jan 6, 1976, Janet was shocked 
+when a UFO paced her car. Picking up her friend, she also saw the UFO. Arriving home, 
+Janet was missing an hour of time, and had sore eyes. Under hypnosis, she recalled she 
+had been stopped by the UFO, and taken onboard. She was physically examined and 
+returned to her car. The encounter made, her a more easy-going, open-minded and 
+tolerant person.</p>
 
-<p>THERE ARE THINGS I STILL CANNOT TELL: THE ONBOARD UFO ENCOUNTER OF NESTOR URRUTI. On the morning of May 14, 1976, Nestor Urruti was driving through Olivarria, Argentina when a UFO pulled him onboard with his truck. He found himself sitting in front of a horseshoe-shaped panel with odd symbols. A telepathic voice told him that one day the ETs will reveal themselves to the world. He then found himself back in his truck. He was badly traumatized and had to be hospitalized.</p>
+<p>THERE ARE THINGS I STILL CANNOT TELL: THE ONBOARD UFO ENCOUNTER OF NESTOR URRUTI. 
+On the morning of May 14, 1976, Nestor Urruti was driving through Olivarria, 
+Argentina when a UFO pulled him onboard with his truck. He found himself sitting in 
+front of a horseshoe-shaped panel with odd symbols. A telepathic voice told him that 
+one day the ETs will reveal themselves to the world. He then found himself back in 
+his truck. He was badly traumatized and had to be hospitalized.</p>
 
-<p>YOU WILL BEGIN TO SEE THINGS: THE ONBOARD UFO ENCOUNTER OF DOROTHY Y. On Sept 15, 1976, Dorothy was awakened by bright lights outside her home in New London, MO. Going outside, she saw short strange beings. Suddenly, she was in bed and it was the next morning. Later under hypnosis, she was taken onboard and recalled being physically examined. The ETs told her that she would being to see things: a prediction which turned out to be true when she began having psychic visions of disasters.</p>
+<p>YOU WILL BEGIN TO SEE THINGS: THE ONBOARD UFO ENCOUNTER OF DOROTHY Y. On Sept 15, 
+1976, Dorothy was awakened by bright lights outside her home in New London, MO. 
+Going outside, she saw short strange beings. Suddenly, she was in bed and it was the 
+next morning. Later under hypnosis, she was taken onboard and recalled being 
+physically examined. The ETs told her that she would being to see things: a 
+prediction which turned out to be true when she began having psychic visions of 
+disasters.</p>
 
-<p>A JOURNEY ONBOARD A UFO: THE ONBOARD UFO ENCOUNTER OF VICTOR AND BORIS. In Jul 1986, while hiking in the woods outside of Shenkursk, Russia, Victor and Boris, came upon a strange craft and two human-looking men in jumpsuits. The men invited Victor and Boris onboard. So began an amazing journey where the two witnesses were flown across Europe. They asked many questions of the strange men. At one point, one of the ETs allowed Victor to pilot the craft. They were then returned back to the forest, amazed by their encounter.</p>
+<p>A JOURNEY ONBOARD A UFO: THE ONBOARD UFO ENCOUNTER OF VICTOR AND BORIS. In Jul 
+1986, while hiking in the woods outside of Shenkursk, Russia, Victor and Boris, 
+came upon a strange craft and two human-looking men in jumpsuits. The men invited 
+Victor and Boris onboard. So began an amazing journey where the two witnesses were 
+flown across Europe. They asked many questions of the strange men. At one point, 
+one of the ETs allowed Victor to pilot the craft. They were then returned back to 
+the forest, amazed by their encounter.</p>
 
-<p>A FIGHT WITH STRANGE HUMANOIDS: THE ONBOARD UFO ENCOUNTER OF ROLF FULLER. On July 25, 1992, Rolf was amazed to see a UFO outside his family’s home in Tuttlingen, Germany. That night, he woke up to find himself inside a UFO, confronted by short ETs with large eyes. Rolf fought with the ETs. Suddenly, he was knocked unconscious. He woke up back in bed and to his shock, the humanoids were still there!</p>
+<p>A FIGHT WITH STRANGE HUMANOIDS: THE ONBOARD UFO ENCOUNTER OF ROLF FULLER. On 
+July 25, 1992, Rolf was amazed to see a UFO outside his family’s home in Tuttlingen, 
+Germany. That night, he woke up to find himself inside a UFO, confronted by short 
+ETs with large eyes. Rolf fought with the ETs. Suddenly, he was knocked unconscious. 
+He woke up back in bed and to his shock, the humanoids were still there!</p>
 
-<p>Eight onboard cases, each with details which are remarkably similar and confirm each other’s accounts, and each with unique details that show how much we still have to learn. What these cases do show is that people all over the world are being taken onboard extraterrestrial craft and meeting extraterrestrials face-to-face. It has been happening for a long time.</p>
+<p>Eight onboard cases, each with details which are remarkably similar and confirm 
+each other’s accounts, and each with unique details that show how much we still 
+have to learn. What these cases do show is that people all over the world are being 
+taken onboard extraterrestrial craft and meeting extraterrestrials face-to-face. 
+It has been happening for a long time.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/6hEgoSfheuo" target="_blank" rel="noopener noreferrer">EPISODE #260. 
 MY MOTHER THE MANTIS: THE TRUE EXTRATERRESTRIAL CONTACT STORY OF SONDRA X</a>.</h3>
 <h5>LINK: https://youtu.be/6hEgoSfheuo</h5>                                                             <h5>March 14, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p>A teacher from Virginia, Sondra came from a military family and has lived in many locations on the planet. She was born in 1940, and like many ET contactees, unusual events surrounded her from a very young age. In fact, when she was only a few weeks old, her mother woke up one morning to see Sondra levitating above her crib! Soon other mystical events occurred. At age three, while living in sunny Long Beach in southern California, Sondra discovered that she was able to call forth the wind, and even make it snow.</p>
+<p>A teacher from Virginia, Sondra came from a military family and has lived in many 
+locations on the planet. She was born in 1940, and like many ET contactees, unusual 
+events surrounded her from a very young age. In fact, when she was only a few weeks 
+old, her mother woke up one morning to see Sondra levitating above her crib! Soon 
+other mystical events occurred. At age three, while living in sunny Long Beach in 
+southern California, Sondra discovered that she was able to call forth the wind, 
+and even make it snow.</p>
 
-<p>In 1946, Sondra’s father (now an  attaché to a Navy Admiral) moved the family to Tsingtao, China where they lived in the former Swiss Embassy building. There Sondra soon displayed other abilities. She began having out-of-body experiences. Fresh-cut flowers would remain alive and healthy in her room for weeks on end. She began to hear a voice in her head teaching her about the human body. She excelled academically to a degree that should would soon skip grades in school, and more. Her stay in China was cut short by conflict within the country, and in 1947, her father was called to serve in Albuquerque, New Mexico. It was there that Sondra had perhaps the most unusual event of her life.</p>
-<p>Sondra had just turned eight-year-old and one day, with her parents’ permission, she decided to ride her bicycle to a friend’s home one mile away. This was something she had done many times, but on this occasion, she never made it there. When she did not arrive, her family began a 7-hours-long frantic search for Sondra, finally finding her dazed and in a trance alongside the remote highway near her home, in an area where they had already searched several times. They asked her what happened, but Sondra did not dare tell them. She knew they would never believe her.</p>
-<p>As she biked down the desolate highway, a shadow appeared overhead, and looking up, she saw a metallic craft hover overhead. It quickly landed on the road in front of her. Sondra stopped and watched as an opening appearing in the craft, and standing in the doorway was a tall humanoid praying mantis beckoning her inside the craft. More curious than afraid, Sondra approached. That mantis being told Sondra to have no fear, that she was her mother and invited her onboard the craft. Fascinated, Sondra accepted the offer.</p>
-<p>Entering the craft, she was shocked to see that it was much larger on the inside than the outside. Immediately a half-dozen short little figures crowded around her, playfully touching her blond hair and escorting her around the craft. She first thought they were little children, but saw that they had large bald heads, big dark eyes, and gray skin. Sondra explored the craft which was very sparse. Looking out a porthole, she was shocked to see the Earth off in the distance. The mantis being led her to the center of the room where there was a holographic device displaying full-color, three-dimensional images. Sondra was shocked and saddened to see images of soldiers, tanks, explosions and more.  The mantis said, “What you are seeing are pictures of future wars,” and told Sondra that it was her duty to warn others about this.</p>
-<p>After a few more messages, Sondra suddenly found herself back in her home with her concerned parents. Sondra later told her grandmother who shared that she also had encounters as a little girl, but otherwise learned to keep her experience a secret.</p>
-<p>Sondra grew up, got a few college degrees, fell in love, got married and had children. She continued to have OBEs and other unusual events. Then one day her husband said he had seen grays at the foot of the bed speaking to Sondra. She had no memory of this, but shortly later, she began having repeated visitations by the grays in her bedroom, who would hold long conversations with her. The visits occurred for many years. Only a few times did Sondra ever see them arrive or leave. She rarely remembered the content of the conversations.</p>
-<p>Eventually the visits slowed and one day stopped. One of her final visits occurred in 2018. The grays had come to again give her in urgent warning about future wars on our planet, and advise her to move out of the city and into the mountains, a warning which she and her husband heeded. Today, she lives there peacefully. Sondra agreed to share her story as she feels its important to communicate the warnings given to her by the ETs. If you are interested in hearing more about Sondra’s amazing encounter, her story (and many others) is presented in my book, “Humanoids and High Strangeness: Twenty True UFO Encounters.” Now available!</p>
+<p>In 1946, Sondra’s father (now an  attaché to a Navy Admiral) moved the family to 
+Tsingtao, China where they lived in the former Swiss Embassy building. There Sondra 
+soon displayed other abilities. She began having out-of-body experiences. Fresh-cut 
+flowers would remain alive and healthy in her room for weeks on end. She began to 
+hear a voice in her head teaching her about the human body. She excelled academically 
+to a degree that should would soon skip grades in school, and more. Her stay in China 
+was cut short by conflict within the country, and in 1947, her father was called to 
+serve in Albuquerque, New Mexico. It was there that Sondra had perhaps the most 
+unusual event of her life.</p>
+<p>Sondra had just turned eight-year-old and one day, with her parents’ permission, she 
+decided to ride her bicycle to a friend’s home one mile away. This was something she had 
+done many times, but on this occasion, she never made it there. When she did not arrive, 
+her family began a 7-hours-long frantic search for Sondra, finally finding her dazed and 
+in a trance alongside the remote highway near her home, in an area where they had already 
+searched several times. They asked her what happened, but Sondra did not dare tell them. 
+She knew they would never believe her.</p>
+<p>As she biked down the desolate highway, a shadow appeared overhead, and looking up, 
+she saw a metallic craft hover overhead. It quickly landed on the road in front of her. 
+Sondra stopped and watched as an opening appearing in the craft, and standing in the 
+doorway was a tall humanoid praying mantis beckoning her inside the craft. More 
+curious than afraid, Sondra approached. That mantis being told Sondra to have no 
+fear, that she was her mother and invited her onboard the craft. Fascinated, Sondra 
+accepted the offer.</p>
+<p>Entering the craft, she was shocked to see that it was much larger on the inside 
+than the outside. Immediately a half-dozen short little figures crowded around her, 
+playfully touching her blond hair and escorting her around the craft. She first 
+thought they were little children, but saw that they had large bald heads, big 
+dark eyes, and gray skin. Sondra explored the craft which was very sparse. Looking 
+out a porthole, she was shocked to see the Earth off in the distance. The mantis 
+being led her to the center of the room where there was a holographic device 
+displaying full-color, three-dimensional images. Sondra was shocked and saddened 
+to see images of soldiers, tanks, explosions and more.  The mantis said, “What 
+you are seeing are pictures of future wars,” and told Sondra that it was her 
+duty to warn others about this.</p>
+<p>After a few more messages, Sondra suddenly found herself back in her home with her 
+concerned parents. Sondra later told her grandmother who shared that she also had 
+encounters as a little girl, but otherwise learned to keep her experience a secret.</p>
+<p>Sondra grew up, got a few college degrees, fell in love, got married and had 
+children. She continued to have OBEs and other unusual events. Then one day her 
+husband said he had seen grays at the foot of the bed speaking to Sondra. She had 
+no memory of this, but shortly later, she began having repeated visitations by the 
+grays in her bedroom, who would hold long conversations with her. The visits 
+occurred for many years. Only a few times did Sondra ever see them arrive or 
+leave. She rarely remembered the content of the conversations.</p>
+<p>Eventually the visits slowed and one day stopped. One of her final visits occurred in 
+2018. The grays had come to again give her in urgent warning about future wars on our 
+planet, and advise her to move out of the city and into the mountains, a warning which 
+she and her husband heeded. Today, she lives there peacefully. Sondra agreed to share her 
+story as she feels its important to communicate the warnings given to her by the ETs. If 
+you are interested in hearing more about Sondra’s amazing encounter, her story (and many 
+others) is presented in my book, “Humanoids and High Strangeness: Twenty True UFO 
+Encounters.” Now available!</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/GjgecsdVhwk" target="_blank" rel="noopener noreferrer">EPISODE #259. 
 UNEARTHLY: TWELVE VERY WEIRD EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/GjgecsdVhwk</h5>                                                             <h5>March 7, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p>There is nothing quite like a face-to-face encounter with a humanoid creature. An experience like this almost always has a profound effect on the witness, challenging them mentally, emotionally, and spiritually. It is something they remember for the rest of their lives. Encounters like these are far more common than you might think, and involve a mind-boggling variation of humanoid types. Here are ten little-known cases coming from across the planet, each involving different humanoid creatures, from tiny beings less than a foot tall, to creatures upwards of twelve feet in height. Several involve multiple witnesses, not to mention landing traces, electromagnetic disturbances, animal reactions and medical effects.</p>
+<p>There is nothing quite like a face-to-face encounter with a humanoid creature. An 
+experience like this almost always has a profound effect on the witness, challenging them 
+mentally, emotionally, and spiritually. It is something they remember for the rest of 
+their lives. Encounters like these are far more common than you might think, and involve 
+a mind-boggling variation of humanoid types. Here are ten little-known cases coming from 
+across the planet, each involving different humanoid creatures, from tiny beings less 
+than a foot tall, to creatures upwards of twelve feet in height. Several involve multiple 
+witnesses, not to mention landing traces, electromagnetic disturbances, animal reactions 
+and medical effects.</p>
 
-<p>A SIX-INCH HUMANOID. On April 20, 1945, an anonymous priest was picking edible mushrooms in the forest near Reneve, France when he saw a 6-inch-tall little man wearing a full-body jumpsuit and carrying a little rod strapped to his back. The stunned priest wanted to capture the little man, but it quickly ran off into the bushes.</p>
+<p>A SIX-INCH HUMANOID. On April 20, 1945, an anonymous priest was picking edible 
+mushrooms in the forest near Reneve, France when he saw a 6-inch-tall little man 
+wearing a full-body jumpsuit and carrying a little rod strapped to his back. The 
+stunned priest wanted to capture the little man, but it quickly ran off into the 
+bushes.</p>
 
-<p>I HAVE NEVER SEEN ANYTHING LIKE IT. One day in Spring of 1957, two 9-year-old boys were playing in a field near their homes in Taboada, Spain when movement caught their eye. Looking up, they saw a row of helmeted humanoids walking through the wall of house and up into the air where they promptly disappeared.</p>
+<p>I HAVE NEVER SEEN ANYTHING LIKE IT. One day in Spring of 1957, two 9-year-old boys 
+were playing in a field near their homes in Taboada, Spain when movement caught their 
+eye. Looking up, they saw a row of helmeted humanoids walking through the wall of 
+house and up into the air where they promptly disappeared.</p>
 
-<p>AN ALIEN AT THE FRONT DOOR. On the night of August 31, 1968, a lady heard a loud knock on the front door of her home in Bahia Blanca, Argentina. Opening the curtain, she saw a strange man, nearly 7 feet tall with a bald head, no ears, and glowing eyes, wearing a shiny black jumpsuit. She was paralyzed in fear as the man moved off, laughing.</p>
+<p>AN ALIEN AT THE FRONT DOOR. On the night of August 31, 1968, a lady heard a loud 
+knock on the front door of her home in Bahia Blanca, Argentina. Opening the curtain, 
+she saw a strange man, nearly 7 feet tall with a bald head, no ears, and glowing eyes, 
+wearing a shiny black jumpsuit. She was paralyzed in fear as the man moved off, 
+laughing.</p>
 
-<p>ETS INVESTIGATE FARMHOUSE. On February 6, 1969, Jose Antonio Fioco was working at a farm in Pirassununga, Brazil when a UFO landed on the property. Three humanoids appeared, one sending down a beam of light on the chicken coop. This was just the first of many encounters in the area, including another landing witnessed by a crowd of people.</p>
+<p>ETS INVESTIGATE FARMHOUSE. On February 6, 1969, Jose Antonio Fioco was working at a 
+farm in Pirassununga, Brazil when a UFO landed on the property. Three humanoids appeared, 
+one sending down a beam of light on the chicken coop. This was just the first of many 
+encounters in the area, including another landing witnessed by a crowd of people.</p>
 
-<p>TWO HUMAN-LIKE FIGURES. One night in January 1974, a father and son were woken up when their home in Pjedsted, Denmark filled with light. Looking outside, they saw a saucer-shaped craft and two humanoids looking straight down at them. So began a 5-minute-long staring contest which ended only as the craft moved away.</p>
+<p>TWO HUMAN-LIKE FIGURES. One night in January 1974, a father and son were woken up 
+when their home in Pjedsted, Denmark filled with light. Looking outside, they saw a 
+saucer-shaped craft and two humanoids looking straight down at them. So began a 5-
+minute-long staring contest which ended only as the craft moved away.</p>
 
-<p>THE ALIEN IN THE FOREST. Going into woods to train his dog around midnight on January 4, 1977, an auto-worker from Carapito, Portugal came upon a large saucer-shaped craft with a humanoid standing below it. After a few moments, the craft and humanoid disappeared, but researchers later found landing traces at the site.</p>
+<p>THE ALIEN IN THE FOREST. Going into woods to train his dog around midnight on 
+January 4, 1977, an auto-worker from Carapito, Portugal came upon a large saucer-
+shaped craft with a humanoid standing below it. After a few moments, the craft 
+and humanoid disappeared, but researchers later found landing traces at the site.</p>
 
-<p>THE GIANT GLOWING FIGURE. At 10pm on night in November 1977, John and Gail Weldon drove along a rural road in the Megalong Valley in NSW, Australia when a gigantic glowing figure upwards of 12-feet in height strode towards their car. This is just one of several dramatic UFO incidents in this area.</p>
+<p>THE GIANT GLOWING FIGURE. At 10pm on night in November 1977, John and Gail 
+Weldon drove along a rural road in the Megalong Valley in NSW, Australia when a 
+gigantic glowing figure upwards of 12-feet in height strode towards their car. 
+This is just one of several dramatic UFO incidents in this area.</p>
 
-<p>WHAT BEAUTIFUL EYES. One night in May 1991, KT, a lady living in an apartment in the small town of Istok, Russia kept hearing strange footsteps. Finally she was confronted by a gray-type ET with huge dark beautiful eyes. Later, investigators learned that other people in the building reported strange events, including seeing a UFO that very night.</p>
+<p>WHAT BEAUTIFUL EYES. One night in May 1991, KT, a lady living in an apartment in the 
+small town of Istok, Russia kept hearing strange footsteps. Finally she was confronted 
+by a gray-type ET with huge dark beautiful eyes. Later, investigators learned that other 
+people in the building reported strange events, including seeing a UFO that very night.</p>
 
-<p>TWO VERY STRANGE HUMANOIDS. One night in Winter 1994, two young men were riding a motorbike on a rural road outside Musei, Italy when they came upon a 1-foot-tall humanoid with large eyes and pointing ears crossing the road in front of them. Years earlier, the witness and his family had an even more frightening encounter with a winged humanoid.</p>
+<p>TWO VERY STRANGE HUMANOIDS. One night in Winter 1994, two young men were riding a 
+motorbike on a rural road outside Musei, Italy when they came upon a 1-foot-tall 
+humanoid with large eyes and pointing ears crossing the road in front of them. Years 
+earlier, the witness and his family had an even more frightening encounter with a 
+winged humanoid.</p>
 
-<p>EYES LIKE A FLY. Hearing a strange beeping noise late on the night of May 10, 1995, a teenage boy exited the bedroom of his home in Columbia, Missouri and was terrified to see a 4-foot-tall gray alien staring at him through the living room glass door only three feet away.</p>
+<p>EYES LIKE A FLY. Hearing a strange beeping noise late on the night of May 10, 1995, 
+a teenage boy exited the bedroom of his home in Columbia, Missouri and was terrified 
+to see a 4-foot-tall gray alien staring at him through the living room glass door only 
+three feet away.</p>
 
-<p>THE ET IN THE RAIN. One night in October 1995, two 13-year-old girls were horseback riding through the woods near their homes in Breitbrunn, Germany. Without warning, they came upon a dome-shaped silver saucer covered with colored lights sitting on the ground, and next to it were little “munchkin-sized” humanoids.</p>
+<p>THE ET IN THE RAIN. One night in October 1995, two 13-year-old girls were horseback 
+riding through the woods near their homes in Breitbrunn, Germany. Without warning, 
+they came upon a dome-shaped silver saucer covered with colored lights sitting on the 
+ground, and next to it were little “munchkin-sized” humanoids.</p>
 
-<p>CHARGED BY AN ALIEN. Around 7:30 pm one evening in July 2018, “Jacob” was playing in the yard of his grandparents' home in a rural and isolated area of Newaygo, Michigan. Movement behind a tree caught his eye. To his shock, a tall, skinny creature with a big bald head, large eyes and gray skin crawled out, stood up and stared, then suddenly charged right at him.</p>
+<p>CHARGED BY AN ALIEN. Around 7:30 pm one evening in July 2018, “Jacob” was playing 
+in the yard of his grandparents' home in a rural and isolated area of Newaygo, Michigan. 
+Movement behind a tree caught his eye. To his shock, a tall, skinny creature with a big 
+bald head, large eyes and gray skin crawled out, stood up and stared, then suddenly 
+charged right at him.</p>
 
-<p>These twelve cases offer a brief glimpse into what it’s like to have a face-to-face unearthly encounter with strange humanoids. These cases show how scary and traumatic an encounter can be, and make it clear that we still have a lot to learn about who is walking among us on this planet.</p>
+<p>These twelve cases offer a brief glimpse into what it’s like to have a face-to-face 
+unearthly encounter with strange humanoids. These cases show how scary and traumatic an 
+encounter can be, and make it clear that we still have a lot to learn about who is 
+walking among us on this planet.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/tBxl3dv38-s" target="_blank" rel="noopener noreferrer">EPISODE #258. 
 UFOS IN ANTARCTICA: TWELVE TRUE CASES</a>.</h3>
 <h5>LINK: https://youtu.be/tBxl3dv38-s</h5>                                                             <h5>February 28, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<p>It’s the coldest, windiest, driest, highest and most remote place on Earth. Its average temperature is 50-70 degrees below zero Fahrenheit. It has no permanent residents. It contains up to 90 percent of the world’s freshwater. It covers 5.5 million square miles, about 98 percent of which is covered with ice. This is, of course, Antarctica. Nobody owns it. The 1951 Antarctic treaty outlawed ownership, and limits its use to peaceful, scientific research. Each year, 1000-5000 scientists and military officers are stationed at the various bases. About 40,000 tourists visit there yearly. As with the Arctic, conspiracies abound, from secret Nazi bases, to an entrance to the hollow Earth. True or not, what is undeniably true is that the Antarctic has a long and rich history of UFO encounters. This video presents twelve cases of UFOs in Antarctica. They reach back 75 years and include sightings, landings, and humanoids. A few represent some of the best-verified UFO encounters in the history of ufology.</p>
+<p>It’s the coldest, windiest, driest, highest and most remote place on Earth. Its 
+average temperature is 50-70 degrees below zero Fahrenheit. It has no permanent 
+residents. It contains up to 90 percent of the world’s freshwater. It covers 5.5 
+million square miles, about 98 percent of which is covered with ice. This is, of 
+course, Antarctica. Nobody owns it. The 1951 Antarctic treaty outlawed ownership, 
+and limits its use to peaceful, scientific research. Each year, 1000-5000 scientists 
+and military officers are stationed at the various bases. About 40,000 tourists visit 
+there yearly. As with the Arctic, conspiracies abound, from secret Nazi bases, to an 
+entrance to the hollow Earth. True or not, what is undeniably true is that the 
+Antarctic has a long and rich history of UFO encounters. This video presents twelve 
+cases of UFOs in Antarctica. They reach back 75 years and include sightings, landings, 
+and humanoids. A few represent some of the best-verified UFO encounters in the history 
+of ufology.</p>
 
-<p>WE HAVE PHOTOGRAPHS TO PROVE WHAT WE SAW. While at the Chilean base, Arturo Prat, on February 23, 1948 Captain Augusto Vars Orrego of the Chilean Navy says that “During the bright Antarctic night, we saw flying saucers, one above the other, turning at tremendous speeds. We have photographs to prove what we saw.” Sadly, the photos were never released.</p>
+<p>WE HAVE PHOTOGRAPHS TO PROVE WHAT WE SAW. While at the Chilean base, Arturo Prat, 
+on February 23, 1948 Captain Augusto Vars Orrego of the Chilean Navy says that “During 
+the bright Antarctic night, we saw flying saucers, one above the other, turning at 
+tremendous speeds. We have photographs to prove what we saw.” Sadly, the photos were 
+never released.</p>
 
 <p>THE COLD SCRUTINY OF UNKNOWN EYES. On January 8, 1956. Four Chilean scientists stationed at Robertson Island in the Weddell Sea saw two metallic cigar-shaped objects hovering in a vertical position overhead. Thus began an hours-long encounter during which their Geiger counter went off. They took many photographs, but again, the photos have never been released.</p>
 
@@ -3668,10 +3990,14 @@ So many people all over the world having extensive encounters with ETs. The cove
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/n4l1CsD9tlw" target="_blank" rel="noopener noreferrer">EPISODE #174. 
 FIVE FANTASTIC FACE-TO-FACE ENCOUNTERS WITH EXTRATERRESTRIALS</a>.</h3>
-<h5>LINK: https://youtu.be/n4l1CsD9tlw</h5>                                                             <h5>August 7, 2023</h5>
+<h5>LINK: https://youtu.be/n4l1CsD9tlw</h5>                                                             <h5>August 4, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>21,942 views  Aug 4, 2023</h6>
-Among the most fascinating and extensive cases of UFO contact are landings and face-to-face encounters with humanoids. These accounts have volumes to teach us about the ETs, who they are, why they are here, and their agenda on our planet. This video presents five fascinating cases of UFO contact, each providing some profound and unique insights into the nature of the UFO phenomenon.
+Among the most fascinating and extensive cases of UFO contact are landings and 
+face-to-face encounters with humanoids. These accounts have volumes to teach us 
+about the ETs, who they are, why they are here, and their agenda on our planet. 
+This video presents five fascinating cases of UFO contact, each providing some 
+profound and unique insights into the nature of the UFO phenomenon.
 
 THE ALIEN WITH THE BEAMING SPHERE. Late at night on June 14, 1968, Pedro Jacobo Pretzel of Villa Carlos Paz, Argentina, drove up to the Motel La Cuesta (which he owned) and saw two hovering red lights. He didn’t think much of. Going inside, he found his daughter, Maria, kneeling on the floor, babbling about a strange man. Maria had an amazing story to tell. She said that a tall blond man in a shiny blue jumpsuit had entered the motel and confronted her. He held a weird glowing sphere in his hand, which caused odd sensations in her body. “Don’t be afraid,” he said. Then he pointed a beam of light at her, causing her to float slowly to the ground. It was just the beginning of a complicated interaction with an ET. It was a case which would go all the way to the Argentine Air Force.
 
@@ -3715,8 +4041,7 @@ THEY LOOKED LIKE BAGS. Late at night on Nov 2, 1989, two truck drivers, Oleg Kir
 These encounters all contain unique and bizarre elements of high strangeness and show just how bizarre UFO contact can be. And yet, many also have physical evidence: landing traces, medical affects, EM effects, animal reactions and more. These very weird cases have something very important to teach us about UFOs and extraterrestrials.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/GvH5ghq4KIc" target="_blank" rel="noopener noreferrer">EPISODE #172. 
-“A UFO LANDED RIGHT NEXT TO ME!”: 
-TWELVE TRUE CASES</a>.</h3>
+“A UFO LANDED RIGHT NEXT TO ME!”: TWELVE TRUE CASES</a>.</h3>
 <h5>LINK: https://youtu.be/GvH5ghq4KIc</h5>                                                             <h5>July 21, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>14,635 views  Jul 21, 2023</h6>
@@ -3931,8 +4256,7 @@ Feb 1981: Mojave Desert, CA. A prospector returns from a trip into the desert wi
 These cases reveal some important insights into the nature of the UFO phenomenon. They show that UFOs are visiting many locations on our planet for a long period of time. They show that UFOs can affect the soil, the vegetation, animal life, machines and most importantly, humans…all in a wide variety of unexpected ways. They show that the ETs display an interest in all things Earth and all things human. And they also provide compelling evidence for the reality of UFOs.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/AbWRmR0FNU0" target="_blank" rel="noopener noreferrer">EPISODE #164. 
-EXTRAORDINARY EXTRATERRESTRIAL ENCOUNTERS: 
-TEN TRUE CASES OF LANDINGS AND HUMANOIDS</a>.</h3>
+EXTRAORDINARY EXTRATERRESTRIAL ENCOUNTERS: TEN TRUE CASES OF LANDINGS AND HUMANOIDS</a>.</h3>
 <h5>LINK: https://youtu.be/AbWRmR0FNU0</h5>                                                             <h5>June 2, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>37,970 views  Jun 2, 2023</h6>
@@ -4313,14 +4637,26 @@ LINK TO BOOK:
 https://www.amazon.com/dp/1984340700/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/jXZaPtVnuuI" target="_blank" rel="noopener noreferrer">EPISODE #152. 
-INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART SIX: 
-FLIGHT SCHOOL</a>.</h3>
+INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART SIX: FLIGHT SCHOOL</a>.</h3>
 <h5>LINK: https://youtu.be/jXZaPtVnuuI</h5>                                                             <h5>March 17, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>11,271 views  Mar 17, 2023</h6>
-How would you like to fly a UFO? It’s not as unique as you might think. In fact, contactees all over world are reporting this kind of experience. According to the "FREE" study, about thirteen percent of contactees say that they have piloted a UFO. Researcher Grant Cameron has written a book (Sky Pilots) profiling dozens of cases!
+How would you like to fly a UFO? It’s not as unique as you might think. In fact, 
+contactees all over world are reporting this kind of experience. According to the 
+"FREE" study, about thirteen percent of contactees say that they have piloted a UFO. 
+Researcher Grant Cameron has written a book (Sky Pilots) profiling dozens of cases!
 
-In January of 1973, fourteen-year-old Dolly Safran had a missing time encounter with a UFO over her home in the Florida Everglades. This was not Dolly’s first encounter; this had happened many times before. But this time was different. After the encounter, Dolly sat down and meditated and was able to fully recall what happened. And what Dolly remembered astonished her. She had been taken onboard the craft and was given the opportunity to work directly with the ETs. Dolly agreed, and the ETs asked her what she would like to learn. Dolly asked if she could learn how to pilot the UFO craft. The ETs agreed. So began Dolly’s experiences as a UFO pilot. She began having fully conscious encounters where she was taken onboard and trained how to fly the UFO. The craft is an alive creature embodied by a fifth-dimensional entity that Dolly calls “Tlera.”
+In January of 1973, fourteen-year-old Dolly Safran had a missing time encounter with 
+a UFO over her home in the Florida Everglades. This was not Dolly’s first encounter; 
+this had happened many times before. But this time was different. After the encounter, 
+Dolly sat down and meditated and was able to fully recall what happened. And what 
+Dolly remembered astonished her. She had been taken onboard the craft and was given 
+the opportunity to work directly with the ETs. Dolly agreed, and the ETs asked her 
+what she would like to learn. Dolly asked if she could learn how to pilot the UFO 
+craft. The ETs agreed. So began Dolly’s experiences as a UFO pilot. She began 
+having fully conscious encounters where she was taken onboard and trained how to 
+fly the UFO. The craft is an alive creature embodied by a fifth-dimensional entity 
+that Dolly calls “Tlera.”
 
 Dolly first had to be tested, physically, neurologically and especially psychically. 
 After that, she was taught all about the gravitational and magnetic field lines of 
@@ -4480,62 +4816,384 @@ out the book, “Not from Here Volume Four.” Now available!<br>
 TEN SHOCKING CASES OF UFO HEALINGS</a>.</h3>
 <h5>LINK: https://youtu.be/IMmFg5IRjPc</h5>                                                             <h5>March 3, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>11,459 views  Mar 3, 2023</h6>
+Cases of UFO Healings are not new. They have been occurring for more than 100 years. Most major researchers have multiple cases, and they are reported by all kinds of people from all over the world. There are more than 300 documented cases, and they are recognized as a regular feature of UFO contact.
 
+This video presents ten shocking cases of UFO healings. Each case contains surprising and unique elements that offer profound insights into the aliens and their agenda on our planet.
+
+Marla (pseudonym) from Marysville, WA had suffered for years from kidney disease, and developed a large gallstone which necessitated the surgical removal of her gallbladder. In Jan 2015, following a visit by short, large-headed entities in her bedroom, Marla awoke to find a strange surgical scar on her abdomen. It was deep, but pain-free, had no blood, and healed with incredible speed. When she went to doctors, they were shocked to find that her gallstone had been removed, but her gallbladder was still there!
+
+Maria M. Rivera of Aguada, Puerto Rico was suffering from cancer all through her body when (in 2006) she and her family had a UFO sighting followed by many visits by gray ETs. Then Maria was taken onboard a craft and underwent a painful operation. Afterward, she went to the doctor and was shocked to discover that the cancer was now gone.
+
+On Jul 19, 1988, Diane and Phyllis (mother and daughter) drove to their home in Johannesburg, South Africa and were stopped by a human-looking female who guided them onto a craft. From age 13, Diane had suffered from chronic jaundice. The ETs healed her and gave them both warnings about huge environmental catastrophes soon to strike our planet. 
+
+In 1986, Richard T., paralyzed and wheelchair-bound, was enjoying an evening on the beach in La Jolla, CA when a huge torpedo-shaped craft hovered overhead. Richard was taken into the craft, wheelchair and all. Onboard, he saw several short humanoids and then blacked out. Over the next few days, Richard’s paralysis disappeared. He was healed.
+
+On Aug 30, 1979, Jean Cyr (a retired Canada Army officer) and his family were drawn outside of their home in St. Eustache, Quebec by an odd humming sound. They saw a glowing metallic disc rise from the fields near their home. This began a series of encounters which was witnessed by many of their neighbors and local airport officials. Jean began waking up with unexplained marks on his body. After several encounters, Jean, who had severe multiple sclerosis, was healed.
+
+In the mid-1930s, a 13-year-old boy suffering from tuberculosis found himself on his deathbed. Then he had a “dream” that he was taken into a weird craft and healed by strange-looking figures. With no idea of aliens or UFOs, he couldn’t explain what happened. He only knew that he had somehow been healed. It wasn’t until the 1950s, that he heard about UFOs and aliens that he understood his experience.
+
+In Mar 1977, Carmina of San Juan, Puerto Rico was confronted by a strange human-looking gentleman who had somehow managed to get past the guards in her secured office building. The man informed her that he was an ET, and that Carmina’s daughter should continue her UFO research with investigator, Jorge Martin, and that Martin himself was being spied on by US intelligence officers. Carmina, who had been diagnosed with a cyst in her breast, received the shocking news that her cyst had miraculously disappeared.
+
+Richard Rylka, a well-known New Jersey UFO contactee, had developed a large tumor on his forehead. While in Atlantic City, he was visited by human-looking ETs who took him onboard a healed his tumor. Rylka, whose tumor had been seen by all his friends and family, was cured. 
+
+In 1979, Faina Maksimovna was facing surgery to remove a tumor on her thyroid. Frightened of surgery, Faina prayed to God. To her shock, that evening she was visited by three human-looking figures who proceeded to enact a healing on her. When Faina later went to see her doctors, they were baffled and amazed to see that her tumor was gone.
+
+In Dec 1989, Mae, a 60-year-old waitress from Mississippi was being forced to retired due to severe arthritis. Driving home, a UFO dropped down over her car and pulled her onboard. Mae found herself surrounded by several figures who placed a “kind of rod” over her body. The next morning, her pain was gone. She was healed.
+
+These ten cases show that people from all walks of life are being healed by many different types of ETs. They show that healing is one of the primary ET agendas, and that ETs have the ability to heal almost any kind of illness, condition or disease.
+
+To explore more about these healing cases and others, check out the book, “The Healing Power of UFOs.” Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/E5Z8oMehOUI" target="_blank" rel="noopener noreferrer">EPISODE #149. 
 THOSE DAM UFOS!!!</a></h3>
 <h5>LINK: https://youtu.be/E5Z8oMehOUI</h5>                                                             <h5>February 24, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>12,890 views  Feb 24, 2023</h6>
+UFO sightings are not as random as they might seem. Researchers discovered long ago that UFOs find certain locations very interesting. These are called “UFO attractors,” and there are a lot them. Some include military bases, nuclear power stations, prisons, graveyards, rocket launches, mines, schoolyards, drive-in movie theaters and more. Another well-known UFO attractor is dams and hydroelectric stations. However, there has not been much research into these types of cases. Until now!
 
+This video presents more than 30 cases of UFOs hovering over dams. And not only hovering, but landing too. Several cases also involve humanoids. The evidence for these cases is astounding. There are multiple witnesses, physiological effects, electromagnetic effects, landing traces, photos and more. In some cases, the UFOs appear to be siphoning water from the reservoirs, or electricity from the power stations. Some of the dams are visited over and over again.
+
+These cases reach back from the modern age of UFOs in 1947 to the present day, and are occurring all over the world: Australia, Canada, Europe, Canada, the United States, South America and more. Why are UFOs visiting our dams? Are they examining our technology? Do they want the water and electricity? Or are there other reasons? The answers are here!
+
+Jul 10, 1947. Three glowing V-shaped objects circle over the Owyhee Dam in Parma, ID for more than 10 minutes.
+
+Feb 10, 1953. Army security guard Jessie E. Kent observes two glowing discs hovering 150 feet above the dam and reservoir at the Richard Quartermaster Depot in Richmond, VA.
+
+May 1953. Two men driving over the bridge of Loch Raven Dam in Baltimore, MD are confronted by a UFO which stalls their vehicle. Five years later, on Oct 26, 1958, two men driving over the same bridge have the same experience. Over the next decades, many other encounters occur.
+
+1950s. An employee of Davis Dam in AZ reports that UFOs would repeatedly hover over the dam, apparently drawing electric power from the hydroelectric station.
+
+Jul 1962. Two men fishing at the Foote Dam reservoir in Oscoda, MI see a huge saucer-shaped craft covered with multi-colored lights right overhead. Moments later, fighter jets from nearby Wurtsmith AFB chase it away.
+
+Oct 24, 1962. Railroad employee Lester Sandler reports seeing a UFO over the Horsetooth Reservoir and Dixon Dam area. Moments later another witness reports a UFO landing at the base of the dam.
+
+Jun 20, 1964. Two witnesses see a UFO and humanoids hovering over the Gorge Dam in Newhalem, WA. U.S. fighter jets chase the object away and a govt investigation follows.
+
+1964. AF Officer Frank Kinsey and his brother see a “USO” rise out of Lake Casitas. Through a porthole, they see a humanoid looking back at them. Kinsey quickly snaps of a photo.
+
+Jan 11, 1966. Hundreds of people observe a UFO maneuver for several hours at low elevation over Wanaque Reservoir and Raymond Dam. Ten months later on Oct 10, the UFO returns and is witnessed by hundreds and even photographed.
+
+Aug 30, 1970, security guard Almiro Martins de Freitas shoots at a UFO as it hovers directly over the Funil Dam. Almiro is struck by a beam of light which temporarily blinds him. The UFO leaves, but returns multiple times over the next week.
+
+Jun 1971, a family has three encounters in a week by the Clearwater Dam in Piedmont, MO, including one “USO” in the reservoir itself. One year later, more sightings occur, generating national headlines.
+
+1971. A man camping in Jamison Valley by the Warragamba Dam in New South Wales, Australia walks upon a landed UFO and several humanoids.
+
+Feb 1973. Numerous witnesses (including police) observe a UFO dive into the waters of Wheeler Dam in Huntsville, AL.
+
+Jun 5, 1973. Two fishermen at Rio Dam in Port Jervis, NY see a glowing UFO sucking water up from the lake. Looking through a porthole, they see a strange, brown-skinned humanoid.
+
+These are just a few of the many other cases occurring all over the world: Dillon Dam in CO, Castelo de Bode Dam in Portugal, Fort Phantom Lake Dam in TX, Blewett Falls Dam in NC, Palmar Dam in Uruguay, Muskrat Dam in Canada, Alfalfal Dam in Chile, Wivenhoe Dam in Australia, El Tunal Dam in Argentina, Scammonden Dam in England, and so many others.
+
+There are too many cases to deny. UFOs are showing a strong interest in our dams and hydroelectric stations. They are clearly keeping tabs on our technology, and in some cases, appear to be taking water and electricity. These cases show that UFOs are not imaginary, but are highly technological craft piloted by extraterrestrials.
+
+To explore more about these amazing cases and many others, check out the book, “Not from Here Volume Four.” Now available!
+   • Those Dam UFOs!!!  
+
+LINK TO BOOK:
+https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/WA-MniOYkTo" target="_blank" rel="noopener noreferrer">EPISODE #148. 
 INDEPENDENCE DAY UFO ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/WA-MniOYkTo</h5>                                                             <h5>February 17, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>8,409 views  Feb 17, 2023</h6>
+What’s the most common day to see a UFO? The answer may surprise you: the 4th of July! That’s right, Independence Day produces more UFO reports than any other day. The question is, why? Are people mistaking fireworks for genuine UFOs? Or is something else going on here?
 
+An examination of the UFO reports made on the fourth of July shows some interesting patterns. Many do involve fiery glowing orbs, or what may very well be sky lanterns, also known as party lanterns. These are small paper balloons set aloft with a small candle. They can rise up to 4000 feet and from a distance, look very much like a UFO.
+
+But the fact is, there are literally hundreds of cases where this explanation simply does not fit! Some do look like orbs, however, sky lanterns fizzle out after fifteen minutes, and many of these orb sightings last much longer. Also, orbs cannot turn at right angles, stop still in the sky, or accelerate at high speeds, as many of these orbs do. Furthermore, many of the Independence Day UFO encounters involve structured craft, metallic saucers complete with portholes and multicolored lights. Some cases also involve actual humanoids. Clearly the fireworks explanation doesn’t fit. 
+
+There are so many cases involving UFOs seen on the Fourth of July that it is clear something very profound is happening here. Fireworks appear to be a UFO magnet. Many of the witnesses have come to the conclusion that UFOs are coming down to watch the fireworks show. ETs love fireworks!
+
+But it might be more than this. Remember, on the Fourth of July, millions of people all across the United States flock outside at night and stare upwards. Could it be that the extraterrestrials are aware of this and are using this day as an opportunity to announce their presence. The answer appears to be a big YES! Because many of these reports involve UFOs that not only watch the fireworks show, but they put on a show themselves. They will flash their lights, dart around, and put on a fantastic display for the stunned audience.
+
+This video presents dozens of cases in which UFOs have appeared during fireworks shows all across the United States. Here is what some of the witnesses are saying:
+
+“We were watching fireworks, which were to our east. I noticed the UFO to the north, but said nothing to no one. I observed it for two minutes as it moved silently eastward, then suddenly reversed direction as it picked up speed. Then assuming its original course once again, it moved slowly upwards and out of sight.” –1963, Greensboro, NC.
+
+“There was a tremendous flash of lightning at the same time a firework went off in the sky. I looked up and saw an absolutely huge saucer-shaped object sitting right over the ‘mountain’ we were next to.” –1965, Cornwall-on-Hudson, NY.
+
+“When it finally reached us, I saw it was a circular craft. It hovered right above the poplar trees at the end of the street, where we were all gathered.” –1977, Federal Way, WA.
+
+“[It was] a disc-shaped object displaying multicolored lights in a circle, hovering at what seemed to be 100 feet above us and the gathering crowd.” –1978, Nashua, NH.
+
+“It made no sound. I was scared to death…I wanted to hide under the car…I wanted to scream, but couldn’t. I realized I was not supposed to remember this happening. I kept telling myself, I will remember. The craft’s size was huge, bigger than the fairgrounds bleacher area.” –1980, St. Paul, MN.
+
+“My brother was watching the fireworks when all of a sudden he went as white as a ghost. My mother shouted out, ‘Oh, my God!’ I went to see what was going on…it was the weirdest thing ever, a disc-shaped with small portholes going around its midsection.” –1982, Hermosa Beach, CA.
+
+“Most people don’t get to see a craft that close and distinct. I even saw the molding around the windows…Three Nordic-looking men in white, with blond hair, staring at us as if we were mere cattle. I could see them from the belly up, not sure if they were standing or sitting. They had no apparatus on at all. I never took my eyes off it until it was gone from sight.” –1999, Lancaster, PA.
+
+There are too many cases to deny. The aliens are coming down to watch the fireworks shows, and they are also putting on displays themselves. And in fact, these are more than just simple sightings. Every single one of these cases are actually Close Encounters of the Fifth Kind! Fireworks are evidently an effective method to call down UFOs out of the sky.
+
+If you’d like to explore more about these Independence Day UFO Encounters, and many other strange cases of UFO contact, check out the book, “Not from Here Volume Four.” Now available!
+   • Independence Day UFO Encounters  
+
+LINK TO BOOK: https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/UYKOzY6rnKQ" target="_blank" rel="noopener noreferrer">EPISODE #147. 
 “I PUNCHED A GRAY IN THE FACE!”</a>.</h3>
 <h5>LINK: https://youtu.be/UYKOzY6rnKQ</h5>                                                             <h5>February 10, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>15,366 views  Feb 10, 2023</h6>
+As a general rule, when someone is visited by gray ETs, they find themselves paralyzed, unable to their body. “Don’t worry, we won’t hurt you,” the grays say. “Come with us.” It is perhaps the most common phrase the ETs say. In cases where people have no fear, they are often given freedom of movement. Others do have fear and have a fight or flight response. In some cases, witnesses break free from their paralysis and react by attacking the extraterrestrials and punching them in the face, choking them around the neck, or getting into some sort of physical altercation. It happens more often than you might think. This video presents more than a dozen cases in which people actually assaulted gray aliens by pushing, kicking, choking or punching.
 
+NOV 3, 1975: Woodcutter Travis Walton and six others encounter a UFO at treetop level in the Sitgreaves National Forest, AZ. Travis runs under the UFO and is taken onboard. Confronted by grays, he physically fights with them.
+
+APR 5, 2017: A young man from Del Valle, TX is woken up by his dogs barking. Searching the house, he sees two grays in his mother’s bedroom. He jumps forward and punches one of the grays in the head. When the second one grabs him, the witness punches him too. And then a third gray comes in.
+
+WINTER 1985: Patsy Wingate of Knoxville, TN wakes up to see three grays approaching her. Reacting in self-defense, she jumps up and chokes the middle gray, snapping its neck. Astonished, the other two grays scoop up the gray and flee!
+
+1985: Tim, a sports-instructor from New Iberia, LA wakes up to find himself lying on a table onboard a UFO. He breaks free from his paralysis and begins to explore. Grays rush in and Tim begins punching the grays, one after another. Suddenly a crowd of them surround him and Tim realizes he is out-numbered.
+
+2016: “Gary” from Cumbria, England wakes up one morning and encounters a gray in his living room. Angry at the repeated intrusions into his home, he grabs the gray around the neck. The gray starts screaming telepathically, “Let go, let go!” A few days later, the grays come again, and Gary is ready. This time he punches one in the face.
+
+1982: Former Marine officer, “Ramon,” is taken onboard a UFO in San Fernando, CA. He becomes angry when the grays try to collect genetic material from him. Summoning his combat training, he breaks free of the paralysis, jumps up and pushes one of the grays down to the floor.
+
+Aug 13, 1975: Sgt Charles Moody of Alamogordo, NM is not happy when a UFO lands in front of his car, grays come out and try to pull him from his car. He opens his car door, knocking one of the grays down. Then he bunches up his fist, and pounds one of the grays in the face.
+
+Oct 27, 1975: David Stephens and his friend are driving near Oxford, ME when a UFO takes control of their car. Next, grays appear and pull David onboard. When they try to undress David for an exam, he resists. He jumps off the table and hits one of the grays.
+
+Oct 2010: Kevin is woken in his home in Bangor, ME and pulled into a craft by gray aliens. When they insert a rod inside his nose, Kevin becomes hostile. He swings out his leg and kicks one of the grays, slamming it hard into the wall, where it collapses in a heap.
+
+UNDATED: An anonymous teenager in high school (location not given) has a very unusual dream where grays enter his room and begin to do a weird procedure on his back. Having scoliosis, he thinks they might be healing him. However, scared and angry that the ETs were not communicating with him, he quickly throws a left hook as hard as he can at the gray’s cheek. The gray lets out a high-pitched scream.
+
+There are more cases like these. John Mack has a case in which a man, angry at being examined, jumps up and chokes a gray. Contactee Dolly Safran (from Georgia) recalls several instances where she was onboard and people reacted violently by punching the grays, pushing them down, or even breaking their arms. These cases show that, when confronted with the unknown, humans often become very fearful and react with violence. Even more importantly, they show that people can overpower the grays, who appear to be physically more fragile than humans. These cases have a lot to teach us both about humans and the grays, and our relationships to each other.
+
+If you’d like to explore these cases and many others, check out the book, “Not from Here: Volume Four” all about the unusual and outlying cases of UFO contact. Now available!
+   • "I PUNCHED A GRAY IN THE FACE!"  
+
+LINK TO BOOK:
+https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/3fSdfSATLxI" target="_blank" rel="noopener noreferrer">EPISODE #146. 
 CALIFORNIA UFO LANDINGS AND HUMANOIDS: TWELVE TRUE CASES</a>.</h3>
 <h5>LINK: https://youtu.be/3fSdfSATLxI</h5>                                                             <h5>January 27, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>10,568 views  Jan 27, 2023</h6>
+While many people speculate about the nature and origins of the UFO phenomenon, cases of landings and humanoids make it clear what they are. UFOs are craft, and they are piloted by extraterrestrials. These kinds of encounters represent the core of the UFO phenomenon. They teach us the most about these visitors to our world, who they are, where they come from and their agenda on our planet. Humanoid encounters have been occurring for a very long time, and are far more common than many people realize. In fact, according to the Roper Polling Organization, as many as one in fifty people may have had these experiences. They occur all across the planet to all kinds of people. The state of California leads the U.S. in the sheer number of encounters. And the cases of humanoids show a corresponding and profound variety of humanoid types. Here are twelve cases of landings and humanoids from the Golden State.
 
+Oct 18, 1927: While driving outside the town of Bakersfield, schoolteacher Richard Sweed comes upon a landed UFO. As he approaches, it makes a loud whining noise, accelerates upward and disappears into the distance, leaving behind a circle of glassified sand.
+
+Dec 1957: Edmond Rucker of El Cajon hears a loud roaring noise outside his home. Venturing outside, he is confronted by a landed UFO and four strange humanoids who speak to him about their mission on Earth.
+
+Apr 14, 1964: A truckdriver on a highway outside of Chico comes upon a domed disc which hovers above his truck causing it to stall. When the UFO lands nearby, the man exits his truck and approaches the craft. He touches the craft and is amazed to hear strange voices coming from inside.
+
+Apr 1964: Gloria Biggs, her husband and mother are driving outside the desert town of Baker when they see a domed-shaped object landed next to the highway ahead of them. As they approach, the UFO takes off. They examine the landing site and discover a weird depression in the ground.
+
+Mar 31, 1966: Two women driving by a construction site near San Francisco see a metallic disc hover at low altitude. Through the windows of the craft, they are amazed to see the silhouettes of several “people” gesticulating at them.
+
+Oct 4, 1973: While driving along the 118 Freeway in Simi Valley, Gary Chopic observes a small triangular-shaped craft with a transparent dome on top. Inside he sees a human-looking figure at the controls. And then the humanoid sees him!
+
+Dec 17, 1973: Driving at night outside of Paso Robles, Sergeant Lance Mathias and his friend Mike Andrews see a hovering spherical UFO sending down a beam of light. Going to investigate they are confronted by two metallic-suited humanoids.
+
+1974: The Overfelt family of Ramona are drawn out of their farmhouse by a huge glowing sphere which lands on a hill near their home. All the animals on the farm react to the presence of the UFO. The Overfelts call the police, who refer them to investigators, who have some important advice.
+
+Mar 6, 1977: While watching over a factory in Sylmar, security guard Douglas Kriese is amazed to see a UFO drop out of the sky and land in a field nearby. He approaches it and hears it making a buzzing sound, and feels it emitting an intense heat. He immediately calls the police.
+
+1977: Two Native American brothers from Colusa contact investigators after a UFO keeps landing near their ranch-home and a long-haired big-nosed humanoid keeps entering their can through the walls. When investigators arrive, they see the UFO themselves!
+
+Oct 31, 1976: a husband a wife motorcycling through downtown Los Angeles see a spherical UFO hovering below the level of the buildings. The sunlight strikes the craft, making it transparent. They then see human-looking figures staring down at them. The wife quickly flashes them the peace sign.
+
+Nov 29, 1988: Maria X. of Sherman Oaks is in her bedroom with her young son when grays show up and render her unable to move. Maria is concerned about her son, but falls unconscious. The next morning, her son exclaims that “My aliens came back!” and provides a vivid description of what it’s like to be pulled by the ETs through the wall.
+
+These twelve cases are just the tip of the iceberg of UFO landings and humanoids in California. And yet, these cases here represent an accurate cross-section of UFO activity across the world. They also show that humanoid encounters often present good hard evidence in the form of landing traces, electromagnetic effects, animal reactions, physiological effects, and other stunning confirmation.
+
+If you’d like to explore more about these encounters and many others, check out the book, “UFOs over California: A True History of Extraterrestrial Encounters in the Golden State.” Now available!
+   • California UFO Landings and Humanoids: Twe...  
+
+LINK TO BOOK:
+https://www.amazon.com/dp/0764321498/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/0D2XWWn-fkg" target="_blank" rel="noopener noreferrer">EPISODE #145. 
 ARIZONA HUMANOIDS: TEN TRUE CASES</a>.</h3>
 <h5>LINK: https://youtu.be/0D2XWWn-fkg</h5>                                                             <h5>January 20, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>23,344 views  Jan 20, 2023</h6>
+Face-to-face encounters with humanoids and onboard UFO experiences are the cutting edge of UFO research. Cases like these teach us the most about extraterrestrials, who they are, where they’re from, and their agenda on our planet. Humanoids come in all shapes and sizes, and encounters with them are surprisingly varied. People all over the world have been having encounters with humanoids for a very long time. Each location on the planet has a long history of humanoid encounters. One area with a surprisingly rich history is the state of Arizona. What follows are ten cases from the Grand Canyon state, each with its own insights into the nature and origins of the UFO phenomenon.
 
+AN ALIEN ON THE ROAD: On June 9, 1960, a woman was driving with her husband and two children east of Globe. Everyone but her was asleep when she saw what appeared to be a young child about to cross the road. Then it turned its head and what she saw shocked her: the figure was not human!
+
+GROUP OF MUSICIANS ABDUCTED: It was 1968 when a group of musicians finished a gig in Phoenix, and drove out of town to party. Without warning, a UFO appeared and hovered overhead. The next thing they knew, they were being examined by gray aliens.
+
+ABDUCTION IN THE WHITE TANK MOUNTAINS: On June 20, 1980, three women traveled to the White Tank Mountains to investigate recent UFO sightings. Suddenly strange lights approached and all three women fell unconscious, then woke up hours later. Under hypnosis, one of them recalled being taken onboard, where she was given profound messages from the ETs.
+
+UFO ENCOUNTER IN JAKES CORNER: In August of 1987, five people were outside their home in Jakes Corner when they saw a UFO rise up from a mountain and hover overhead. Then it moved over their home and stayed there. At this point, all but two of them went inside, and a bizarre encounter ensued during which the ETs showed a strange interest in the men’s feet.
+
+THE RUBY ALIEN: In August of 1988 Sam visited an abandoned ghost town in Ruby, near the southern border of Mexico, he heard a strange whooshing sound overhead. Nothing strange was visible, but shortly later, he was amazed to see a short humanoid wearing a weird jumpsuit standing nearby. Sam just happened to have a camera, and he quickly snapped a stunning photograph.
+
+A RIDE ABOARD A FLYING SAUCER: In the late 1980s, a retired pilot was driving through the desert near Cave Creek when his car stalled. As he checked the engine, a handsome blond man walked out of the wilderness, announced that he was an extraterrestrial, and offered the man a ride aboard his flying saucer.
+
+CONTACT IN SOUTHERN ARIZONA: At 2:00 a.m., on February 20, 1991, Sheri was woken up by a huge UFO hovering outside her home. She then found herself being taken onboard where she met several different types of ETs, who gave her strange silver medicinal pills, and also a mineral sample. Sheri saved both and handed them over to researchers. Then there were the photos!
+
+ONBOARD ENCOUNTER IN DEWEY: On September 28, 1991, Leslie woke up in her home to find her bed surrounded by grays. More stranger-looking ETs appeared, and Leslie was pulled through the wall of her  home into a craft. During the encounter she was taken to the other side of the world and deep into the ocean. It was an experience which would leave her utterly transformed.
+
+TOUCHED BY A GRAY: In February 1997, Louise and her husband moved into their new home in Chandler. One month later, three grays appeared in her bedroom. One of them stepped forward and touch Louise on the forehead. She blacked out only to discover remarkable evidence of her close encounter.
+
+SOMETHING NOT FROM THIS WORLD. In February 2005, after a long day working at the local ski resort, Eric woke up in his home in Flagstaff to see a gray alien standing over his bed. Freaked out, he flipped his middle finger at the ET and blacked out. Only a few weeks later, he received startling confirmation that he wasn’t the only one in his family having encounters.
+
+These ten accounts provide an accurate representation of humanoid encounters. They show how truly bizarre and varied contact with extraterrestrials can be. They show that encounters can occur anytime and anyplace, and can have a profound effect on a person’s life.
+If you’d like to explore these encounters and many others, check out the book, “UFOs over Arizona: A True History of Extraterrestrial Encounters in the Grand Canyon State.” Now available!
+   • Arizona Humanoids: Ten True Cases  
+
+LINK TO BOOK:
+https://www.amazon.com/dp/B071H9YM5D/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/tBAjYQsK1Ho" target="_blank" rel="noopener noreferrer">EPISODE #144. 
 EXTRATERRESTRIAL HITCHHIKERS</a>.</h3>
 <h5>LINK: https://youtu.be/tBAjYQsK1Ho</h5>                                                             <h5>January 13, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>21,604 views  Jan 13, 2023</h6>
+Imagine driving along a remote highway and you see someone stick out their thumb, asking for a ride. You don’t pick up random hitchhikers, but for some reason, you feel compelled to stop. The hitchhiker, you now realize, looks weird, is dressed strangely, and starts to behave in unusual ways. Suddenly you realize that the hitchhiker is not human. This may sound crazy, but the fact is, there are more than a dozen cases on record that fit this exact pattern. Extraterrestrial hitchhikers! It happens more often than you think.
+
+1956: Army officer Virgil Atkinson is driving along the Pacific Coast Highway in Santa Monica, CA when he picks up two young sailors. After dropping them off, he finds himself being followed by a UFO.
+ 
+Oct 10, 1967: Norman C is driving to his home in Lakewood, CO when he is stopped by an odd tall man alongside the highway. The man begins asking him very odd. As the man walks off, a gigantic UFO appears overhead.
+
+Mar 1973: Frank Bales is driving through WA when he stops to pick up two tall strangers wearing white robes. Frank is amazed to see that they have six fingers on each hand! The hitchhikers give him predictions and tell him they are “the Watchers.”
+
+1973: Musician Steve Boucher is driving with his fellow musicians along a highway in Ontario, Canada when they pick-up a hitchhiker. The next thing they realize, a UFO lands on the road in front of them, and the hitchhiker is leading them onboard the UFO.
+
+Oct 18, 1974: Edmoana Toews and Nuria Hanson are driving through a remote area of British Columbia, Canada when they are followed by a UFO. At some point, they feel compelled to give a strange hitchhiker a ride. So begins an ordeal that leaves them convinced that the man was an ET.
+
+1978: Gina and Lois traveling to Phoenix, AZ see a strikingly handsome blond-haired, blue-eyed man thumbing a ride. They never pick up hitchhikers, but can’t stop themselves. The man tells them to have no fear when their car is levitated off the road and into a UFO.
+
+2004: An anonymous pilot driving through the remote desert outside of Yuma, AZ stops to give a man a ride. As they converse, the hitchhiker reveals that he is an extraterrestrial in disguise, working on Earth to help humanity.
+
+Jul 25, 2001: Irina and her father drive near Mishor, Ukraine and see a very handsome man on the side of the road asking for a ride. They give the man a ride. The next thing they know, they are paralyzed, lose control of their car, and discover that the hitchhiker is actually an alien.
+
+Jun 12, 2003. Mr. Zilmerman is on his way to work in Limeira, Brazil when he feels compelled to stop and pick up a hitchhiker. The man in his car is not normal. He is very short, has cat-like eyes, a bald head, a pale oily complexion, smells awful and wears a one-piece tight jumpsuit with bizarre thick-soled shoes. He’s definitely not human!
+
+2004: Mr. O.B., drives near Salisbury, VA and picks up a hitchhiker. O.B., is shocked to see that the man has huge eyes, pale skin, thin blond hair and unusual features. He warns O.B. about the dangers of our political system. From there, things get weirder.
+
+Undated: Dakota is driving between Window Rock and Chinle, AZ and stops to give a man a ride. He now sees that the man is very odd-looking, with thin limbs, very pale skin, and is wearing a shimmering white jumpsuit. Next, they come upon a flying saucer blocking the road.
+
+Undated: Four men leave a wedding reception near their home in Guatemala City when they agree to give a man wearing a cowboy hat a ride. Shortly later, they find themselves confronted by a UFO. The hitchhiker disappears and reappears, and leads all of them onto the UFO.
+
+Aug 1, 2018: An anonymous trucker driving through Corsicana, TX sees a tall, thin, green-skinned figure standing alongside the highway as if looking for a ride. Shocked by the man’s strange appearance, he doesn’t stop. But luckily, he does have an operating dash-cam, which captures the entire incident on video!
+
+With more than a dozen cases, it is clear that this is a thing. Aliens are hitching rides from unwary drivers all over the world. In case after case, the people who have this experience find themselves taking a route they don’t normally take. When the hitchhiker appears, they feel compelled to stop and pick them up. Only then do they notice that the hitchhiker is strange in appearance, dress and behavior. In many of these cases, the drivers end up being taken onboard a UFO! It is one of the most bizarre types of UFO encounters on record, and yet, the chances are, the cases presented here are likely just the tip of the iceberg.
+
+If you’d like to explore these strange cases and many others, check out the book, “Not from Here: Volume Four.” Now available!
+
+LINK TO BOOK:
+https://www.amazon.com/dp/B0BJFGZFH1/...
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/azGrn4nMSDw" target="_blank" rel="noopener noreferrer">EPISODE #143. 
-INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART FIVE: 
-GATHERING THE CHILDREN</a>.</h3>
+INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART FIVE: GATHERING THE CHILDREN</a>.</h3>
 <h5>LINK: https://youtu.be/azGrn4nMSDw</h5>                                                             <h5>January 6, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>10,420 views  Jan 6, 2023</h6>
+It goes by many names. Some call the experience UFO abduction. Others call it a Close Encounter of the Third Kind. Some prefer to call it Contact, or an Onboard UFO Experience. Whatever term you prefer, the truth is that many people are being taken onboard extraterrestrial craft. In fact, some researchers believe that millions of people have had this experience.
+Dolly Safran has been a fully conscious UFO contactee her whole life. Beginning at age fourteen, she has been taken onboard hundreds (if not thousands) of times. She has spent days, weeks, and sometimes months with the ETs, learning from them, working with them, flying the craft, interacting with various ET types, traveling to other star systems and more.
 
+In this interview (Part Five of a series) Dolly describes the very controversial aspect of UFO encounters that many people call abductions. She doesn’t call them that. And neither do the ETs. The extraterrestrials are contacting people and bringing them onboard, but they call this process, “Gathering the Children.”
+
+What is the reason for people being taken onboard? Why are the ETs contacting so many people? Is it for our benefit or theirs? Dolly answers these questions and more, and not from speculation, but from firsthand experience of her many interactions with them.
+
+The reasons, says Dolly, are many. The ETs are here to heal, to teach, to guide, to warn…to help enlighten people to their own psychic abilities. There is a lot of fear and disinformation surrounding the UFO contact experience. Many people experience terror and trauma and believe they are being taken against their will. But after living and working with the ETs for many years, Dolly knows that this is not what is actually happening. The ETs are not here to scare people or harm them. They are here to help. Dolly has been onboard the ET craft hundreds of times when people are picked up for medical exams, consultations, guidance, healings and more. She has not only experienced this herself, she has watched it happen to countless other people. She has been onboard and counseled others during their own close encounters.
+ 
+While some may perceive the experience as scary and negative, the truth is far different. Dolly shares her own experiences with people being taken onboard and healed, taught, guided, awakened to their own contacts. Dolly’s story of UFO contact is one of the most extensive on record. Her case is well-documented with multiple supporting corroborative witnesses, medical records that show her own healings (and implants,) impressive photographic and video evidence and much more. After watching this video, you will see that contact, despite all the fear and misinformation, is in fact a positive experience, one that is for the betterment of all humanity.
+
+For those who want to know more, Dolly’s lifelong experiences (recalled fully consciously and without the use of hypnosis) are presented in the book, “Symmetry: A True UFO Adventure.” A Number One Amazon UFO bestseller. Now available!
+
+LINK TO BOOK: https://www.amazon.com/dp/B09VF3J8NR/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Q-Ua792wFO0" target="_blank" rel="noopener noreferrer">EPISODE #142. 
 I CRASHED INTO A UFO!</a></h3>
 <h5>LINK: https://youtu.be/Q-Ua792wFO0</h5>                                                             <h5>December 30, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>94,081 views  Dec 30, 2022</h6>
+It is among the closest and rarest of UFO encounters. It almost never happens. But the fact is, on extremely rare occasions, people have collided with a UFO. Planes, trains and automobiles, and even boats -- all have crashed into UFOs. Vehicle accidents occur every day. But is a very short list of people who have crashed into an extraterrestrial craft. This video presents a comprehensive look at UFO collisions. And not only UFOs, but in a few cases, collisions with extraterrestrials.
 
+PLANES: While there are literally thousands of cases involving UFOs seen from aircraft, there are a dozen cases in which planes have collided with UFOs.
+
+Jul 1951: Pilot Fred Reagan is flying his Piper Cub over FL when it collides with a UFO.
+
+Jul 22, 1955: Major Mervin Stevens is flying his C131-D aircraft when it collides with an unknown object over Pixley, CA.
+
+Oct 1955: A pilot flying a B-47 aircraft collides with a UFO over Lovington, NM.
+
+Jul 18, 1957:  A USAF fighter jet strikes a 30-foot-wide disc over NM, killing the pilot and causing the UFO to crash.
+
+Apr 1, 1957: A USAF C118 collides with an unknown object after taking off from McChord AFB in WA state.
+
+May 2, 1974: Private pilot Carlos de los Santos Montiel is surrounded by three UFOs in his Piper Aztec over Mexico City, one of which strikes his plane.
+
+June 1974: A Japanese AF pilot is flying an F-4 Phantom jet when he strikes a 40-foot-wide metallic disc.
+
+Aug 25, 1974: A disabled UFO plunges to the ground outside of Coyame, Mexico, striking a plane and killing all people onboard.
+
+Oct 23, 1992: Pilot Thomas J. Preziose is killed when his Cessna cargo plane is struck by an unknown object over Mobile, AL.
+
+Jul 28, 1994: Captain Raymundo Cervantes is flying a DC-9 commercial jet over Mexico City when a UFO comes up from below and strikes the landing gear.
+
+Jun 4, 2013: A Chinese passenger jet, a Boeing 757 takes off from Chengdu Airport in China and is struck on the nosecone by an unknown object at 26,000 feet.
+
+Oct 2017. A Boeing 757 carrying the NBA basketball team, the Oklahoma City Thunder, en route from MN to IL is struck by an unknown object at 30,000 feet.
+
+AUTOMOBILES: The most common type of UFO collision is with automobiles. Here are more than a dozen cases.
+
+Feb 7, 1965: A salesman reports that a UFO forced him off the road and proceeded to smash into his car, destroying it almost completely.
+
+Mar 30, 1966: Three passengers are driving over the Wade Road Overpass near Baytown, TX when a glowing object drops from the sky and strikes the roof of their car.
+
+Mar 31, 1966: A man driving along Q Street in Ralston, NE is struck by a black object, leaving a 3-foot-wide dent on his hood and front fender.
+
+Mar 28, 1967: David Morris is driving home from work in Munroe Falls, OH when he comes upon a landed UFO and occupants, and strikes one of the creatures as it crosses the road.
+
+Jul 13, 1967: Two friends driving to Whitehouse, OH come upon a large disc blocking the road. Unable to stop, they collide into it, damaging their car.
+
+Jul 17, 1967: Emma Funk of Millerton, NY calls the police after a black spherical object drops from the sky and strikes her windshield.
+
+Aug 24, 1979, Deputy Sheriff Val Johnson of Stephen, MN strikes a glowing object which causes extensive damage to his police cruiser.
+
+1984: Two U-Haul drivers from Bowling Green, KY suffer severe damage to the truck after being struck by some unknown object from above.
+
+Sep 1, 1984: A family is driving south on Route 84 in AZ and strike a white-suited humanoid which crosses the road in front of them.
+
+Nov 21, 1988: Three friends are driving in convoy in two vehicles through the desert of NM when a glowing silver orb strikes the side of their vehicle.
+
+Jan 17, 1989: Three people are driving along Lucky Strike Road in NV and collide into a reptilian humanoid crossing the road in front of them.
+
+Nov 27, 1998: A woman driving near Mt. Clemens, MI is struck by a glowing white orb the size of a basketball, leaving a strange residue on her car.
+
+2000’s: An anonymous couple driving home from the Olive Garden collide with a floating black cube-shaped object.
+
+May 2004: A woman driving along Lake Cook Road in Algonquin, IL is suddenly forced off the road by an invisible force.
+
+And that’s not all. There is at least one case of a UFO striking a train, and another of a USO striking a boat. So many cases! These encounters show that UFOs are not infallible and that accidents do happen. And these are only the cases we know about. How many more have not been reported, or are being covered up by the military?
+
+If you’d like to learn more about these cases and others, check out the book, “Not from Here: Volume Four.” Now available!
+   • I Crashed into a UFO!  
+
+LINK TO BOOK:
+https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ljPzYvcZ00o" target="_blank" rel="noopener noreferrer">EPISODE #141. 
 HUMANOIDS AND HIGH STRANGENESS IN NEVADA: FIVE TRUE CASES</a>.</h3>
 <h5>LINK: https://youtu.be/ljPzYvcZ00o</h5>                                                             <h5>December 23, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>16,570 views  Dec 23, 2022</h6>
+Among the closest of UFO encounters are cases involving strange humanoids. It’s one thing to see an unidentified flying object from a distance, it’s quite another to see a gray alien, have missing time or even be taken onboard a craft. It’s these types of encounters where we learn the truth about UFO contact and what it’s like to meet an extraterrestrial face-to-face. This video presents five true accounts of humanoids and high strangeness from the state of Nevada. Of course, humanoids are seen all over the world. And Nevada is no exception. In fact, Nevada has many accounts of this kind. What follows are five of the weirdest and most bizarre.
 
+SHARLEEN’S ONBOARD ENCOUNTER. One evening in Jul of 1964, Sharleen Nicholson was six-months pregnant when her house in Las Vegas began to vibrate with a buzzing noise. A light flooded through the windows. Venturing outside, she saw a saucer landed in the field by her home. Sharleen became filled with a strange calmness. The next thing she knew, she was back inside her home. By morning, she had forgotten the entire experience. She gave birth to a healthy baby boy. A few months later, during a baby shower, someone mentioned the word “UFO,” and the memory of her encounter returned. Had she been taken onboard? She wasn’t sure. 
+
+BOY SHOOTS A GRAY ALIEN. Early one morning in 1970, a father took his 7-year-old son rabbit hunting in the desert east of Reno. He stayed in the car drinking beer while his son took his rifle and searched out his quarry. After shooting a rabbit, he set his sights on another. That’s when he saw movement out of the corner of his eye. Looking in that direction, he was shocked to see a short gray-skinned figure with large dark eyes. When it raised its hand toward him, the witness swung his rifle around and shot. The strange creature dropped to the desert floor. Filled with fear and remorse, the boy dropped the rifle and ran back to his father who disbelieved him and told him to go back and get the gun. Upon returning to the site, the strange humanoid figure was gone. But up in the sky was a large cigar-shaped craft. The next thing the boy knew, he was taken onboard. 
+
+MISSING TIME IN INDIAN SPRINGS. On the evening of Dec 3, 1983, a small group of airmen from Creech AFB in Indian Springs hiked a few miles off-base to have a little beer-keg party. Growing tired, one of them decided to walk back to the base dorms. But his journey back was interrupted. Growing cold, he hunched down to warm up. The next thing he knew, he was waking up to find a man hold a gun to his head. He was sleeping on a couch in the home of a complete stranger. He and the homeowner were mystified as the house was protected by a tall fence and a guard-dog, and all the doors and the windows had been locked from the inside. Even stranger, there was a large incision on his abdomen. 
+
+THE ABDUCTION OF ALEX PODOVICH. On Nov 7, 2002, Las Vegas resident, Alex Podovich woke up to find a strange glowing light descending upon him. His body became paralyzed and he felt himself moving through the air. The next thing he knew, he was lying naked on a strange bed in a weird room, surrounded by humanoid figures with weird eyes. A bizarre ring-like device was fitted over his head. So began a series of encounters with apparent extraterrestrials. At first Alex had no fear. But he soon came to believe that the ETs were taking his reproductive material to produce hybrid children. Later experiences with the ETs would seem to confirm this. Alex then decided that these encounters were not in his best interests and he began to resist them. 
+
+HUMANOIDS ON ROUTE 95. On the evening of Dec 8, 2006, a married couple decided take a road trip from Las Vegas to the remote desert town of Beatty, NV. Their journey took them along Route 95 which led them through the town of Indian Springs and deep into the Nevada desert. At some point during their trip, they noticed a light hovering ahead of them on the highway. Slowing down, they saw that the light was actually a scraft hovering only a few hundred feet high. Even more shocking, through the windows they could see several strange humanoid figures both sitting down and standing, all of them looking down at them from above. It was instantly clear to both of them that the figures were not human.
+
+As can be seen, Nevada has no shortage of humanoids and high strangeness. About 87 percent of the state is owned by the Federal Government. It is also the location of the infamous Area 51, believed by many to be an area involving the reverse-engineering of UFO craft. Whatever the case, it’s clear that something very profound is happening in the Silver State.
+
+If you’d like to explore these cases and many others, check out the book, “UFOs over Nevada: A True History of Extraterrestrial Encounters in the Silver State.” Now available.
+
+LINK TO BOOK: Amazon.com: UFOs Over Nevada eBook : Preston Dennett: Kindle Store
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/anth_DSeBaY" target="_blank" rel="noopener noreferrer">EPISODE #140. 
 DO ETS HAVE THE CURE FOR CANCER?</a></h3>
@@ -4547,87 +5205,411 @@ DO ETS HAVE THE CURE FOR CANCER?</a></h3>
 SIX STRANGE CASES OF HUMANOIDS IN NEW YORK STATE</a>.</h3>
 <h5>LINK: https://youtu.be/t3se2Yi6lfE</h5>                                                             <h5>December 9, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>22,076 views  Dec 9, 2022</h6>
+Sightings of UFOs are undeniably interesting, but far more compelling are cases involving humanoids. Face-to-face encounters with extraterrestrial entities provide a profound insight into the UFO phenomenon and the alien presence on our planet. ETs are being seen all over the world, in every state, in every country. This video presents six extraordinary and unusual cases of humanoid entities from the state of New York. Each of these cases are strange and unique, and each offers an opportunity to further our understanding of extraterrestrials.
 
+CASE ONE: IMPLANTED BY ALIENS. In 1955, eight-year-old Richard Price was playing near his home in Lansingburgh, NY when he encountered short humanoid ETs and a landed UFO. He was taken onboard the craft, physically examined and given an alien implant. Further procedures followed. Richard was then returned, but his life would never be the same. His case became on of the first involving the scientific study of an alien implant.
+
+CASE TWO: A UFO LANDS ON MAIN STREET. On July 31, 1967, security guard Sidney Zipkin came upon a UFO landed in a parking lot along Main Street in Churchville, NY. To Sidney’s shock, two short humanoids raced into the craft which took off straight up. Sidney told his superiors who could see that Sidney was badly shaken. Unknown to any of them, numerous other people, including several police officers, saw UFOs in the same area at the same time.
+
+CASE THREE: THE NEWFIELD UFO FLAP. On the evening of October 24, 1967, two young boys, Donald Chiszar and Pat Crozer were outside their home in Newfield, NY and looking up, saw a large structured craft with portholes hovering about 130 feet overhead. Looking through the portholes, the saw two strange-looking humanoids staring down at them. The craft took off, but the next night it returned. So began a massive UFO flap involving hundreds of witnesses.
+
+CASE FOUR: “THEY WERE NOT HUMAN.” On the evening of June 10, 1972, an anonymous nurse, her mother and infant son, drove home along Coleman Station Road in Millerton, NY. Without warning, a massive craft dropped from the sky and hovered overhead only 150 feet away. Looking through the portholes, they saw five gray-skinned humanoids looking right back at them. They raced away and to their shock, the UFO began to follow them home.
+
+CASE FIVE: “I AM NOT AFRAID OF THEM.” On February 26, 1983, Monique O’Driscoll drove with her daughter through upstate New York. Suddenly a massive boomerang-shaped craft appeared low overhead. Monique mentally called out, “Don’t Go!” To her amazement, the craft approached even closer. Two months later, Monique was visited again, only this time she had missing time. Going under hypnosis, she recalled being taken onboard the craft.
+
+CASE SIX: THE GROUP ABDUCTIONS. In September 1989, a group of five friends (James, Curtis, Petra, Brian and Paul) decided to spend the Labor Day weekend at a trailer in a forested area of Saugerties, NY. That evening, the trailer filled with light and they experienced a period of missing time. Over the next four years, each time they spent time at the trailer, weird things happened. Under hypnosis, they learned that they were all being taken together onboard a UFO.
+
+These six cases are just the tip of the iceberg, but together they show what it’s like to have a face-to-face encounter with extraterrestrials. Each have multiple witnesses and additional corroborating evidence. And each makes one fact very clear: we are not alone!
+
+If you’d like to explore more about these cases and many others, check out the book, “UFOs over New York: A True History of UFO Encounters in the Empire State.” Now available!
+
+LINK TO BOOK:
+https://www.amazon.com/dp/076432974X/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/C7hGChhR8c4" target="_blank" rel="noopener noreferrer">EPISODE #138. 
 ETS TEACH PEOPLE TO LEVITATE</a>.</h3>
 <h5>LINK: https://youtu.be/C7hGChhR8c4</h5>                                                             <h5>December 2, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>21,486 views  Dec 2, 2022</h6>
+A UFO encounter can have many profound effects upon a witness. A person can be physically affected, with such symptoms as injuries or healings. An encounter affects a person mentally, challenging their world view. A UFO encounter is also a very emotional experience and can trigger the full range of emotions. But it goes beyond that. A close encounter can also transform a person spiritually, triggering a wide variety of paranormal events. It’s not unusual for contactees to experience OBEs, precognition, past-life memories, channeling, ghostly encounters and more.
 
+One of the most bizarre effects, one that has received little attention, is that following an encounter, some abductees experience spontaneous human levitation. As unusual as this may sound, there are a growing number of cases. This video presents more than a dozen cases of people who have levitated as a result of a UFO encounter. It appears that ETs are teaching people how to levitate.
+
+One case comes from French researchers Aime Michel and Jacques Vallee. It involves an anonymous medical doctor who had a close encounter that healed him of a wound on his ankle and partial paralysis. Following the encounter, the doctor also experienced two episodes of spontaneous human levitation.
+
+Whitley Strieber (author of Communion and other books) also reports having a spontaneous levitation experience in his cabin in upstate New York. Strieber had just gone to bed one evening in 1986 when he found himself floating up to the ceiling. He rose up and down several times before finally coming down to a landing in his bed. Following this experience, he began to research these experiences and located two other contactees who reported nearly identical events.
+
+Another well-known contactee who has experienced spontaneous levitation is Dr. Steven Greer MD, founder of CSETI. Following an onboard UFO experience at age nineteen in his hometown of Boone, NC, Greer found himself able to make leaping bounds, floating more than twenty feet with each step. Some years later, he experienced another even more profound episode of spontaneous levitation and floated a few feet above the ground for several yards before coming in for a landing.
+
+These cases are not as rare as you might think. Researcher Budd Hopkins (author of Missing Time and Intruders) uncovered two cases, both involving children who were having UFO experiences. In each case, the children levitated on several occasions. In both cases, the witnesses connected their levitations to their UFO encounters.
+
+A firsthand case comes from a man by the name of Maurice who reports that in 1966, he and his sister were taken onboard a craft. In the hours following the experience, both found that they had the ability to levitate. They floated around the basement for an hour and afterwards played with this ability in their yard. 
+
+In 1951, eight-year-old Mary Frank (who would later discover she was a contactee) experienced a profound levitation event during which she flew down a corridor for several yards, even turning corners, before coming to a soft landing on her feet. She tried several times to duplicate it but was never able to repeat the experience.
+
+In 1953, five-year-old Ramon (who would later become an officer in the Marines) was taken onboard a UFO from his home in California. Following the encounter, he discovered that he was able to levitate. In the days and weeks following his onboard encounter, he levitated on at least three separate occasions, two episodes which were verified by outside witnesses.
+
+In another case, a mother went to check on her infant child and discovered that her baby was floating above her crib. Later, her child would report many UFO experiences, including being taken onboard a UFO.
+
+Researcher Rey Hernandez reports on the case of Alberto Fernandez, a contactee from Florida. On one occasion, Fernandez’s wife woke to find her husband floating above his bed, sound asleep.
+
+Another amazing case comes from fully conscious contactee, Dolly Safran. Throughout her life, Dolly has had numerous onboard UFO encounters. She also reports many cases of spontaneous levitations. While most of these occurred as a young child, even as an adult she experienced levitation, and on several occasions, the related phenomenon of telekinesis.
+
+Many other cases exist. The dozen cases presented here are likely only the tip of the iceberg. One thing is clear, there is a connection between human levitation and the UFO contact experience. ETs are teaching people a wide variety of psychic abilities, including the ability to levitate.
+
+If you would like to explore more about these cases and others, check out the book, “Not from Here Volume Four.” Now available! 
+   • ETs Teach People to Levitate  
+
+LINK TO BOOK: 
+https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/s2D0w_wQpRY" target="_blank" rel="noopener noreferrer">EPISODE #137. 
 BIGFOOT IN CALIFORNIA</a>.</h3>
 <h5>LINK: https://youtu.be/s2D0w_wQpRY</h5>                                                             <h5>November 25, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>15,686 views  Nov 25, 2022</h6>
+Bigfoot is real! While mainstream science has refused to accept the existence of the hair hominin, reports of the creature are now in the tens of thousands or more. Cases reach back hundreds of years and continue to the present day. While Bigfoot is reported all over the planet, the leading producer of cases is the state of California.
 
+Native Americans have oral traditions about Sasquatch reaching back many hundreds of years. But it wasn’t until the mid-1850s that written reports began to be recorded. Initially reports came from prospectors, miners, hunters, and others. But as the population of California began to grow, so did the number of Bigfoot encounters.
+
+While reports were coming in for more than 100 years, it wasn’t until a series of events occurred in 1967 in the small then unknown town of Bluff Creek in northern California that interest in the creature exploded. For the first time, the term “Bigfoot” came into use, and for the first time people began to scientifically study the creature.
+
+While some people still remain skeptical of the creature’s existence, those who study the evidence usually come to the conclusion that Bigfoot is real. Even the famous anthropologist Jane Goodall has stated her belief that Bigfoot is real. The evidence comes in many forms including eyewitness testimony, footprints, handprints, hair samples, fecal and urine samples, animal reaction cases, sound recordings, Bigfoot nests, and of course, photographs and films.
+
+California has produced cases involving the entire range of Bigfoot cases, both friendly and hostile. Perhaps the most common type of encounter is seeing a Bigfoot cross the road in front of a vehicle while traveling late at night along a remote highway. But many other reports exist of face-to-face Bigfoot encounters, Bigfoot chases, hunters shooting at Bigfoot, Bigfoot confronting hikers, campers, fisherman and more. Some people report being viciously attacked by Bigfoot, even including kidnappings. But some also report remarkably friendly encounters. A few testify that Bigfoot has even saved their life. Even stranger are accounts in which Bigfoot and UFOs are seen at the same time.
+
+California has all these kinds of cases and more. People come from all over the world to visit such hotspots as Willow Creek, Bluff Creek and more. But what many people don’t know is that Bigfoot is seen all across the state, from the Sequoia and Redwood forests in the north, to the fertile central valley in the middle, the high deserts of Acton, Lancaster and Palmdale, the massive Angeles National Forest area, all the way south to the remote mountains surrounding San Diego. There is virtually no place in California that hasn’t produced solid Bigfoot reports.
+
+This video presents more than 100 cases of Bigfoot in California. And while these are enough reports to gain a full understanding of Bigfoot behaviors and habitats, the truth is that this is only the tip of the iceberg. The number of reports in California alone is in the several thousands. And most people never even report their Bigfoot encounters. So any estimate of the number of the cases is probably far lower than the actual number. What we know about is just the tip of the iceberg.
+
+The cases presented here show that California is very active with the mysterious creature known as Bigfoot and Sasquatch. If you’d like to know more about Bigfoot in California, check out the book, “Supernatural California,” which presents a comprehensive history of the creature, as well as many other strange mysteries in the Golden State. Now available!
+   • Bigfoot in California  
+Transcript
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/iEm4Z5mzGlw" target="_blank" rel="noopener noreferrer">EPISODE #136. 
 SEVEN EXTRAORDINARY CASES OF EXTRATERRESTRIAL HEALING</a>.</h3>
 <h5>LINK: https://youtu.be/iEm4Z5mzGlw</h5>                                                             <h5>November 18, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>8,047 views  Nov 18, 2022</h6>
+UFO contact has occurred all over the world to all kinds of people. While some people report being very frightened by their encounters, others report encounters that are not only benevolent, but healing. In fact, ET healings are far more common than most people realize. There are literally hundreds of cases on record, reaching back over 100 years and still occurring to the present day. This video presents seven extraordinary examples of extraterrestrial healings involving people from all across the planet. These seven cases show how truly advanced ETs are when it comes to practicing medicine, and also show that healing humanity is main part of the alien agenda.
+
+CASE ONE: TERRY WALTERS: Terry Walters of England reports a lifetime of unusual events. In 2005, Terry suffered from severe spinal problems and chronic back pain. That is, until he found himself in an operating room onboard a UFO. Even more surprising, he was being operated on by a reptilian humanoid. Following this, Walters' back pain was gone. Soon Walters began having more onboard experience with beautiful human-looking extraterrestrials. This initiated a spiritual awakening and Terry began experiencing ghost encounters, precognition of disasters, memories of a past-life as an Egyptian Pharoah and more. Walters also found he had the ability to heal others of a wide variety of medical conditions.
+
+CASE TWO: JEAN MIGUERES. On August 11, 1969, Jean Migueres was driving his ambulance near Rouen, France when a UFO appeared overhead. He heard a voice mentally tell him, "Do not be afraid." Shortly later, Migueres suffered a head-on collision with another vehicle, causing massive injuries. While trapped in the wreckage, an alien being materialized next to him and said, "I am going to regenerate you by a procedure that is not yet known on your planet." The being proceeded to heal Migueres of injuries to his spine and more. Migueres was rushed to the hospital where he had three near-death experiences, but ultimately recovered. He began having regular onboard experiences and discovered that he had been given "the gift of healing," and found himself in telepathic contact with ETs.
+
+CASE THREE: Connie Isele of Divide, CO began having unusual experiences from a very young age. ln 1989, she woke up to see strange praying mantis-like creatures. Initially terrified, Isele soon realized that the ETs were actually there to help. In 1989, the ETs visited her and healed her of uterine cramping. Three years later, they returned and healed her of arthritis in her knee. Three years after that, in 1995, Isele suffered a near-fatal auto accident. Doctors feared she would lose her leg. Isele prayed to the ETs for help, and to her amazement, they visited her in her hospital room and healed her. The doctors were shocked and gave Isele the nickname "miracle legs."
+
+CASE FOUR: After learning that Pine Bush in upstate NY was a huge UFO hotspot, researcher Ellen Crystall traveled to the area and began not only seeing UFOs, but photographing them. Before long, she saw an actual ET. Her sightings were so numerous, she wondered if she might actually be a UFO contactee herself. Ellen learned that as a child, she had been very sick with an undiagnosed intestinal disorder. She became so sick, doctors feared she would die. But one day, she was miraculously healed. Later, she learned in an unusual way that she had actually been healed by ETs.
+
+CASE FIVE: Jerry Wills of KY was only twelve years old when he began seeing UFOs and having contact with human-looking ETs who taught him a variety of scientific and spiritual subjects. Around that time, he became bedridden with a dangerously high fever. As he lay in bed, he was suddenly visited by grays who took him onboard a craft and healed him. As an adult, Wills found that he had developed incredible healing abilities. 
+
+CASE SIX: IVAN MORALES. A police officer from Puerto Rico, in 1980 Morales found himself very sick with rheumatic fever. After praying for help, Morales was shocked to be visited by two gray ETs who took him onboard a craft and to an undersea base where they healed him, then returned him to his home.
+
+CASE SEVEN: In 1998, four-year-old Gabriel Flores of Chile was near death from a severe case of rheumatic fever. While being driven to and from the hospital, he had a UFO encounter which left him completely healed. Flores' healing was confirmed by doctors, and soon the whole family began to experience incredible events which left them convinced that they were all in contact with ETs.
+
+If you'd like to learn more about these healing cases and hundreds of others, check out the book, "The Healing Power of UFOs." Now available!
+
+LINK TO THE BOOK: https://www.amazon.com/dp/1792986203/...
+
+LINK TO PRESTON'S WEBSITE: https://prestondennett.weebly.com/
+
+LINK TO JERRY WILLS WEBSITE: https://www.jerrywills.com/
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/pzLjKiNSGGQ" target="_blank" rel="noopener noreferrer">EPISODE #135. 
 “TAKE ME TO YOUR LEADER.”</a></h3>
-<h5>LINK: https://youtu.be/pzLjKiNSGGQ</h5>                                                             <h5>November 4, 2022</h5>
+<h5>LINK: https://youtu.be/pzLjKiNSGGQ</h5>                                                             <h5>November 11, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>9,150 views  Nov 11, 2022</h6>
+When it comes to UFOs, one of the most common assumptions is that ETs would land on the White House lawn and say, “Take me to your leader!” Ignoring the fact that UFOs have hovered over the White House at least twice, the truth is they have shown themselves to a wide variety of world leaders. Most people are probably unaware that presidents have seen UFOs, as have senators, representatives, governors and many other leaders across the United States and the world.
 
+This video presents more than twenty world leaders who have had close encounters with UFOs and extraterrestrials, reaching back to 1947, the Modern Age of UFOs all the way to the present day.
+
+The United States has produced more than a dozen such cases.
+
+Aug 1, 1947: Mayor Potter P. Howard of Boise, Idaho is on a United Airlines flight when he sees a flight of a dozen discs sweep below the jet.
+Aug 5, 1952: Mayor H.A. Latham of Gainesville, Texas and two family members observe a massive cylindrical-shaped UFO darting overhead.
+Sep 6, 1952: Congresswoman Isabella King of Arizona and her friend observe a whirling tear-shaped object while driving near Tucson.
+Oct 4, 1955: Senator Richard Russell of Georgia and others observe two metallic discs while on a train-ride through Russia.
+Nov 25, 1955: Colorado State Senator, Sam T. Taylor observes a glowing dirigible-shaped object perform incredible maneuvers.
+Aug 10, 1963: Mayor Harrly L. Bishop of Mt. Vernon, Illinois watches a bright red UFO move down the street, then stop and hover over his home.
+Apr 25, 1966: Governor Haydon Burns of Florida is flying over Orlando when everyone onboard the plane sees two glowing objects follow them.
+Jan 6, 1969: Jimmy Carter, soon-to-be Governor and then President reports his sighting of a multi-colored object hovering at low elevation.
+Sep 6, 1971: Congressman Malcolm Wallop (soon to be Senator) of Wyoming observes a fleet of a dozen objects leapfrogging in the sky.
+Oct 1973: Governor John Gilligan of Ohio and his wife observe an amber-colored object which sends down a bright beam of light.
+1974: Governor Ronald Reagan of California is flying over Bakersfield when he and the flight crew chase a UFO for several minutes.
+Mar 5, 1977: an unnamed Senator of North Dakota (and his wife) are chased in their car by two low-flying UFOs.
+1982: Congressman Dennis Kucinich of Ohio sees a UFO while staying at the home of actress Shirley Maclaine in Graham, Washington.
+Mar 13, 1997: Governor Fife Symington of Arizona is one of thousands of people who witness the massive Phoenix Lights display.
+UFOs are a global phenomenon. So, it should come as no surprise that leaders all across the world are also seeing UFOs. What follows are a dozen more examples of extraordinary UFO encounters from world leaders across our planet.
+Jul 9, 1952: Mayor Oscar Linke of Gleimershausen, Germany (and his daughter) come upon a landed UFO and occupants in the forest.
+Sep 9, 1954: Mayor Raoul Laurent of Saint-Dizier, France is amazed to see a cigar-shaped craft move directly over City Hall.
+1950s: Fidel Castro, soon to become the President of Cuba reports his sighting of an enormous round glowing object illuminating a wide area.
+1956: President Hassan Rouhani of Iran (then only seven years old) is outside a mosque when a UFO lands directly in the mosque yard.
+1973: President Idi Amin of Uganda (and many others) observe a UFO hover for seven minutes, then descend onto the surface of Lake Victoria.
+1974: President Luis Echeverria of Mexico observes a gigantic UFO over the town of Cuernavaca. Other witnesses include Mayor Valentin Lopez Gonzalez of Cuernavaca and Governor Emilio Riva Palacio of Morelos.
+Mar 1974, Mayor Petit of Rimogne, France sees a shiny, orange, oval disc hover overhead for ten minutes, then move off.
+1975: Prime Minister Sir Eric Gairy of Grenada sees a UFO, and is also involved in an apparent UFO/crash retrieval of a tall six-fingered ET.
+1979: President Fernando Henrique Cardoso of Brazil (and Brazilian Amabassador Celso Furtado) see a glowing object hover over the sea.
+Sep 18, 1997, President Kirsan Ilyumzhinov of the Republic of Kalmykia is taken onboard an ET craft to another planet and then returned.
+These accounts from world leaders across the U.S. and the world are likely just a small sample of the actual number of cases. Most leaders who have encounters like these are likely keeping them secret. The time for truth and transparency on this subject is now! UFOs are clearly intentionally showing themselves to world leaders. It's time that our leaders start telling the truth about UFOs.
+
+If you would like to learn more about these amazing cases and others, check out the book, "Not from Here Volume Four." Now available.
+
+LINK TO BOOK: https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/eHqCg6q0i8E" target="_blank" rel="noopener noreferrer">EPISODE #134. 
 THE ET FERTILIZER CONNECTION</a>.</h3>
 <h5><a href="">LINK: https://youtu.be/eHqCg6q0i8E</h5>                                                  <h5>November 4, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>6,906 views  Nov 4, 2022</h6>
+On September 19, 1961, a momentous event occurred which generated headlines across the world and forever changed the way humanity viewed the UFO phenomenon. While driving through the remote White Mountains of New Hampshire, a married couple by the name of Barney and Betty Hill encountered a UFO. The object descended low enough that Barney was able to see occupants looking down at him from the craft. As they sped away, the craft pursued them. The couple experienced about two hours of missing time, then returned to their home.
 
+This incredible case introduced the world to the idea of UFO abductions. And before long, hundreds and then thousands of similar cases started pouring in from all over the world. The case is perhaps the most famous in UFO history. But what many people don’t know about is the fertilizer connection.
+
+During their encounter, the Hills had a bag of fertilizer stored in their trunk. And when researchers began to look into their case, they asked the Hills if they had any nitrates of any kind in the vehicle when they were taken onboard. The investigators told them that they had researched other cases where there was a connection. The Hills were initially puzzled by the question, and they didn't understand what the researchers were getting at. Only then did they realize that yes, they did in fact have a bag of fertilizer in their car. Was there a connection?
+
+The answer might be, yes! On April 24, 1964, dairy farmer, Gary T. Wilcox encountered a landed UFO and occupants on his farm in Newark Valley, outside of Tioga City, New York. He held a nearly two-hours-long conversation with the beings, during which the ETs explained that they were interested in studying agriculture and the use of fertilizer in his fields. They actually asked him for a bag of fertilizer, which Wilcox provided. The case drew the attention of UFO researchers. It's a strange case, but Wilcox's family and friends vouched for his honesty and integrity.
+
+In this video, we explore these two cases and several others which point towards the ETs' interest in fertilizer. For example, there is the bizarre case of Mexican farmer, Jose Carmen Garcia, who became internationally famous for his ability to grow super-sized produce and vegetables. He grew ten-pound onions, sixty-pound cabbages and collard greens more than five feet long. Scientists and agricultural experts were amazed. When they asked what his secret was, Garcia shocked them by revealing that he had been given a "secret formula" from extraterrestrials. As strange as this sounded, people had no choice but to believe him, because Garcia was able to provide the gargantuan vegetables as proof.
+
+More cases exist, such as an anonymous gentleman who reported his sighting of a UFO moving over the Agrium Fertilizer Plant in Borger, Texas in 1988.
+
+Another case is that of a young girl from Winsted, Connecticut who woke up one evening to watch a UFO land outside her home and disgorge several short humanoids who proceeded to investigate the building across the street. It turned out that this building was being used to store large amounts of fertilizer. 
+
+There's also the case of an anonymous gentleman from Lee's Summit, Missouri who, after having several sightings in the area, decided to investigate. He discovered that the sightings seemed to be correlated to the use of fertilizer. Says the witness, "“One of the commonalities is that they appear in areas which are rich in phosphorus such as certain coast water, and other waterways which have runoff from fertilizer."
+
+These are just a few of the many cases pointing toward a strange ET-fertilizer connection. This is an area of UFO contact that has never been explored in depth, and provides some interesting insights into the behavior of UFOs and their occupants.
+
+If you would like to explore more about these strange cases, and many others, check out the book, "Not from Here: Volume Four." Now available!
+
+LINK TO BOOK: https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_glo48R7CDc" target="_blank" rel="noopener noreferrer">EPISODE #133. 
-INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART FOUR: 
-WORLDS I HAVE SEEN</a>.</h3>
+INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART FOUR: WORLDS I HAVE SEEN</a>.</h3>
 <h5>LINK: https://youtu.be/_glo48R7CDc</h5>                                                             <h5>October 28, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>12,348 views  Oct 28, 2022</h6>
+In January of 1973, a fourteen-year-old girl named Dolly Safran woke up to the fact that she was having regular visitations with extraterrestrials. Prior to this, she had ignored, denied or explained away her encounters. But now, after a profound onboard UFO experience, she knew the truth. She was a UFO contactee. She was having regular visits with extraterrestrials. 
 
+This began her lifelong relationship with ETs, during which she was taken onboard and taught many subjects, including biology, astronomy, chemistry, morality, ethics, spirituality and much more. Given the opportunity to work directly with them, Dolly chose to focus on learning how to fly the craft.
+
+Dolly was visited more than a hundred times each year, and she began having mind-boggling adventures with the ETs. Among the most startling and amazing, was being taken beyond our solar system to visit other worlds.
+
+In Part One of these interviews, Dolly shared her childhood experiences up to age fourteen. In Part Two: Dolly presented the incredible photographic evidence she was able to obtain. In Part Three, she talked about the many different kinds of ETs she has visited. Now, in Part Four of this ongoing series of interviews, Dolly Safran shares her incredible ventures of travelling to other worlds.
+
+Dolly has had the wonderful opportunity to visit many of the worlds within our own solar system, but even more astonishing are her visits to many planets orbiting other suns. One such visit involved a trip to a small rocky world that was nearing the end of its life-cycle. Dolly was taken there with several other contactees and was shown firsthand how every world goes through various evolutionary stages, finally resulting in the death of that planet.
+
+On several occasions, Dolly was taken to a massive water planet whose surface was almost entirely oceans, but was dotted with countless small islands. It was a planet filled with life of all kinds, and there Dolly learned that there was a symmetry to life throughout the universe, and that the flora and fauna on each planet followed a basic template. The planet was also home to at least two intelligent species of humanoids. Dolly was able to meet them both and even became good friends with a human-looking ET girl.
+
+More adventures followed. Over a period of many years, Dolly was taken repeatedly to a planet that was being slowly consumed and destroyed by its own sun, which was in the process of going nova. On the final visit, she was taken to see the world become torn apart and the sun explode into a fantastic supernova. 
+
+Dolly describes her visits to many other worlds, gas giants, water planets and more. Among the most fantastic were her visits to massive alien Dyson Spheres, huge artificial planetoids constructed by the ETs and used as waystations and outposts. Dolly was taken inside and shown how the ETs preserve countless species of both plants and animals from across the universe.
+
+Dolly also shares how she was given the unique opportunity to visit the Voyager Space Probes and get a close-up view of these human-made spacecraft traveling far beyond Earth.
+
+Finally, Dolly shares how she was given a front-row view to one of the most historic and dramatic astronomical events in the history of our own solar system: the collision of Comet Shoemaker-Levy with the planet Jupiter. While astronomers on Earth viewed the event through telescopes, Dolly was taken onboard a UFO craft and saw the comet collision occur right before her very eyes.
+
+These are just a few of the many events Dolly has experienced with the ETs. Her lifelong experiences include many other adventures and explorations that have taken her to the farthest reaches of the known universe. If you'd like to learn more about Dolly's experiences, her account is told in my book, "Symmetry: A True UFO Adventure." Now available!
+
+LINK TO BOOK: https://www.amazon.com/dp/B09VF3J8NR/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/W_vS_8MB9mg" target="_blank" rel="noopener noreferrer">EPISODE #132. 
 UFO CAR-LIFT CASES</a>.</h3>
 <h5>LINK: https://youtu.be/W_vS_8MB9mg</h5>                                                             <h5>October 21, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>10,528 views  Oct 21, 2022</h6>
+UFOs often behave in ways that can only be described as bizarre. One type of behavior that is familiar to most UFO investigators are UFO-car chases. In case after case, UFOs will approach a car driving down a remote highway late at night and chase them down the road. But there’s another type of behavior that goes far beyond just chasing a car. Sometimes UFOs will actually pull the car off the road and suck it up into the sky! These are known as “car-lift” cases.
 
+For some reason, the UFO occupants just pull the car up, float it around and then set it back down, leaving the people in the car bewildered and more than a little frightened. The question is, why? The best way to get some answers is to examine the cases. This video present more than twenty UFO car-lift cases, reaching back more than sixty years up to the present day, and coming from all across our planet.
+
+1959: four teenagers are driving outside of Goldfield, NV when their truck becomes mired in the desert sand. To their amazement, a UFO shows up and pulls their truck out.
+
+1961: Adolpho Pisano is driving along the Andean Highway in Venezuela. Suddenly a UFO swoops down and pulls the car ahead of him into the sky.
+
+1965: Mrs. A.V. of Brussels, Belgium loses control of her vehicle as a UFO lifts it up and carries it 150 feet forward before setting it down again.
+
+1965: Edward Burns of Herman, MN is only two miles from his home when he comes upon a glowing red object over the road. Before he can get away, the object levitates his pickup truck and spins it 180-degrees on the highway.
+
+1967: Martha Carnes is driving down Chicken Run Road in Madison, Indiana when a UFO (which had chased her car twice before) came after her again. This time it comes over her car and pulls it up off the ground.
+
+1969: Barbara Smythe of Alberta, Canada sees a 40-foot-wide object over her car, then realizes that her car is floating off the road. The UFO proceeds to float her car for a full mile.
+
+1971: Wilton Raweater and his wife are heading to their home on the Blackfeet Reservation in Alberta, Canada. A light appears overhead and Mrs. Raweater cries out, "The car has left the ground!" The UFO carries the car two feet above the road for a quarter mile.
+
+1973: two couples leave a party in Hattiesburg, MS when a UFO swoops down and proceeds to lift their car upward and drop it down on the road over and over again.
+
+1974: two brothers driving a Uhaul truck north of Ely, NV encounter multiple UFOs, one of which comes right above their vehicle and carries it upward.
+
+1974: A farmer in Hobbs, NM arrives home just in time for his family to witness him being carried upwards, pickup and all, into a flying saucer.
+
+1978: Clora Winscher is driving through Union, MO when a UFO comes down and lifts up the back end of her car, forcing her to drive only on the front two wheels!
+
+1978: Carlos Acevedo and Miguel Moya of Buenos Aires, Argentina drop out of an auto race, only to have a UFO come down and carry their car six feet above the road for several miles.
+
+1983: Catherine Burk of Altoona, PA encounters a silver saucer which lifts her car up on its two left wheels.
+
+1986: An anonymous couple in Lucca, Italy drive under a triangular-shaped object which lifts up only the back end of their car.
+
+1988: The Knowles family are driving late at night along the Nullarbor Plain in Australia when an egg-shaped object lands on their roof and pulls their car a few meters off the road.
+
+1992: A couple is driving through Topanga Canyon, CA when a saucer-shaped object comes fifty feet over their car and levitates it into the sky.
+
+1994: "Alan" from Rio Grande County in CO is with his friend mentally calling a UFO when it lifts their pick-up truck off the ground and throws it across the road.
+
+1995: an anonymous gentleman from Rio Grande, CO has a close encounter with an object which levitates his big rig truck and trailer right off the highway.
+
+1999: a resident of Elko, NV exits his truck on the highway to observe a UFO. Seeing that it's heading toward him, he hops back into his truck to flee, only to realize that his truck is now floating six feet in the air.
+
+2010: Two young teenagers park at the local lover's lane in Laconia, NH when a UFO comes and pulls their car vertically into the sky.
+
+As can be seen, there is no shortage of UFO car-lift cases. All over the world, ETs are chasing cars down the highway and pulling them up into the sky. Some of these cases result in missing time or an onboard experience. But many seem to be more of a display, or a way for the ETs to announce their presence in an absolutely undeniable way.
+
+If you'd like to learn more about these car-lift cases and others, check out my book, "Not from Here Volume Four." Now available!
+
+LINK TO BOOK: https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ZtV-fjpb3EE" target="_blank" rel="noopener noreferrer">EPISODE #131. 
 THREE REALLY CREEPY GHOST STORIES</a>.</h3>
 <h5>LINK: https://youtu.be/ZtV-fjpb3EE</h5>                                                             <h5>October 14, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>2,365 views  Oct 14, 2022</h6>
+A ghost encounter can elicit a wide variety of emotions. They can be funny, sad, scary, awe-inspiring...and some can be downright creepy! This video presents three really creepy ghost stories, the kind that sends little icy shivers down your spine.
 
+CASE ONE: THE GHOST THAT CAME TO BED. Shortly after moving into their new home in Merced, California, Sally Sanders (pseudonym) began to experience weird activity. Her husband never noticed anything strange, not at first. But Sally did. Late one evening, she woke up to feel someone climbing into her bed. But when she looked, nobody was there! She first thought it might have been her imagination, and that it would never happen again. But it did. A few weeks later, she again woke up to feel the mattress press down and the bedsheets rustle. But when she looked, nobody was there. As she always did when this happened, she fled the bedroom and slept elsewhere in the house.
+
+It happened again and again, and Sally grew increasingly concerned. She knew that she had to take action. She decided to try an experiment. Knowing that the ghost always crawled into bed in the same spot, she moved the bed. This, she hoped, would stop the weird events from happening. Instead, it caused the haunting to escalate. It wasn't long after that when Sally not only felt the ghost crawl into bed with her, but this time it physically touched her!
+
+Sally and her husband decided to move. But the ghost wasn't done with them yet. About two weeks before they moved away, the ghost attacked, crushing and trying to suffocate Sally as she lay in bed. It was the single most terrifying experience of her life.
+
+CASE TWO: A VISION OF BLOOD. In the 1980s, Dorothy Hudson worked in a business office in Los Angeles. One of Dorothy's co-workers was Margery, (pseudonym), a bill-collector. Dorothy and Margery did not get along. One day the two of them got into a disagreement. The next morning, Margery was supposed to go pick up a debtor's check in Van Nuys, and come back to the office afterward. But Margery never showed up at the office.
+
+Meanwhile, Dorothy was at the office and went to visit the restroom. Walking inside, she was shocked to see that the clean white tiles of the bathroom were dripping with blood. It was all over the walls and floors. Blood was everywhere. Dorothy blinked it shock. And when she looked again, it was gone.
+
+A short time later, Dorothy answered the office phone. It was Margery's husband asking for Margery. Dorothy explained that his wife was supposed to pick up a check, but that she had failed to return to the office. "Oh, my God, no!" Margery's husband cried.
+
+"What's wrong?" Dorothy asked. Margery's husband explained that he wasn't sure, but he had just received a call from the police, and he hung up the phone. A few hours later he called back with devastating news. Margery had been killed. She had been run over by a truck after picking up the check. Dorothy's boss visited the accident location and learned that Margery's body had been crushed under the wheels of the truck, and that blood was all over her car, the street and the sidewalk. The time of the accident was about the same time Dorothy had seen the vision of blood in the bathroom. Somehow, Dorothy had picked up on the terrible tragedy. It was an experience that sent chills down her spine and left her pale and shaken.
+
+CASE THREE: A BROTHER'S GHOST. In the early 1970s, Tom and his older brother Jeffrey (pseudonyms) lived in a modest home with their parents in Los Angeles, California. The two of them were very close. Jeffrey had recently fallen in love with a woman and was about to get married. Then tragedy struck. Jeffrey was in a tragic car accident and died of his injuries at the scene. The entire family was devastated, but Tom was perhaps the most affected.
+
+He spiraled into a deep depression. The senseless death of his older brother, whom he loved and idolized, was an event which left him with a crushing sadness. He just couldn't understand why his brother had been taken from him. Life no longer seemed worth living. 
+
+Then one day, Tom ventured into his brother's room, sat on the bed, and began to play some of Jeffrey's rock music. Jeffrey loved to sit in his hanging chair and listen to rock music. A favorite song of his was "Comfortably Numb," by Pink Floyd. Tom decided to play that song and reminisce about the all the good times he had with Jeffrey. That's when it happened: the hanging chair began to swing back and forth by itself! Tom soon learned that he could call on his brother's spirit anytime he wanted.
+
+These three cases show how ghosts can manifest in a wide variety of ways. If you'd like to learn more, check out my book, California Ghosts. Now available!
+
+LINK TO BOOK: https://www.amazon.com/dp/0764319728/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/MC_ldvjQKHs" target="_blank" rel="noopener noreferrer">EPISODE #130. 
 50 EYEWITNESS DRAWINGS OF UFOS</a>.</h3>
 <h5>LINK: https://youtu.be/MC_ldvjQKHs</h5>                                                             <h5>October 7, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>14,482 views  Oct 7, 2022</h6>
+UFOs come in a dazzling array of shapes and sizes. Saucer-shaped craft, egg-shaped, spherical-shaped, teardrops, triangles, cigars...you name it! The true number of cases is far larger than most people realize. UFOs are seen all over the world by all kinds of people.
 
+This video presents a decade of sightings, stretching from 1947 to 1957, all involving firsthand witnesses who provide sketches of what they saw. It has been said that a picture is worth a thousand words. And this is especially true when it comes to UFOs. Sometimes the UFO craft are so strange, unusual and unique, that people are unable to find the words to describe them. A simple sketch is not only helpful in describing a UFO, it is often essential. A drawing is able to convey information in a way that words simply cannot do.
+
+Fifty cases with eyewitness drawings, each providing another piece of the puzzle, and each offering new insights into the nature and origin of UFOs. These cases show that the UFO phenomenon is global and ongoing. They also show how our own governments have attempted to cover-up UFO information, offering debunking explanations to encounters that they know are absolutely genuine. They show how the Air Force's Project Blue Book was not a true investigative body, but was instead an attempt to deny the truth about the extraterrestrial presence on our planet.
+
+To learn more about Preston Dennett's research, here is a link to his website: https://prestondennett.weebly.com/
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/iND9UoufHxE" target="_blank" rel="noopener noreferrer">EPISODE #129. 
 THREE INCREDIBLE CASES OF KIDS CONTACTING UFO CRAFT</a>.</h3>
 <h5>LINK: https://youtu.be/iND9UoufHxE</h5>                                                            <h5>September 30, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>4,843 views  Sep 30, 2022  #1140</h6>
+Did you know that children comprise a significant number of UFO witnesses? There are many reasons for this. One is that children are usually outside more than adults. Also, children are more likely to report their encounters than are adults. A third reason is that UFO contact often begins early in childhood. As evidenced by the many cases of schoolyard UFO encounters, ETs like to show themselves to children. Unfortunately, children are often disbelieved or not taken seriously. Therefore, it's likely that the actual numbers of kids contact UFOs is higher than most people think.
 
+This video presents three incredible cases of kids who have had UFO encounters. Each of these cases involves multiple witnesses and various forms of evidence such as electromagnetic effects, animal reactions, physiological effects and landing traces. Under the J. Allen Hynek system, these would be classified as Close Encounters of the Second and Third Kind. In other words, these are not simple sightings, but very close encounters in which the environment is affected in some way, and/or involve humanoids.
+
+CASE ONE: THE CASA BLANCA ENCOUNTER. On the afternoon of August 22, 1955, a group of eight children were playing outside their homes in the Casa Blanca area of Riverside, California. Looking up, the children saw a silver spinning disc swooping down from above. As the children watched, the object disappeared and reappeared several times. Suddenly there were multiple objects of different shapes and sizes, some emitting a strange musical pinging sound. Without warning, one of the objects (described as the size of three homes) landed in a nearby field. A strange-looking humanoid being stepped out and began beckoning at the kids to go onboard.  For the next hour or two, pandemonium ensued as the children interacted with the UFOs and the strange being. Some of the children came very close to going onboard, but were held back by their friends. Strangely, two adults were present for at least part of the encounter, but could not see anything! Reporters and UFO researchers converged to investigate the case. There was no evidence of a hoax, and the case remains unexplained to this day.
+
+CASE TWO: KIDS BUZZED BY A UFO. On the evening of February 24, 1959, a young high school student was babysitting his little brother in their home in Victorville, California. Without warning, a weird buzzing sound filled the air, and the house began to vibrate. The radio in the house became filled with static and the dogs outside started to bark furiously. Running outside, the witness was amazed to see a large UFO craft swoop down directly over his house at a height of only ten feet. Moments later, the UFO returned, swooping down again, coming even lower. Terrified, the witness ran inside to grab his gun and protect his home. For the next few minutes, the UFO swooped down over their home at least five times before finally accelerating off into the distance. The boys' parents arrived home to find their children hiding inside, and their two dogs shaking and cowering in fear. They contacted authorities to report the incident. Air Force intelligence officers from Project Blue Book arrived, and after interviewing the witnesses, declared the case genuine. They discovered that the neighbors experienced unexplained static on their TV sets. Unable to explain the case, Project Blue Book labeled the case unidentified: Case #1140.
+
+CASE THREE: THE LEMON GROVE UFO LANDING. On November 6, 1973, Richard T. and Daniel F (age eleven) were exploring the fields near their homes in Lemon Grove, California. To their amazement, they came upon a strange object landed in the field. It was metallic, saucer-shaped with a dome on top and covered with colored lights. Wondering what it might be, they walked right up to it and knocked on the side with their flashlight. The object immediately lit up and began to rotate and rise upward. Terrified, the kids turned and ran, but found that they were moving in slow motion. They watched the craft accelerate upwards and disappear into the clouds. Running home, they told their parents what happened. Investigators were called in who, upon examining the site, found strange landing traces. The hard-packed clay ground had strange holes in it, and the grass beneath the craft was swirled. Investigators then learned that several neighbors reported strange interference on their televisions and radios. Also, the phone lines in the area were fused together and had to be replaced. 
+
+These three California cases show that a close encounter with an extraterrestrial can happen without warning, when you least expect it. If you would like to learn more about these cases and others, check out my book, "UFOs over California."
+
+LINK TO BOOK: https://www.amazon.com/dp/0764321498/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/eiUWOR_Nrgk" target="_blank" rel="noopener noreferrer">EPISODE #128. 
 ET E.R. – FIVE TRUE CASES OF EXTRATERRESTRIAL HEALING</a>.</h3>
 <h5>LINK: https://youtu.be/eiUWOR_Nrgk</h5>                                                             <h5>September 23, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>5,837 views  Sep 23, 2022</h6>
+Healings are a consistent feature of UFO encounters, and they are more common than most people realize. Cases reach back more than 100 years and come from across the world. They cover a wide variety of injuries, illnesses and diseases. Most major UFO researchers have multiple cases. This video presents five true cases of people who have been healed by extraterrestrials.
 
+CASE ONE: DIPHTHERIA. From researcher David Jacobs, Ph.D., in 1962, Alice Haggerty of Trenton, New Jersey was struck with the sometimes fatal disease diphtheria. For religious reasons, her parents had not inoculated her against the disease. When her condition worsened, they called in a doctor who cared for her as best as he could. Unfortunately, Alice's condition deteriorated. Alice became so sick that she was not expected to live through the night. On that evening, Alice was visited by ETs, taken onboard and healed. The next morning, she was fully recovered, amazing both her parents and the doctor.
+
+CASE TWO: HERNIA. In 2000, Jim Law from Gainesville, Florida developed an inguinal hernia. After being diagnosed by a specialist, Jim elected to have surgery. However, before the surgery, he was visited by three gray ETs. Jim asked the grays to heal him, and to his surprise, they said, “We know of the condition you have a concern about and will help you.” Which they did! Jim then asked them why they had contacted him, and the grays said, "We are interested in you because you have the genetic potential to live a long time.” Jim was fascinated because longevity was in his family. At the time, his grandfather was 106 years old, and his aunt and great grandmother both lived to 109.
+
+CASE THREE: SEPARATED ACHILLES TENDON. In 2005, Michael Thomas Knox (a former Air Force officer) attended the MUFON UFO conference in Irvine, California. At the time, he had been diagnosed with a separated Achilles tendon. Doctors told him that he required surgery to repair his condition. However, while staying at the conference, Knox was visited in his hotel room by three grays who performed surgery on him. Knox had no memory of this, but his roommate saw it all. She reported that they were both taken onboard a craft as were several other people at the conference. They received further confirmation of the event the next morning when they discovered strange bruises and marks, and also unexplained fluorescent stains in their hotel room. Also, another group of witnesses reported seeing a UFO hovering directly over the hotel that evening!
+
+CASE FOUR: BODY INJURIES. In 1960, electrical engineer, Vlado Victor Kapetanovic was hunting in the Callejon de Hauylas region of rural Peru. Traveling with a guide, they both had multiple sightings of strange metallic discs zipping through the sky. They came upon a remote village of native Peruvians and discovered that a young boy had recently fallen off a cliff and was suffering from severe injuries which had left him comatose and on the edge of death. Victor offered to transport the boy to a hospital many miles away. The parents refused, saying that the "sky gods" would come and heal the boy. Victor's guide explained that the people of the village were regularly visited by ETs who took care of them. And sure enough, a short time later, a UFO landed, and a beautiful human-looking figure exited the craft. She scooped up the boy and took him inside the craft. Shortly later, the boy came out perfectly healed. Victor verified the healing and then spoke with the ET woman. She invited him onboard the craft. This began a series of contacts with the ETs which altered the course of Victor's life.
+
+CASE FIVE: In 1971, Gilbert Camus, a radio engineer from Gevingey, France was driving along the highway near the village of Trenal when he encountered a landed UFO and more than 20 strange-looking figures. Gilbert was then struck by a beam of light which took control of his car, slowing its speed to a crawl. A short time later, the beam retracted, and Gilbert continued on his way. Arriving home, Gilbert found strange marks on his body and his underclothes. Returning to the site of the encounter the next day, he found strange depressions and melted ice. Also, the paint on his Peugeot began to fade. Most amazing, at the time of the encounter, Gilbert was suffering from chronic liver disease. His condition was causing loss of appetite and unbearably painful headaches. However, following the encounter, his health problems disappeared. He had been healed!
+
+These five cases are just a tiny portion of the more than 300 healings on record. One of the primary ET missions is the healing of humanity. If you would like to learn more about these cases and others, check out my book, "The Healing Power of UFOs." Now available!
+
+LINK TO BOOK: https://www.amazon.com/dp/1792986203/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/WVNJ7HNw9Og" target="_blank" rel="noopener noreferrer">EPISODE #127. 
 THE WHITE WITCH & GHOSTS OF THE INDIAN BURIAL GROUND</a>.</h3>
 <h5>LINK: https://youtu.be/WVNJ7HNw9Og</h5>                                                             <h5>September 16, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>3,947 views  Sep 16, 2022</h6>
+A ghostly encounter is one of the most commonly reported types of paranormal experiences. Ghosts can manifest in a wide variety of ways, including opening and closing doors, moving objects, turning lights on and off, phantom footsteps, cold-spots, unexplained odors, full-color apparitions and much more. Sometimes a home or specific structure is haunted, but other times a haunting can encompass a much larger area.
 
+This video presents two cases of large-scale hauntings, both involving numerous firsthand witnesses encountering ghosts over a wide area with a large variety of paranormal manifestations.
+
+The first case has come to be known as "The White Witch." This case takes place near the Oakland/El Sobrante area of northern California. There are a few different versions explaining the actual origins of the haunting, but most people report the same type of manifestation: a ghostly apparition of a tall glowing lady who wanders the areas of Alvarado Park, Tilden Park and Joaquin Miller Park. Although the case has become something of a local urban legend, there are numerous reported accounts of people who claim to have seen the apparition.
+
+One group of witnesses involves five young men who had a hostile encounter with the White Witch in 1990. It was an encounter that left them badly frightened and convinced them forever that the White Witch is very real indeed.
+
+The second case in this video is "The Ghosts of the Indian Burial Ground." This case takes in place Topanga Canyon, located in the Santa Monica Mountains adjacent to Los Angeles, California. The center of the haunting is at the entrance of Topanga State Park, the former location of a Chumash Native American settlement and alleged burial ground. The haunting has affected at least six separate homes and a part of the Trippet Ranch/Topanga State Park. The haunting activity reaches back several decades and is still going on today. The activity includes strange noises, moving objects, ghostly footsteps, weird presences, apparitions and more. The haunting is very well-known among the local residents, most who have remained quiet about what is going on.
+
+These two locations are good examples of on-going active hauntings, and if anyone wants to experience a ghost, both locations are open to the public. To explore more about these hauntings and many others, check out my book, "California Ghosts: True Accounts of Hauntings in the Golden State," published by Schiffer Books. Now available!
+
+LINK TO BOOK: https://www.amazon.com/dp/0764319728/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/w1m2MyW7We8" target="_blank" rel="noopener noreferrer">EPISODE #126. 
 INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART THREE: 
 EXTRATERRESTRIALS I HAVE MET</a>.</h3>
 <h5>LINK: https://youtu.be/w1m2MyW7We8</h5>                                                             <h5>September 9, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>14,596 views  Sep 9, 2022</h6>
+Dolly Safran, a nurse and Army D.O.D employee from Florida, has experienced a lifetime of UFO contact. While her experiences were initially shrouded in missing time, at age fourteen she experienced an encounter that would change her life forever. From that point on, Dolly remembered her UFO contacts fully consciously. She has since had thousands of contacts and experienced a wide variety of encounters.
 
+In Part One of this series, we explored Dolly's encounters up to age fourteen. In Part Two, we presented the many UFO photographs and films Dolly was able to capture. Now, in Part Three, we now explore the many different types of extraterrestrials Dolly has encountered.
+
+Among the most common type of ETs Dolly has encountered are the A.I. grays. These are small three-foot-tall biological android-like beings who function as workers. They assist in the transportation of humans to and from the ET craft and carry out many other duties. They are not living beings with souls, but they can function autonomously. They can also be used by the ETs as avatars.
+
+Dolly has also encountered tall grays, mid-sized grays and small grays. These are biological beings, with genetics. They eat, sleep and have all the biological functions of human beings. Dolly's main ET liason is a tall gray she calls "Momma." Dolly met Momma when she was only six years old and is still in contact with her today.
+
+Many contactees describe small blue troll-like beings about three-feet in height. Dolly has met these as well, and says that they are a variation of the commonly described grays. They often work with young children and help to reduce the fear factor often associated with UFO contact.
+
+On one occasion, Dolly had the rare opportunity to see two dog-like ETs, very similar in description to the Egyptian figure known as Anubis. These beings were more than six feet tall, broad-shouldered, muscular and covered with fur.
+
+On another rare occasion, Dolly was able to visit with cat-like ETs. Described very much as humanoid cats, these beings are short, covered with fur and quite solitary. Dolly had only a brief encounter with them, but it was quite close-up, and left a deep impression on her.
+
+Periodically during her onboard UFO encounters, Dolly has interacted with the beings known as Tall Whites. These ETs are very stern and serious. They are tall and can reach well over ten or fifteen feet in height. They have only limited contact with humans and usually keep to themselves.
+
+Dolly has had many interactions with human-looking ETs, often described as Nordics. These beings are very much like us, and have the same variations we have on our own planet. On several occasions, Dolly has interacted with Misha, a young girl from another planet. Misha, says Dolly, looks very much like the people from the indigenous population of Polynesia. 
+
+Dolly has also encountered humanoid beings who spend much of their time in the water. They have webbed hands and feet and are able to remain underwater for long periods of time.
+
+On a few occasions, Dolly has been taken to see third-dimensional light beings who are able to transcend the physical world and travel into the higher dimensions. These are very powerful beings with very strong paranormal abilities.
+
+Another amazing encounter Dolly experienced was with a nine-foot-tall praying mantis being. This encounter occurred in the backyard of a rural farm in Georgia. The being told Dolly that they are the Watchers and that they came to check on her following a very delicate medical procedure that she had undergone days earlier.
+
+Among the most fantastic beings Dolly has encountered are the so-called Anunnaki. These winged beings are very tall, strong and powerful. Dolly only met them once when she was a little girl, but the encounter was one she will never forget.
+
+Dolly's case is one of the most extensive accounts of UFO contact on record. She has spent days and weeks at a time among the ETs and has learned vast amounts of knowledge from them. The ETs, Dolly says, are very much like us. Her experiences have taught her that there is life throughout the universe, and that we are only a small part of a vast network of living beings that exist among the billions of stars in the Milky Way Galaxy and beyond.
+
+If you would like to learn more about Dolly's experiences, check out my book, "Symmetry: A True UFO Adventure," a number one Amazon UFO best-seller. Now available!
+
+LINK TO BOOK: https://www.amazon.com/dp/B09VF3J8NR/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/4GiJ78ogpdY" target="_blank" rel="noopener noreferrer">EPISODE #125. 
 SEVEN UFO LANDING CASES</a>.</h3>
@@ -4748,19 +5730,104 @@ If you would like to learn more about people who have walked on water, and other
 THE UFO INVASION OF CALIFORNIA’S MILITARY BASES</a>.</h3>
 <h5>LINK: https://youtu.be/EpHpNI9UHU4</h5>                                                             <h5>August 19, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>6,436 views  Aug 19, 2022</h6>
+UFO researchers have known for a very long time that UFOs are attracted to military bases. In fact, pioneering investigators Jim and Coral Lorenzen knew this, and when new military installations were built, they predicted sightings would occur there. And they were right!
 
+The state of California has the largest population of any state, and according to NUFORC (the National UFO Reporting Center,) it also produces more UFO reports than any other states. California also has a very large number of highly advanced and sensitive military bases. So, it should come as no surprise that many of these installations have been visited by UFOs. In fact, sightings stretch all the way back to at least 1947, The Modern Age of UFOs, and are continuing today. 
+
+This video presents about a dozen high profile cases of UFOs surveilling California military bases. These are not random sightings of lights in the sky at night. Many of these cases involve solid, metallic objects, and some are seen over a period of days. Many bases have been repeatedly visited for years on end. A few of the cases involve confirmed radar returns, and several of them were declared unidentified by intelligence officers from the Air Force's Project Blue Book.
+
+--July 3, 1947, Santa Rosa Naval Auxiliary Station goes on high alert when a 20-foot metallic saucer hovers a mere 1000 feet above the base runway.
+
+--July 29, 1947, Hamilton Field experiences the first of a series of dramatic encounters over the base occurring over a period of five years.
+
+--March 3, 1951, UFO activity at McClellan Air Force Base is so brazen that Blue Book officers investigate and are forced to label the case Unknown.
+
+--May 1952, a month-long series of low-level daylight sightings of metallic objects over George AFB causes alarm at high levels of government.
+
+--July 24, 1952, several military personnel at Travis Air Force base report a UFO. Blue Book officers arrive, and again are unable to identify the objects.
+
+--January 28, 1953, control tower operators at El Toro Marine Base (and at nearby bases) try to intercept a fiery red disc hovering over the base.
+
+--November 3, 1953, a witness identified only as "J" observes and photographs a UFO hovering at low levels above Norton Air Force Base.
+
+--February 2, 1955, concerns are raised when numerous officers at Miramar Naval Air Station see a UFO, and Blue Book has no idea what it is!
+
+--1956, a cat-and-mouse confrontation between UFOs and USAF jet fighters occurs over Castle AFB. The pilots are ordered to remain silent.
+
+--September 15, 1964, an Atlas Missile is launched from Vandenberg AFB, causing a UFO incident that will make waves for decades to come.
+
+--December 16, 1966, a crowd of military officers at San Diego Naval Air Station observe multiple objects perform gymnastics over the base.
+
+--February 8, 1990, residents outside of Twenty-Nine Palms Marine Corps Air Ground Combat Base observe and photograph an incredible encounter.
+
+And this is just the tip of the iceberg. Edwards Air Force Base has a history of UFO encounters that rival perhaps any other military base in the United States. Clearly something profound is happening here. The reports coming from highly reputable trained observers within our own military can be ignored no longer. The time for lies and cover-ups is over. The truth must be revealed. These cases show that UFOs and extraterrestrials are watching our technological progress very closely. They are letting our military know that we are being watched. 
+
+If you would like to explore more about UFO activity over California military bases, and the hundreds of other sightings, landings, face-to-face encounters, onboard experiences and UFO crash/retrievals that are taking place in the state of California, check out my book, "UFOs over California: A True History of Extraterrestrial Encounters in the Golden State. Now available!
+
+LINK TO BOOK: https://www.amazon.com/dp/0764321498/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_a05lTQf4tA" target="_blank" rel="noopener noreferrer">EPISODE #122. 
 A GHOST, A SPIRIT & A DEMON</a>.</h3>
 <h5>LINK: https://youtu.be/_a05lTQf4tA</h5>                                                             <h5>August 12, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>3,871 views  Aug 12, 2022</h6>
+Since recorded history, people of all cultures across the world report seeing ghosts. They represent some of the best evidence we have for existence after death. But what many people don't know is that there are different kinds of ghosts.
 
+For example, a typical ghost is simply an earthbound soul, someone who has remain attached to the Earthly plane. Ghosts remain earthbound for a variety of reasons. They might not realize they have passed on. They might be attached to a place or a person. They may suffer from confusion or addictions. Ghosts are responsible for the many haunted places across our planet
+
+Then there are spirits. These are people who have passed on to the Other Side. They are aware that they are deceased and are no longer attached to the Earthly planes. Instead, they come to visit, usually with a purpose. They come to let their loved ones know that they are fine, to guide people, or to dispense information.
+
+Then there are demons and poltergeists. Researchers are unsure about the origins of these entities. Some believe they are the result of psychokinetic energy from an emotionally disturbed person; others believe they are the result of uncontrolled mediumship, and others believe they are inhuman malevolent spirits. They can range from mischievous to downright evil.
+
+This video presents three true accounts, one involving a ghost, one involving a spirit, and one involving a demon.
+
+CASE ONE: THE GHOST WHO ANSWERED THE PHONE. Sarah first became aware of the ghost in her house when she heard an old man coughing. After several instances of this, she told her sister and mother, neither who believed her. Soon more events occurred. And then one day, Sarah not only heard coughing, she heard footsteps walk to the bathroom, then the door opened and closed, the ghost spit in the toilet and flushed it. Sarah ran screaming from the house. Still, neither her sister nor mother ever heard anything. Years passed with only occasional activity. One day they moved out and rented the house. Then one day the tenants called. They had experienced an event that left them baffled. Somebody had answered the phone. The problem was, the wife was alone in the house, and it wasn't her!
+
+CASE TWO: A HAND ACROSS DEATH. One morning, Connie Lopez woke in her bedroom to find a strange mystery. An oily handprint had been left on her shower. She kept spotlessly clean house, so it didn't make any sense. Besides, the handprint was much larger than her own. She complained to her landlord, but he had no answers. Then it happened again! Connie woke one morning and discovered an oily handprint right on her own hand. A further investigation revealed fresh oil spots around her bed, and also around the dining room table. It was clear she had an intruder, but who? 
+
+CASE THREE: A DEMON NAMED BART. Three young sisters and their friend decided that they were going to contact deceased celebrities using a Ouija board. They had done this several times before, but this time something different happened. The board began to spell out threatening messages. The girls asked the board who was communicating, and all it would say was that the spirit was in the house. And then they asked the spirit its name. The spirit spelled out the name Bart and said he was a demon. Frightened, the girls fled the house and decided to burn the Ouija board. But when one of them returned inside to get some matches, she was confronted with a sight that sent icy chills down her spine. It was a dark demonic spirit. And it wasn't going away anytime soon.
+
+These three cases reveal the complexity of ghostly encounters and show how many different ways they are able to manifest. Ghost encounters can produce the entire range of emotions. As these cases show, some can be puzzling, some can be comforting, and some can be absolutely terrifying.
+
+If you would like to explore more about these three ghostly encounters, and several others, check out my book: "California Ghosts: True Accounts of Hauntings in the Golden State." Now available!
+
+LINK TO BOOK: https://www.amazon.com/dp/0764319728/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/wzgErKIPM7A" target="_blank" rel="noopener noreferrer">EPISODE #121. 
 ETS CURE KIDNEY DISEASE: TEN TRUE CASES</a>.</h3>
 <h5>LINK: https://youtu.be/wzgErKIPM7A</h5>                                                             <h5>August 5, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>4,914 views  Aug 5, 2022</h6>
+ETs are healing people all across the world. With more than 300 documented cases, it is clear that healing is a regular facet of a UFO encounter. Most major researchers have multiple cases involving cures. These cases not only provide good hard evidence of extraterrestrials, but they also show a benevolent side to UFO encounters. But with a fear-based media and an active UFO cover-up, these kinds of cases are not getting the attention they deserve.
 
+This video presents ten true cases of healings of one specific type: the kidneys. These cases show how truly advanced in medicine the ETs are.
+
+December 1965: Swedish construction worker Richard Hoglund encounters a landed UFO and human-looking occupants. After indicating that he has a problem with kidney stones, the ETs agree to cure him.
+
+In 1965, health-food distributor Ludwig F. Pallman meets a human-looking man claiming to be an ET. Skeptical, Pallman is invited onboard a UFO in Peru. After being hospitalized for kidney disease, the ETs arrive to help.
+
+October 25, 1974, oil-field worker Carl Higdon is out hunting elk in Rawlins, Wyoming. Upon encountering a landed UFO, he is taken onboard and healed of two conditions: tubercular scars in his lungs, and kidney stones.
+
+July 17, 1978, Carmela is taken from her home in Cayey, Puerto Rico into an ET craft. She sees different types of ETs, who issue dire warnings about the future of Earth, and then heal her diseased kidneys.
+
+In August of 1980, Hector Vasquez of San Juan, Puerto Rico is suffering from a bad case of kidney stones. Luckily, his friend is a UFO contactee. And on the way to the hospital, the ETs arrive on a healing mission.
+
+In early 1985, Veronica of Ontario, Canada finds herself being escorted onto a UFO which had landed in her alley. Doctors had diagnosed her with kidney disease and told her she needed surgery. Then the aliens arrived!
+
+In the summer of 1985, an anonymous woman from British Columbia, Canada meditates to relieve her severe kidney pain. Without warning, she finds herself onboard a UFO with tall humanoids, and they want to help.
+
+April 2, 1991, a peasant in Tenjo, Colombia is riding his donkey to work when a craft lands nearby. Next thing he knows, he's being pulled onboard and taken to a large mothership where he is cured of kidney stones.
+
+January 26, 1997, abductee Andrew from Texas finds a gray alien in his bedroom. After an exam, the gray asks him if the strange object in his kidneys is supposed to be there? No, he says. The grays agree to help.
+
+In July 2006, Ms. E.A. Sabean is diagnosed with chronic renal failure. She prays for a healing and finds herself surrounded by short, brown-skinned ETs who heal her. Later, the ETs warn her, stop drinking diet coke!
+
+These ten cases, most of which are verified by doctors, show that ETs do have an agenda to heal people. These healing cases reach back nearly a hundred years and come from all over the world. The cures cover the gamut of injuries, illnesses, conditions and diseases. The kidney cures presented here are likely just the tip of the iceberg. The evidence can no longer be denied. ETs are healing people. And with hundreds of more cases like these, it's likely far more common than most people realize.
+
+If you would like to learn more about these cases, and the ET agenda to heal humanity, check out my book, "The Healing Power of UFOs: 300 True Accounts of People Healed by Extraterrestrials." Now available!
+
+LINK TO THE BOOK: https://www.amazon.com/dp/1792986203/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/NMSXgkm5R-s" target="_blank" rel="noopener noreferrer">EPISODE #120. 
 IS GRANDPA AN ALIEN? (AND FOUR OTHER CASES OF UFO CONTACT. 
@@ -4815,133 +5882,644 @@ that there are many cases involving UFO photographs. In fact, there are hundreds
 incidents in which witnesses have been able to capture images of unidentified flying 
 objects.
 
-This video presents more than fifty cases of some of the best UFO photographs taken in the state of California. Many of these are multiple-witness cases with photographs that have been authenticated by UFO researchers and photographic experts. Some are well-known, while others have received almost no publicity. The majority of these photographs show solid metallic objects hovering in the sky. In some of these cases, it appears that the UFOs want to be seen, and are posing for the witnesses.
+This video presents more than fifty cases of some of the best UFO photographs taken in the 
+state of California. Many of these are multiple-witness cases with photographs that have 
+been authenticated by UFO researchers and photographic experts. Some are well-known, while 
+others have received almost no publicity. The majority of these photographs show solid 
+metallic objects hovering in the sky. In some of these cases, it appears that the UFOs 
+want to be seen, and are posing for the witnesses.
 
-It has often been said that a picture is worth a thousand words. When it comes to UFOs, this is especially true. These amazing photographs provide hard evidence for the reality of the extraterrestrial presence on our planet. We are not alone! And these photographs prove it!
+It has often been said that a picture is worth a thousand words. When it comes to UFOs, 
+this is especially true. These amazing photographs provide hard evidence for the reality 
+of the extraterrestrial presence on our planet. We are not alone! And these photographs 
+prove it!
 
-With so many cases, the state of California has had a profound effect on our understanding and knowledge of the UFO phenomenon. If you would like to learn more about UFO activity in California, check out my book, "UFOs over California: A True History of Extraterrestrial Encounters in the Golden State." Now available!
+With so many cases, the state of California has had a profound effect on our understanding 
+and knowledge of the UFO phenomenon. If you would like to learn more about UFO activity in 
+California, check out my book, "UFOs over California: A True History of Extraterrestrial 
+Encounters in the Golden State." Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/pmX0alL6I8k" target="_blank" rel="noopener noreferrer">EPISODE #118. 
 THE BONY CRAB MONSTER: A TRUE STORY</a>.</h3>
 <h5>LINK: https://youtu.be/pmX0alL6I8k</h5>                                                             <h5>July 8, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>4,555 views  Jul 15, 2022</h6>
+It was a Sunday evening in 1966 in Cicero, Illinois. Thirteen-year-old Laura Caigoy and 
+her best friend Ruthie's went outside and waited in the family station wagon, talking and 
+laughing. Laura's mother was coming to pick her up and take Laura to her home.
 
+Suddenly, Laura heard and felt a low thrumming noise. "Do you hear that?" she asked Ruthie. 
+But Ruthie didn't answer. Laura looked around for the source of the noise, but saw nothing 
+unusual. "Do you hear that?" she asked again. Still, Ruthie didn't respond.
+
+The sound grew louder, so Laura jumped out of the car and scanned the street. Nothing 
+seemed out of the ordinary, except for the weird thrumming noise. Then, looking up, Laura 
+could hardly believe her eyes. A huge saucer-shaped craft floated just above the 
+streetlights only a block away, and it was moving towards them.
+
+The craft was large enough to span the entire width of the street. It was a perfect saucer 
+with a little dome on top. A row of windows surrounded the perimeter. The interior of the 
+craft was lit with a brilliant yellow light. It moved leisurely forward at only a few 
+miles per hour.
+
+Laura screamed Ruthie's name and banged on the car, but Ruthie said nothing. Laura was 
+shocked to see that Cermak Road, which was normally busy with traffic, was now completely 
+empty of cars. 
+
+The craft approached until it was directly overhead. Laura felt no fear, only amazement 
+and awe. Looking down, she saw three people standing nearby, two older women, who seemed 
+not to notice the craft, and another lady staring at her.
+
+The woman looked strange. Dressed in dark clothes, she was short, had strangely smooth 
+skin, black shiny hair that looked almost painted on, and was wearing dark wrap-around 
+sunglasses, at night!
+
+"Look!" Laura said, pointing up. "Isn't this amazing?"
+
+The strange woman looked casually up at the craft and then continued staring at Laura, 
+almost as if studying he. She seemed to be more interested in Laura than the UFO itself!
+
+The craft was low enough that Laura could've hit it with a rock. It slowly moved off, 
+continuing down the street. Laura followed it down the street for another block, until 
+the road turned into a T-intersection. The craft kept going over the housetops, 
+disappearing into the distance. 
+
+Thrilled by the encounter, Laura rushed back to the car and said softly, "Ruthie?" 
+Her friend instantly bolted upright. Laura told her about the UFO, and Ruthie was 
+shocked. She had passed out. She didn't see anything.
+
+Years passed. Laura grew up, moved to California, fell in love with a man, got married 
+and had a baby. Twenty-five years later, her son (now five or six years old) began to 
+suffer from unexplained nosebleeds. And so did Laura.
+
+At the same time, her son experienced severe nightmares in which he said strange tan 
+creatures with huge dark eyes would come into his bedroom. One of them was a creature 
+he called the "bony crab monster" a skeletal spidery-looking being with weird crab-like 
+hands. Her son said that the creatures would levitate him out of the room and into the 
+backyard.
+
+Laura assumed her son was having vivid nightmares. Then, one evening, the bony crab 
+monster came back and told her son, "Don't be afraid," and cut his finger. The next 
+morning, her son related the 'dream' and showed Laura the cut on his finger.
+
+Laura was shocked. Could her son's dreams be real? But how was that possible? Weeks 
+later, Laura's husband came home with shocking news. He had seen a UFO -- a large, 
+glowing triangular object.
+
+Not long after that, Laura had her own sighting of a huge cylindrical-shaped craft, 
+lit up at both ends. To her amazement, it was being chased by a police helicopter.
+
+She thought of her own childhood sighting. Her son's nightmares also came to mind. 
+Could all of this be related? She decided to look into the subject of UFOs and 
+received an incredible shock. All the strange details seemed to come together. The 
+way Ruthie fell asleep. The strange appearance of the woman with the dark wraparound 
+sunglasses. The unexplained nosebleeds. Her son's nightmares of weird creatures with 
+huge dark eyes." His description of being levitated out of the house. The cut on his 
+finger. Could this all be because of UFOs and aliens?
+
+Searching her past for clues, Laura now recalled a strange event at age five which back 
+then had made no sense. It was something so bizarre, so unbelievable, she was never able 
+to understand what happened. Now suddenly, it began to make sense.
+
+Laura's story is one of the more unusual cases of its kind, and it provides some 
+interesting and unique insights about what it's like to have extraterrestrial contact. 
+If you'd like to read more, check out my book, "Extraterrestrial Visitations." 
+Now available!
+
+Link to book: https://www.amazon.com/dp/1567182208/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/d8hf1j-kTzA" target="_blank" rel="noopener noreferrer">EPISODE #117. 
-INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART TWO: 
-THE PHOTOGRAPHIC EVIDENCE</a>.</h3>
+INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART TWO: THE PHOTOGRAPHIC EVIDENCE</a>.</h3>
 <h5>LINK: https://youtu.be/d8hf1j-kTzA</h5>                                                             <h5>July 8, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>14,355 views  Jul 8, 2022</h6>
+In May of 2022, after decades of remaining silent, Dolly Safran went public with her experiences as a lifelong fully conscious UFO contactee. As a very young child, Dolly had several encounters involving missing time. Then, in 1973, at age 14, she was taken onboard a craft from her home in the Florida Everglades, and was able to remember the entire event without the aid of hypnosis. Since then, she has had more than a thousand fully conscious onboard UFO encounters. She has been taken onboard large motherships, seen a wide variety of extraterrestrials, traveled throughout the solar system and even to other planets. Her story is one of the most extensive cases of UFO contact on record.
 
+For many years, Dolly had tried to obtain photographs and films of the UFOs, but like most contactees, she discovered it was no easy task. In fact, it's very rare that contactees are able to obtain good photographic evidence. But when Dolly decided to go public with her experiences, she asked the ETs if they would allow themselves to be filmed. To her delight, the ETs agreed!
+
+In Part One of this series, Dolly described her UFO encounters up to age fourteen. Now, in Part Two, Dolly shares the many photographs and videos she has been able to obtain of the UFO craft. This footage includes both daytime and nighttime footage, various UFO craft, with multiple witnesses in various locations. Dolly's extraordinary video captures include metallic craft posing for the camera, a mothership dropping smaller ET-drones, a craft that performs flips a 180-degree flip, a craft that hovers only a few hundred feet above a house, and more.
+
+For those who want evidence of UFO reality, here it is! More than twenty photographs and films are presented. Dolly provides a detailed commentary for each photographic event, and explains why obtaining good photographic evidence is not as easy as one might think.
+
+The photographic evidence presented here is only a portion of the many photos and films she has been able to obtain. You can view more of Dolly's amazing captures on her YouTube Channel, "DOLLYSAFRAN." The link to her channel is provided at the bottom of this description on YouTube.
+
+If you would like to read more about Dolly's amazing encounters, please check out the #1 Amazon UFO bestselling book on her case, "Symmetry: A True UFO Adventure." Now available!
+
+LINK TO BOOK: https://www.amazon.com/dp/B09VF3J8NR/...
+
+LINK TO DOLLY'S YOUTUBE CHANNEL:    / @dollysafran9107  
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3><a href="https://youtu.be/_hz73wAeUKg" target="_blank" rel="noopener noreferrer">EPISODE #116. UFO DISPLAYS: 
-SEVEN STRANGE CASES</a>.</h3>
+<h3><a href="https://youtu.be/_hz73wAeUKg" target="_blank" rel="noopener noreferrer">EPISODE #116. 
+UFO DISPLAYS: SEVEN STRANGE CASES</a>.</h3>
 <h5>LINK: https://youtu.be/_hz73wAeUKg</h5>                                                             <h5>July 1, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>25,169 views  Jul 1, 2022</h6>
+According to several polls, the majority of people (at least in the USA) believe in the reality of UFOs. Yet, the UFOs themselves remain somewhat evasive. In other words, you can't just go outside and see a UFO anytime you want. And yet, sometimes you can!
 
+There is a type of UFO behavior that investigators call "displays." In these cases, UFOs will brazenly appear over witnesses and put on a show, darting around and dancing across the sky as though they want to be seen. This type of activity is clearly a publicity campaign, involving what appears to be an agenda to announce their presence and convince people that UFOs are real, and we are not alone.
+
+This video presents seven cases that fit this unique category of UFOs that have overcome their typical shyness and instead are showing off. These types of events have been occurring for decades and are still going on today.
+
+1945: Mount Baden-Powell, California. Joe Stein and twenty other young boy-scouts are camping in the forest when a multi-colored object shows up and remains in the sky for most of the night.
+
+1954: The Blue Ridge Parkway, Virginia. Bob X. is in the backseat of his parents' car traveling along the highway when an enormous shiny silver disc shows up and begins pacing their car.
+
+1970s: Encino, California. Ronny Baron has experienced several UFO sightings throughout his life, but after moving to California he experienced three spectacular displays. One occurred over his home and was also witnessed by his son. A second occurred at a daytime party and was witnessed by twenty people. And a third occurred in the central valley in California.
+
+1972: Costa Mesa, California. Traffic stops in the streets, people rush out of their homes and offices, and thousands of people stare upwards to see a humongous, perfectly oval, cloud-like object filled with soft pastel, multi-colored lights scoot across the sky.
+
+1978: Palm Springs, California. Chris S., her brother and friend are camping outside when three star-like objects (red, yellow and green) start cavorting and dancing around in the sky, putting on a spectacular display.
+
+1983: Lake Naciemento, California. Robert X and six friends observe multiple clusters of lights darting around the night sky for all night long. As they drive around, they see many other people pulling off the road to observe the dramatic display.
+
+1990: Pasadena, California. Arni Whyler receives a telepathic message to look outside his window. A UFO instantly appears and performs an incredible maneuver. Shortly later a mysterious beam of light sweeps over his house, followed by an eerie silence and other weird effects. He also experienced another display as a young boy in Cleveland, Ohio.
+
+These seven cases illustrate how the UFO occupants sometimes have no fear of being seen and are in fact announcing their presence. The question is why? Could it be that this is preparation for a future open official contact with all of humanity? Time will tell!
+
+If you would like to explore more about these cases and many others, check out my book, "One in Forty: The UFO Epidemic." Available on Amazon!
+
+LINK TO BOOK: https://www.amazon.com/dp/1560722703/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/JCF9YiOER58" target="_blank" rel="noopener noreferrer">EPISODE #115. 
 COASTAL CALIFORNIA UFO CONTACT CLUSTER</a>.</h3>
 <h5>LINK: https://youtu.be/JCF9YiOER58</h5>                                                             <h5>June 24, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>5,915 views  Jun 24, 2022</h6>
+Each UFO encounter provides another piece of the puzzle and offers new insights into the nature of the UFO phenomenon. This video presents five new and original cases, each of which occurred within a small radius of each other. Each case in this UFO contact cluster contains strange and profound elements which illustrate certain aspects of UFO behavior.
 
+--December 1968, Paul Allione steps outside his home in Palos Verdes, California and observes an unusual string of lights hovering at low elevation over the Santa Catalina Channel. He grabs his walkie-talkie and attempts to make contact. To his amazement, he overhears a ship's communication talking about the sighting as it is occurring. He soon learns that he is not the only witness to this sighting, and in fact, hundreds of people are seeing the same thing.
+
+--April 1975, George Gray is driving west on the Santa Monica Freeway when he sees a strange, illuminated object sending down colorful beams of light. When the object darts across the sky, he realizes he's witnessing an actual UFO. He immediately attempts to telepathically communicate with the object, sending it messages of love. To his amazement, the object seems to respond and comes zooming towards him. George pulls over along the Pacific Coast Highway and a has a close-up encounter that he will never forget.
+
+--Summer, 1980, Donald and Bonnie X. and their children (and neighbors) all view an unidentified red, glowing object silently hovering over their home in Santa Monica. They view the object through binoculars and are amazed to see that this object is semi-circular in shape, and stationary in the sky. Even with binoculars, they are unable to identify it. It's something they've never seen before or since. And then, two days later, they receive incredible confirmation of their sighting from a source very close to home.
+
+---Summer, 1980, private pilot Toshi Inouye is flying at 2000 feet elevation over the Santa Monica Bay, providing flight instruction to a young student. Shortly after contacting the local airport tower and receiving clearance to land, Toshi and his student view a large, shiny, cigar-shaped light hovering near their plane. Stunned, and unable to identify the weird object, Toshi grabs the radio to question the Santa Monica Airport control tower regarding the object. If there was air traffic this close to him, they should already have informed him. But they haven't! And does he really want to report a UFO? Then, two weeks after the sighting, Toshi's student has a shocking revelation, showing that their sighting was just the beginning of deeper levels of UFO contact.
+
+--August 4, 2006, retired attorney David Russo decides to take a light night walk to the beach only a few blocks from his home in Long Beach, California. David has often taken late night walks on the beach, however tonight, he is shocked to see a strange triangular craft studded with lights zooming towards him. As it approaches, the craft drops down from the sky, hovering only twenty feet over the water a short distance offshore. It performs incredible maneuvers, as if showing off. David is entranced, and time seems to stop. The sighting affects him profoundly, sending him on a journey of self-discovery that will leave him forever changed.
+
+These five encounters represent a UFO contact cluster, all occurring in virtually the same location, and each of them providing important answers to the many questions surrounding the UFO phenomenon. 
+
+To learn more about these cases, and many others, check out my book, "Undersea UFO Base: An In-Depth Investigation into USO Activity in the Santa Catalina Channel. Now available!
+
+LINK TO BOOK:
+https://www.amazon.com/dp/1984340700/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/FvBcPkR4u3Y" target="_blank" rel="noopener noreferrer">EPISODE #114. 
 NEW MEXICO UFO CRASH/RETRIEVALS</a>.</h3>
 <h5>LINK: https://youtu.be/FvBcPkR4u3Y</h5>                                                             <h5>June 17, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>9,202 views  Jun 17, 2022</h6>
+It's not just Roswell!
 
+There are many kinds of UFO encounters: sightings, landings, face-to-face contact, onboard UFO encounters and more. But perhaps the ultimate type of UFO encounter is a UFO crash-retrieval incident. In these incredible cases, extraterrestrial craft and ET bodies are allegedly retrieved by military forces and secreted away in various military bases across the United States and the world.
+
+The 1947 UFO crash at Roswell, NM is the most famous case of this kind, but it's not the only one. In fact, researchers have documented hundreds of similar events from all over the planet. UFO crash retrievals are far more common than most people think. The state of New Mexico alone has more than a dozen such cases.
+
+This video presents ten cases of UFO crash retrievals in the state of New Mexico that you may not have heard of before. Moving beyond Roswell, Aztec, Corona or the Plains of St. Augustine (all of which are fairly well-known within the UFO community) -- we move to other lesser-known cases including:
+
+--the 1945 UFO crash at San Antonio witnessed by two boys working at an isolated ranch.
+--an incident involving the shooting-down a UFO at White Sands only days before the Roswell UFO crash.
+--a UFO crash in San Miguel County in 1952 as witnessed by a young couple vacationing in the area.
+--a crash in the deserts of New Mexico in 1953, coming from an anonymous Radar Specialist who claims to have seen footage of the crash and bodies.
+--a UFO crash at White Sands in 1953 involving a craft that was recovered almost completely intact.
+--a UFO crash in 1954 outside Walker AFB in which an officer (K.A.) was on a search and rescue mission and came upon a craft and ET bodies.
+--a UFO crash in 1957 as reported by three military officers who investigated rumors of a downed aircraft and found more than they bargained for.
+--a UFO crash in 1962 near Holloman AFB involving a 68-foot metallic disc piloted by two extraterrestrials.
+--a UFO crash in 1963 along the highway near the small town of Santa Rosa, as witnessed by an X-ray technician who view the craft and bodies.
+--a UFO crash in 1974 in the Manzano Mountains near the small town of Chili, as reported to APRO by an officer at Kirtland AFB.
+
+It was only because of sheer luck and the courage of various whistle-blowers that these ten cases were reported to various UFO researchers. Likely these cases represent only the tip of the iceberg, meaning that there are probably dozens of other cases or more that the public does not know about in the state of New Mexico alone!
+
+During the recent Congressional UFO Hearings in May of 2022, the U.S. government stated their desire to be truthful and transparent on the subject of UFOs and UAPS, and their desire to remove the stigma surrounding the subject of extraterrestrials. And yet, when asked if the U.S. military has ever shot at a craft, or if the military is in possession of any materials from a craft, they said, "no," and said that the stories of Roswell were mere rumors! Does this sound like truth and transparency?
+
+No more cover-ups! No more lies! The time for truth is now! The subject of UFO crash retrievals can no longer be ignored or denied. The cases are numerous and come from many highly credible witnesses. UFO crash retrievals represent the cutting edge of UFO research and have the potential to prove the reality of the extraterrestrial presence on our planet to all of humanity.
+
+If you would like to explore more about these New Mexico UFO crash retrieval cases, and of course Roswell, Aztec and more...check out my book, "UFOs over New Mexico: A True History of Extraterrestrial Encounters in the Land of Enchantment." Now available!
+
+LINK TO BOOK:
+https://www.amazon.com/dp/0764339060/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/XnEVR9x3oaY" target="_blank" rel="noopener noreferrer">EPISODE #113. 
 INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACT PART ONE: 
 THE AWAKENING</a>.</h3>
 <h5>LINK: https://youtu.be/XnEVR9x3oaY</h5>                                                             <h5>June 3, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>14,305 views  Jun 3, 2022</h6>
+Late one evening in January of 1973, fourteen-year-old Dolly Safran (who lived near the Everglades in Florida) looked outside her window to observe more than fifty star-like objects swarming overhead. As they began to dart off in different directions, one of these objects dropped down and hovered at treetop level behind her house.
 
+The object now revealed itself to be a solid metallic craft, with portholes. And through the portholes, Dolly was shocked to see two short, gray-skinned figures with large dark eyes and huge black heads. Aliens, she realized, and they were looking right at her! She turned to dive under her bed. At that moment, her room exploded in brilliant blue light.
+
+The next thing Dolly knew, hours had passed and morning had arrived. Dolly found herself on the floor of her room, dressed in someone else's pajamas, which were on inside out and backwards. She had been taken, she realized. It had happened again.
+
+Throughout her young life, this sort of thing had happened several times. But this time, she resolved to remember. And when the radio came on and said that there had been other witnesses, Dolly got the confirmation she needed. She wasn't crazy. She really was seeing UFOs. 
+
+She sat down in the bathroom and began to concentrate, meditate, focus. And all at once, the wall of amnesia started to crumble and memories of being taken onboard the craft flooded into her mind. 
+
+Dolly had to go to school that day, and she received further confirmation when her best friend also reported seeing a UFO on the same night. By the end of the day, Dolly remembered everything that had happened to her that night. And not only did she remember that night, she was able to recall the many other times she had been taken, going all the way back to her first contact event when she was only ten months old and she floated right out of her crib.
+
+Suddenly, all those weird events of missing time made sense. Dolly recalled many other instances of contact. She recalled the time at age two where he was missing for two hours and was found six miles away from her home. She had been taken.
+
+She remembered an incident at age six when a craft came down and took her from the front yard of her home. She recalled many other instances too.
+
+But her experience at age fourteen changed everything. She recalled being taken onboard the craft and meeting short little grays, and a much taller gray she called "Momma." She was given a tour of the craft. The craft itself was a living being, and Dolly recalled meeting him many times. She called him "Tlera." 
+
+During this onboard experience, Dolly was taken to the control room, which the ETs called "the place of movement." She was instructed to sit in the pilot seat and to her amazement and delight, the craft left Earth and they traveled to Saturn. After exploring Saturn's rings and many moons, they traveled to Earth's moon, actually landing upon its surface.
+
+Dolly had a long conversation with the ETs, and they offered her the opportunity to learn from them and work alongside them. She was given the freedom to choose any subject she wanted to explore. "Can I learn how to fly the craft?" Dolly asked. 
+
+The ETs agreed. And so began Dolly's lifelong experiences as a fully conscious UFO contactee. She soon began having fantastic adventures including visiting large motherships filled with plants and animals, traveling to other planets and star-systems and meeting with a wide variety of ETs. It was a fantastic adventure that is still going on to this day.
+
+This video presents Dolly's story up to age fourteen, including many of her childhood experiences, and her incredible awakening at age fourteen where she was taken onboard the craft and then traveled across the solar system, starting a lifetime of fully conscious contact.
+
+Dolly's story of extraterrestrial contact is one of the most extensive and profound cases on record. If you would like to explore more about her many UFO encounters, you can read about them in my new book, "Symmetry: A True UFO Adventure." Now available!
+
+LINK TO BOOK: https://www.amazon.com/dp/B09VF3J8NR/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/bsFEzkLEUNA" target="_blank" rel="noopener noreferrer">EPISODE #112. 
 WHEN YOU WISH UPON A UFO (AND OTHER TOPANGA CANYON ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/bsFEzkLEUNA</h5>                                                             <h5>May 27, 2022</h5>  
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>8,502 views  May 27, 2022</h6>
+Located west of Los Angeles, California, nestled in the Santa Monica Mountains, the small community of Topanga Canyon has long been known as a UFO hotspot. In fact, on June 14, 1992, numerous people called the local police station and newspaper office reporting UFOs. And for the next two years, a wave of encounters inundated the area. Sightings, landings, UFO-car chases, bedroom visitations, abductions and more occurred at an unprecedented rate. This became known as the Topanga Canyon UFO wave.
 
+But this wave was not an isolated event. Encounters occurred before this wave, and they continued to occur after it. This video presents a selection of ten of some of the more interesting and unique UFO encounters in this very active area. They show how strange and unusual the UFO phenomenon can be, and provide some profound insights into how UFOs behave and interact with people on Earth.
+
+For example, there is the case of Ethan Holtzman, who was experiencing a powerful feeling of deja-vu when suddenly a blazing red UFO dropped down from the sky over his vehicle.
+
+Or the case of Dr. David Philips (a college professor) who was woken up in the early hours of the morning to hear helicopters hovering over the canyon, sending down searchlights as if looking for something. A few minutes later, he saw what they were apparently looking for: a shiny silver disc evading the helicopters and scooting south down the canyon.
+
+Or the case of Bruce Merrifield and Reyna Massey, who while driving through the canyon, were confronted by an enormous metallic craft studded with colored lights hovering a mere twenty feet over the nearby ridge. As soon as they saw it, the craft turned up on its side and flashed its lights at them.
+
+Or the case of Samantha, who was driving near her home adjacent to Topanga State Park when she saw a mysterious red orb zipping across the sky, appearing and disappearing, turning at right angles, and drawing weird geometric shapes in the sky. Afterwards, Samantha began to have memories of being taken onboard a UFO.
+
+Or the case of Taylor, who had just moved into the canyon, and began to see fleets of UFOs and even a mother ship. The UFOs appeared so many times and came so close, that Taylor ended up moving out of the canyon a short time later.
+
+Or the case of Valerie Dennett, who looked out her window to see an exceptionally bright star in the sky. She made a wish upon the star when suddenly it blinked out, and in its place was an object with blue and red lights. Looking outside, Valerie saw two other identical objects hovering in the sky. Feeling like the object was watching her, and feeling concern for her newborn baby, Valerie tried to wake up her boyfriend. But her boyfriend could not be awakened.
+
+These are just a few of the many unusual extraterrestrial encounters which have occurred (and continue to occur) in Topanga Canyon. It's one of California's most active hotspots, producing virtually the entire range of UFO encounters. If you want to see a UFO, this is the place to be.
+
+If you would like to explore more about these encounters and many others, check out my book, "UFOs over Topanga Canyon." Now available.
+
+LINK TO BOOK: https://www.amazon.com/dp/1567182216/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/6loDKcfLbrg" target="_blank" rel="noopener noreferrer">EPISODE #111. 
 30 UFO LANDING TRACE CASES</a>.</h3>
 <h5>LINK: https://youtu.be/6loDKcfLbrg</h5>                                                             <h5>May 20, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>14,119 views  May 20, 2022</h6>
+There are many different types of UFO encounters: sightings, landings, face-to-face contact, onboard UFO encounters, crash/retrievals and more. UFO skeptics often say that these cases rely solely on eyewitness testimony with no supporting hard physical evidence. But this is simply not true.
 
+Most sightings have multiple eyewitness testimony. Some are supported by lie-detector tests, radar-returns, photographs and films. Many encounters display a wide variety of evidence such as electromagnetic effects, animal reactions, physiological effects (injuries and healings,) angel hair, implants (which appear on x-rays and MRIs, and have in some cases been removed and subjected to scientific study) and more. There is a lot more evidence for UFOs than most people realize.
+
+One of the most compelling types of evidence is known as UFO landing traces. Close Encounters of the Second Kind are those cases which affect the physical environment in some way. The ultimate example of this are the UFO landing traces cases. 
+
+There are thousands of reports of UFO landings. And there are hundreds upon hundreds of these which involve hard physical evidence in the form of landing traces. 
+
+Landing traces come in many different forms including crushed vegetation, swirled grass, accelerated growth of vegetation, gouges in the earth, compacted soil, burn marks, soil that shows evidence of having been exposed to a high heat source, radiation readings, and more.
+
+This video presents a chronology of more than thirty UFO landing trace cases. They come from all across our planet, reach back many decades in time, and are still occurring today.
+
+Some of these cases are very well known, such as the Socorro, NM UFO landing in 1964; the Tully, Australia UFO landing in 1966; the Delphos, Kansas UFO landing in 1971; the Langenburg, Canada UFO landing in 1974; the Trans-En-Provence, France UFO landing in 1981; and the Voronezh, Russia UFO landing in 1989, to name a few! However, the vast majority of UFO landing trace cases have received almost no publicity whatsoever.
+
+This video presents these well-known cases, and many which are not well-known. All of these cases provide hard physical evidence of UFOs. Many of the landing traces have been studied in scientific labs. 
+
+The cases presented here are only a small portion of the actual number of cases. The time for skepticism is over. These landing trace cases provide conclusive proof that we are being visited by UFOs and extraterrestrials. To ignore them would be wholly unscientific. 
+
+Where are these cases taking place? What actually happens when a UFO lands on our planet? What do these cases have to say about the nature and origin of the UFO phenomenon? The answers are here!
+
+PRESTON DENNETT'S WEBSITE:  https://prestondennett.weebly.com/
+
+LINK TO SARAJEVO UFO FILM:    • Real UFO in Sarajevo Bosnia (8.10.2005)  
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/RR_6LCFdxlw" target="_blank" rel="noopener noreferrer">EPISODE #110. 
 BOATERS BEWARE! UFOS ARE TARGETING BOATERS!</a></h3>
 <h5>LINK: https://youtu.be/RR_6LCFdxlw</h5>                                                             <h5>May 13, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>6,852 views  May 13, 2022</h6>
+UFOs are not only seen in the skies above us. They are also seen in our oceans. Researchers call them, "USOs" or unidentified submersible objects. And there are a lot of them!
 
+USOs are seen all over the world, but one of the most active areas on our planet is off the coast of Southern California, specifically, the Santa Catalina and San Pedro Channel. This body of water has produced more than 150 documented cases of UFOs and USOs. With an average depth of about 3000 feet, and some areas one mile deep, there are plenty of places for USOs to hide.
+
+Objects have been seen diving into the water, and flying out, sometimes both! One of the most interesting types of USO encounters are cases in which these craft have targeted boaters. There are nearly a dozen cases on record in which UFOs hover directly over boaters, or even more incredibly, precisely beneath them. Cases have been occurring for decades and are still happening today.
+
+On July 10, 1955, the Washington family was in their boat thirteen miles off the coast of Newport Beach when a UFO appeared right over their boat and began to follow them. They called the Coast Guard who agreed to send out a plane to investigate. No sooner had they hung up the radio when the UFO darted away.
+
+In July of 1987, a group of people were making a night-crossing from Catalina Island to Rancho Palos Verdes, when a UFO approached and again, stopped over their boat. With a very unusual appearance and making no sound, it was clearly not a conventional aircraft. 
+
+On January 3, 2004, a gentleman by the name of Young Chyren was shocked to see a UFO hovering right over a sailboat only a short distance off the shore of Santa Monica. When the object remained in place, he quickly grabbed his camera and snapped a photograph, which clearly shows a metallic disc-shaped object, providing more evidence that UFOs are targeting boaters.
+
+Even more compelling are those cases in which UFOs (or rather, USOs!) approach boats from underwater. A dramatic case occurred in the late 1980s to an anonymous electronics engineer who was sailing his fully equipped yacht to Santa Cruz Island when a massive, round, glowing, green craft targeted his boat and moved directly underneath it, causing his compasses, depth-sounders and electrical equipment to all fail at once.
+
+Or consider the case of a gentleman who was sailing along the coast of Catalina Island at night when a gigantic square of glowing white light appeared under his boat, illuminating the water for hundreds of feet around him.
+
+Or the case of a gentleman who was in the Channel Islands area when he saw what he first thought might be whales swimming under his boat. Then one approached closely and he saw that it wasn't a whale; instead it was a round, silvery metallic, saucer-shaped object. 
+
+These are just a few of the many cases in which USOs are targeting boaters in the Santa Catalina channel. This video presents a chronology of these very interesting encounters, including one case in which a boat was actually sunk by a USO!
+
+Why are UFOs targeting boaters? Are they curious? Are they trying to announce their presence? Where are these objects coming from? How many are there? What is the motive behind this very unusual aspect of UFO behavior? 
+
+This video presents the best cases of boaters that have been targeted by USOs, and answers many of the questions surrounding these types of accounts. 
+
+If you would like to learn more about USO activity in this very active area, check out my book, "Undersea UFO Base: An In-Depth Investigation of USOs in the Santa Catalina Channel." Now available!
+
+https://www.amazon.com/dp/1984340700/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/d0CBPEi7jEA" target="_blank" rel="noopener noreferrer">EPISODE #109. 
 DUDLEY DELANEY’S ALIEN ENCOUNTER</a>.</h3>
 <h5>LINK: https://youtu.be/d0CBPEi7jEA</h5>                                                             <h5>May 6, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>6,619 views  May 6, 2022</h6>
+In the late 1940s, young teenager, Dudley Delany was listening to the popular radio host Frank Edwards talk about UFOs being seen in the skies across the world. Dudley was amazed and entranced. Extraterrestrials were visiting our world? The idea seemed fantastic, and yet there were so many reports. So began Dudley's lifelong fascination with the subject.
 
+Dudley now believed in UFOs, but he certainly didn't think he was personally involved. He grew up and became very interested in medicine. He went to school and became first a registered nurse, then a licensed chiropractor, and also a licensed massage therapist. So began Dr. Delany's lifelong mission to help and heal humanity.
+
+Then one morning, he woke to a puzzling mystery. There was a strange lump on his cheek. It hadn't been there the day before. How had it appeared so quickly, seemingly overnight? The strange mystery concerned him, and one day he decided to take action. Thinking it was perhaps a boil, he sterilized a needle and started to pierce and drain the boil. To his shock, out popped a tiny crystal-like object! Dudley was confused. How could a crystal be lodged inside his body? It made no sense. But with no explanation, he forgot about it.
+
+Years passed. Then in 1991, Dudley (now in his fifties) started to feel unwell. He went to the doctor and received a devastating diagnosis: he was suffering from multiple sclerosis. Always interested in alternative healing, Dudley began researching ways to heal himself and came upon the work of the world-famous psychic, Edgar Cayce, who was known for diagnosing and healing people of a wide variety of illnesses. 
+
+Dudley found information about how to heal his own condition, and it worked! His MS went into full remission. Delighted, Dudley wrote a book about his healing experience and became a strong proponent of alternative healing.
+
+Then, one evening in 1998, not long after he had retired, Dudley had his first unambiguously UFO-related encounter. He woke up to see a beam of light coming through the roof and ceiling of his home, striking his body where he lay in bed. What, he wondered, was that? A beam of light from a UFO?
+
+A few years later, in early 2001, Dudley had another strange experience. He woke one evening to sense a presence in his room. He felt and heard something or someone sit on the bed next to him. Then he felt a strange hand grasping his own. Alarmed, he quickly opened his eyes and turned around. But the room was empty. Again he wondered, what was that? A ghost? An alien? He wasn't sure.
+
+But he began to research the subject, and asking other members of his family, he was shocked when his niece revealed that she herself had been taken onboard a UFO at age ten, where she met both grays and human-looking ETs. This provided Dudley with some confirmation of his own experiences. 
+
+In July of 2001, Dudley traveled to Virginia Beach to attend a conference at the Edgar Cayce Foundation. He had a wonderful time meeting with like-minded people and talking about alternative healing and UFOs. Then, one evening he went to bed and had the single most profound UFO encounter of his entire life. At the time he had been experiencing prostate problems which were causing him pain and difficulties with urination. That evening, he woke up to find that he was no longer in his room. Instead, he was apparently onboard an ET craft, lying upon a table.
+
+Unable to move or speak, he watched as a short humanoid approached and began to conduct a procedure, telling Dudley that he had a tumor, and that he was there to be healed. Dudley felt no fear, and was in fact, amazed and delighted to receive a healing at the hands of ETs. Following the procedure, his prostate problems disappeared.
+
+Dudley now examined his past in a new light. Suddenly all those weird events began to make sense. The weird crystal in his cheek. Could that have been an alien implant? The beam of light that came through the ceiling, the strange nighttime visitor in his bedroom -- perhaps he had been having more contact than he realized. Then he remembered a weird event which occurred when he was a young teenager, something so strange and personal that he had never told anyone, or even though about. But now, with the benefit of hindsight, it suddenly made sense. And he wondered if it was possible that his contact with ETs had started much earlier than he had ever imagined. And perhaps he had hybrid alien-human children!
+
+This video presents the story of Dr. Dudley Delany's lifelong alien encounters, and provides some interesting insights into the UFO contact experience. 
+
+If you would like to explore more about Dudley's encounters with ETs, and other UFO contact encounters, please check out my book, "Wondrous: 25 True UFO Encounters." Now available.
+https://www.amazon.com/dp/B0949H5Y8G/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/MHHPHeYie3Q" target="_blank" rel="noopener noreferrer">EPISODE #108. 
 ALIEN BOOKS</a>.</h3>
 <h5>LINK: https://youtu.be/MHHPHeYie3Q</h5>                                                             <h5>April 29, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>26,381 views  Apr 29, 2022</h6>
+It may sound strange and unusual, but there are now several documented cases on record in which people have met ETs, been taken onboard an extraterrestrial craft and shown an alien book. It doesn't happen often, but there are more cases than you might think.
 
+One very well-known case is Betty Hill, who was taken onboard a UFO with her husband, Barney in 1961 in the White Mountains of New Hampshire. While on the craft, Betty was given a large book, filled with alien symbols in long narrow columns.
+
+Another famous case is Betty Andreasson, a lifelong contactee from Massachusetts, who was given a thin blue book with glowing white pages, and was actually allowed to keep it in her home and study it for a short period of time.
+
+These cases are not unique. A fascinating case involving an alien book comes from Jeff Selver, a Canadian businessman who has recently and courageously stepped forward to reveal his encounters with ETs. During an onboard UFO encounter at age sixteen, he was handed a "mystic book" and told to study its contents. The book was filled with deeply spiritual messages that would alter the course of his life.
+
+Researcher Richard Boylan Ph.D., reports on the case of "Mike," a contactee from northern California. While onboard a craft, Mike was shown a book with a strange alien symbol on the cover, was instructed to read it, and was told he would remember the contents later in life. The alien book ended up having a profound influence on his life.
+
+Researcher David Jacobs Ph.D., also reports on an unusual case in which a young girl was taken onboard to meet with a human-ET hybrid. They both sat down and read an alien book together.
+
+This video presents nearly a dozen firsthand cases of people who have been given alien books by the extraterrestrials. Several of them have never been published before and are revealed here for the first time.
+
+Perhaps the most interesting and extensive case comes from Dolly Safran, a fully conscious contactee from Florida who has only recently stepped forward to reveal her lifelong contacts with extraterrestrials. In a live firsthand interview, Dolly reveals her experiences with a sapphire-blue ET book which she has studied for countless hours while onboard the ET craft.
+
+What do these books look like? Why are contactees being given these books? What kind of knowledge do these alien books contain? And most importantly, how are they affecting those who have had the fantastic opportunity to read them?
+
+This video answers all these questions and more, and provides a study and comparative analysis of these very unusual events. Told in the witnesses' own words, with witness drawings and firsthand interviews, the secret messages in these alien books are finally being revealed.
+
+If you would like to explore more about the most extensive case of an alien book on record, check out my book, "Symmetry: A True UFO Adventure," which presents the lifelong UFO encounters of Dolly Safran. Now available!
+
+https://www.amazon.com/dp/B09VF3J8NR/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Nrdvn-jUgWU" target="_blank" rel="noopener noreferrer">EPISODE #107. 
 A GRAY ALIEN NAMED SEN</a>.</h3>
 <h5>LINK: https://youtu.be/Nrdvn-jUgWU</h5>                                                             <h5>April 22, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>29,468 views  Apr 22, 2022</h6>
+This is the story of Julia (pseudonym) and her encounters with a gray alien named Sen. At age 19, Julia left her family and home in Prunedale, California. Her childhood had been difficult, filled with unexplained events. She had tried to get help from her parents, but they were strict and didn't understand. So Julia left everything behind and decided to get as far away from her home as she could.
 
+She ended up settling on the east coast of the United States, where she began to rebuild her life. She found a job, a place to live. She started her own small business, made friends, and met the man who would one day become her husband. Finally secure, she began to examine her childhood, trying to figure out the source of her trauma. She remembered terrifying events during which her room would fill with light and shadowy figures would approach her. She came upon the subject of aliens and UFOs. That's probably what happened she realized. It was aliens. But the whole idea terrified her and she refused to think about it.
+
+A few years later, Julia felt a powerful compulsion to move back to California. Although her life was going great, she and her boyfriend picked up everything and moved to Pacific Grove, not far from her childhood home. The very day they finished moving in, strange things began to happen. 
+
+It started with a weird ringing sound in her right ear. She went to the doctor, but he couldn't explain it. There were no insects in her ear canal as she feared. It wasn't tinnitus. The doctor had no diagnosis.
+
+Then came the UFO sightings, weird glowing orbs hovering over the house. Then one evening, there was a ship overhead. Julia saw it through the skylight above her bed. Next thing she knew, she was paralyzed. A short time later, she fell asleep.
+
+In the morning, she told her boyfriend. She could no longer live in denial. The memories of her childhood experiences were flooding back. The excruciating tones in her right ear were becoming unbearable. UFOs were hovering over their house. She finally found the reason for her problems. It was aliens. They had visited her since she was a girl. Now they were back, And she believed the source of the tones in her ear was probably an alien implant.
+
+Her husband was shocked, but he was also very supportive. He believed her, but had no idea how to help her. Deeply in love, they got married.
+
+Julia examined her childhood. She remembered seeing colorful orbs as a little girl. She recalled the hundreds of times her bedroom would fill with light and scary shadowy figures would materialize around her. She remembered a dramatic UFO sighting at age ten of a giant flying saucer. Julia could no longer deny that she was having contact with extraterrestrials.
+
+Then one evening, she woke up to hear a weird musical sound reverberating through the house. She wandered around, trying to locate the source. Then she realized, it was inside her head! Next thing she knew, Julia found herself being pulled onboard a craft. She saw that she was laying on a table in a small, round room, surrounded by short, thin, gray-skinned beings with large bald heads and big dark eyes. 
+
+They handed her a baby and asked her to hold it. It looked just like a gray alien. Julia was shocked. And looking outside the craft, she saw the darkness of space, and far below her, the planet Earth.
+
+Next thing she knew, it was morning, and she was back in bed. Looking at her stomach, she saw three bleeding puncture wounds. Both Julia and her husband were shocked and traumatized. And they became even more shocked when they discovered that Julia was pregnant.
+
+From this point, events escalated. Julia kept waking up to find herself unable to move. One evening, her husband woke up to see a gray alien entering their bedroom. Shortly later, Julia had a miscarriage. She was secretly relieved. The pregnancy had not felt normal, and she was certain that it had something to do with the night she was taken onboard a craft.
+
+At that point, her experiences ended. Or so she thought. They fled California, and moved to the east coast. They had a baby boy, and became pregnant with their second child. Then, one morning, Julia decided to reach out mentally to contact the gray alien baby she had held in her arms years ago. To her shock, she made instant contact. In her mind, she saw a gray. He introduced himself and said his name was Sen and that he was made up of her DNA. Then began an hours-long conversation in which Julia learned all the answers about everything that had happened to her throughout her life.
+
+This video tells the story of Julia's encounters, and what she learned from Sen about her own encounters and the alien agenda on our planet. If you'd like to explore more, Julia's story is presented in my book, "Wondrous: 25 True UFO Encounters." Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/UKieIL7oqME" target="_blank" rel="noopener noreferrer">EPISODE #106. 
 STOP! UFO! DON’T SHOOT!</a></h3>
 <h5>LINK: https://youtu.be/UKieIL7oqME</h5>                                                             <h5>April 15, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>9,060 views  Apr 15, 2022</h6>
+It is sometimes human nature to shoot first and ask questions later. This concept is perfectly illustrated with UFO encounters. In fact, there are dozens of cases on record involving shoot-outs between humans and UFOs and aliens. 
 
+This video presents nearly two dozen cases in which people have shot at UFOs and extraterrestrials. Cases like these reach all the way back to the 1940s, the beginning of the Modern Age of UFOs, and continue up to the present day. Police officers, security guards, military personnel, hunters, ranchers and many others have all shot at UFOs. 
+
+What happens when someone shoots at a UFO? Does it affect the UFO? Will the ETs react by defending themselves? The cases here show exactly what happens. And the results might surprise you.
+
+If you'd like to explore more about these cases, check out my book, "Not from Here: Volume One."
+https://www.amazon.com/dp/B01A2LCJJQ/...
+How this content was made
+Auto-dubbed
+Audio tracks for some languages were automatically generated. Learn more
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/5IntqwWRrD0" target="_blank" rel="noopener noreferrer">EPISODE #105. 
 THE CHATWORTH UFO EPIDEMIC</a>.</h3>
 <h5>LINK: https://youtu.be/5IntqwWRrD0</h5>                                                             <h5>April 8, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>6,246 views  Apr 8, 2022</h6>
+On the evening of December 26, 1988, Teri Smith (a physical therapist) went to sleep with her boyfriend Brian in a bedroom in a large condominium complex located in Chatsworth, California. At some point in the middle of the night, Teri woke to a strange thrumming noise and the feeling that somebody was in the room. She found herself unable to move or speak. As she struggled against the strange force, she felt four prong-like "things" grabbing her ankle, causing pain. Terrified, she finally managed to open her eyes and was confronted by a baffling sight.
 
+At the foot of her bed was a large glowing misty-like entity. As she sat up, this entity quickly darted out through the closed window of the bedroom. Looking outside, Teri was shocked to see a huge UFO landed in the alley behind the condominium. The strange figure entered into the landed object, which promptly took off straight up. Only then did Teri's boyfriend Brian finally wake up. He hadn't seen anything. Neither had three other adults and a child who were also in the condo. But Teri knew what she had experienced. It wasn't a dream.
+
+The next day, the entire experience had completely left her mind. It was only while she was at her place of employment when she felt a strong pain in her ankle and a soreness in her neck that the events of the previous night flooded back into her mind.
+
+After work, Teri called her best friend, Traci Stoor, and told her what happened. Traci was shocked. Traci hadn't told Teri,  but Tracy had been having these kinds of experiences for many years. Now it seemed that they had spread to her friend Teri. And not only that, on the same night of Teri's encounter, Traci's boyfriend, George, had also had an encounter, and it was identical to Teri's down to the tiniest detail! This remarkable turn of events was too strange to be a coincidence, and it provided Teri with confirmation that her own experience was absolutely real.
+
+Meanwhile, attention turned to Traci, who confirmed both Teri's and George's encounters, and also had her own encounters. Traci revealed that she had experienced a face-to-face visitation with an alien entity in a location that one would never expect.
+
+This video presents the story of a small group of friends, and how Traci's UFO encounters spread like a contagion among her two best friends. It reveals many of the standard patterns of UFO contact, and shows how encounters can happen in the least likely locations.
+
+The full story of "The Chatsworth UFO Epidemic" is presented in my book, "One in Forty." Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/rPO374q5Z6g" target="_blank" rel="noopener noreferrer">EPISODE #104. 
 ALIENS TOOK OUR BABY</a>.</h3>
 <h5>LINK: https://youtu.be/rPO374q5Z6g</h5>                                                             <h5>April 1, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>4,937 views  Apr 1, 2022</h6>
+In January 2006, a young couple, Charles and Maria (pseudonyms) moved into their new home on the east coast of Canada. They were quite busy with moving in, repairing the house, starting a new business and dealing with red-tape from the Canadian government about insurance and other issues, when they became pregnant. While they had been hoping to start a family, they wanted to settle in first. Still, it was good news and quite exciting for them both.
 
+They went to the doctor, verified the pregnancy and hired a midwife. They informed both their families of the happy news, and transformed one of the rooms in their home into a nursery for the baby.
+
+The pregnancy proceeded smoothly. They visited the doctor and midwife regularly. At around three or four months, both Maria and Charles felt the baby kicking and squirming. Her belly grew larger and larger. Thankfully, she only suffered a minor case of morning sickness.
+
+Then in July 2006, about seven months into the pregnancy, something strange happened. They were driving to their friends' house to attend a dinner party, and somehow became lost and disoriented. To their shock, they arrived at their destination far sooner than they should have. But unable to explain it, they just ignored it and moved on with their lives.
+
+Other than the baby moving into a breech position, the pregnancy was still going fine. Their midwife prescribed exercises to help encourage the baby to move into the proper position for birth.
+
+Then, two weeks later, on August 2, 2006 (at seven and a half months pregnancy), they went to sleep and awoke to a violent electrical storm over their house. The bolts of lightning were massive and quite unusual, traveling horizontally across their backyard. Frightened for their safety, Charles jumped up and closed the window. The next thing they knew, it was morning. That was weird; neither could understand how they fell asleep so quickly.
+
+Both Charles and especially Maria felt a bit dazed and groggy. Maria felt almost as though she had been anesthetized. And looking down at her belly, she was shocked to see that it had shrunk in size. Not only that, she no longer felt pregnant. She told her husband, who said that perhaps the baby had moved away from a breech position. Maria hoped that was the case, but she didn't think so. She also noticed three strange puncture wounds in a triangular position on the arch of her foot.
+
+Concerned, they went to see their midwife. To their dismay, the midwife was unable to detect the baby's heartbeat and urged them to visit their doctor immediately, which they did. 
+
+The doctor ran some tests and then told them the devastating news: Maria was no longer pregnant. Charles and Maria were shocked and began crying. There was no explanation. She had not had any problems. There was no miscarriage. Blood tests had confirmed the pregnancy. They both had heard the heartbeat numerous times. Not only that, they felt the baby kicking. Still, the doctor told them that she was not pregnant, and that perhaps there had been a mis-diagnosis. Neither Charles nor Maria believed this to be the case.
+
+Thus began a search for answers, but there were none. The only explanation that they could find was the "missing fetus syndrome." They learned that women who had experienced UFO encounters sometimes lost their babies under mysterious circumstances. Could this be what happened to them?
+
+Examining their past, they found several clues. Charles had seen UFOs, and so had his father. Maria reported dreaming about "light beings" and on a few occasions had actually seen them in her bedroom. Then there was that weird incident on the way to their friends' house. The problem was, most of the cases they found occurred at three or four months. They were seven and a half months pregnant!
+
+This video presents the story and Charles and Maria and their experience with the missing fetus syndrome. While they can't prove that aliens took their baby, neither of them can find any other explanation. It's an important case that illustrates one of the ET agendas involving human reproduction. 
+
+If you would like to explore more about this case and others, check out my book, "Wondrous: 25 True UFO Encounters." Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/T-vTvMowC5I" target="_blank" rel="noopener noreferrer">EPISODE #103. 
 THE MUDDY MAN</a>.</h3>
 <h5>LINK: https://youtu.be/T-vTvMowC5I</h5>                                                             <h5>March 25, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>8,224 views  Mar 25, 2022</h6>
+In 1963, the Sanz family moved into their new home in Arleta, California. The two daughters, Karen (age 6) and Susan (age 2) shared a room. One evening, Karen awoke to an incredible shock: a strange boogie-man-like figure emerged from the closet, floated across the room and went to her little sister's crib. She watched in fear as the short, big-eyed creature poked its hand through the bars of the crib. Fearing that Susan was going to be taken away, Karen tried to get up. Instead, she found herself falling asleep. That was the first visit from the muddy man. But it wasn't the last. 
 
+Soon the muddy man returned. A week or two later, Karen woke up, and watched again as this same creature appeared and went directly to Susan's crib. It looked at Karen, but once more remained by Susan's crib. Despite trying to stay awake, Karen fell asleep. When it happened a third time a week later, Karen told her parents. "You're just having a nightmare," they told her.
+
+But Karen knew it wasn't a nightmare. She was awake. And it kept happening. Week after week, month after month, this muddy man kept appearing, always going to Susan's crib. No matter how hard she tried, Karen could not stay awake. Unable to convince her parents, Karen had nobody to talk to about it. 
+
+Years passed, but the visits continued, soon mounting into the hundreds. Always, the weird creature emerged from the closet area, and went directly to Susan. Even when they re-arranged the positions of the beds, it was always the same. The muddy man seemed only interested in Susan.
+
+Unknown to Karen, Susan had also begun to see the muddy man. She was now old enough to realize that something was wrong, and that whoever or whatever this figure was, it wasn't human. It was short, bald, with a huge head and large dark, wraparound eyes. After several such visits, Susan (like Karen had) told her parents about what was happening. Again, her parents assumed it was a nightmare.
+
+One time, Susan saw the figure appear in the closet holding a strange black box. And standing next to the figure was Susan's mother. Except it wasn't her mother. Instead, Susan was convinced it was something else, a disguise. Like Karen, Susan was never able to stay awake.
+
+More weird events occurred. Susan would sometimes hear her name being called in her head, over and over, "Susan! Susan! Susan!" Another time, the family went to visit Zuma Beach. Susan was in the water when she became disoriented and felt like she was being dragged away. There was a strange unexplained shift, and she found herself in a different location. Looking back in hindsight, she realizes this was a classic case of missing time.
+
+At the time, neither Karen nor Susan had ever heard of aliens or extraterrestrials. Neither of them had ever seen a UFO, so they had no idea how to interpret what was happening to them. 
+
+Then, in 1969, after six years, the visitations abruptly ended. Things began to return back to normal. Susan, however, was left with anxiety. Certain big-eyed cartoon characters sent chills down her spine. She began dreaming about UFOs hovering over her house.
+
+But it wasn't until 1988, when Karen and Susan (now adults) returned home for Thanksgiving that they reminisced about their childhood and began to connect to the dots. Susan told her sister that she used to have weird waking nightmares about a creature that would emerge from the closet. "The Muddy Man!" Karen said. "I saw it too!" Only then did they realize that they had been seeing the same thing. And when images of gray aliens began to appear on television, they finally had their answer about what the creature was. It was a gray alien.
+
+Susan was shocked, and reading about UFOs, she was amazed to see how closely their experiences matched those of other people. The only thing was, they had never seen a UFO. But that was about to change. Just a few years later, Susan's five-year-old daughter reported seeing a "little boy" in her bedroom. That was when the unexplained nosebleeds began. And weird scoop marks on their bodies.
+
+In 1991, Karen went back home to live with her parents. To her shock, the muddy man came for another visit.
+
+One year later, in 1992, Susan woke up one morning to see a UFO landing in her backyard. Several gray aliens emerged. They were angry. Susan had agreed to go on television in a few days to talk about her encounters. The ETs made it clear, they didn't want her to go public. Susan cancelled her TV appearance.
+
+But soon the UFOs were back, and this time Susan's husband Hector was a witness. This video presents the true story of a long and complex series of UFO contacts that changed the lives of two sisters forever. It reveals many of the patterns of UFO contact.
+
+To learn more about this case, check out my book "One in Forty: The UFO Epidemic. Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/zyM70NrqMtI" target="_blank" rel="noopener noreferrer">EPISODE #102. 
 THE ROBINSON FAMILY UFO SIEGE</a>.</h3>
 <h5>LINK: https://youtu.be/zyM70NrqMtI</h5>                                                             <h5>March 18, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>63,604 views  Mar 18, 2022</h6>
+In 1975, the Robinson Family (pseudonym) left their home in the San Fernando Valley in southern California to spend the weekend in a cabin located in Cedar Pines, in the remote wilderness of the San Bernardino National Forest. Little did they know, this weekend vacation would mark the beginning of a series of UFO encounters that would involve their entire family. 
 
+That evening, the mother, Diane Robinson, looked out the window of the cabin and saw a large round object covered with white lights, hovering and darting around before quickly zipping off. Meanwhile, in the lower cabin, her two young daughters (Jenny and Kelly) and their cousin, also observed the object. All the witnesses were deeply impressed that they had seen a genuine UFO. But it was just a simple sighting, and they thought that would be the end of it. But it was just the beginning.
+
+Years later, in 1982, Kelly Robinson (now a teenager), traveled south to the small town of Julian to spend a few weeks at a church camp located in the remote Volcan Mountains. Laying outside one evening watching the stars, Kelly and her friends were amazed to see a star-like object flitting across the sky. It moved super-fast and at acute angles, making it obvious that it could not be a plane, helicopter, balloon, shooting star, satellite or any other conventional object. It was a UFO. After watching this object dance across the sky, Kelly and her friends became frightened and retreated inside. None of them talked about the sighting.
+
+Over the next few years, Kelly returned to the same church camp in Julian, and on at least two other occasions, witnessed more UFOs. One time they watched an object for over an hour. It became an interesting and fun activity to look for UFOs, but it also made Kelly slightly nervous.
+
+Events soon began to escalate. Back at the Robinson family home (located in Reseda, California,) Kelly's older sister, Jenny, was driving outside with her friends when they saw a strange unidentified flying object flitting around in the night sky. Again it was a star-like object, quite high in altitude, but obviously not a plane. And when Jenny saw it again, she began to wonder, why were they seeing so many UFOs?
+
+Soon they would have their answer. In October 1987, Kelly (now age 19,) woke up in her bedroom to find herself surrounded by several gray aliens. "Do not be afraid," they said. "Come with us."
+
+Kelly was consumed with fear, and protested, explaining that she had a family, a job and bills to pay. The next thing she knew, Kelly found herself inside a small, rounded room with gray walls, laid out on a table. Small figures with large dark eyes, bald heads and grayish skin surrounded her, and told her that they needed to cut her arm. They then told her they needed to do an operation on her brain, and that Kelly would not remember any of this.
+
+"No," Kelly protested. "I will remember!" And she did. When she woke up the next morning, she immediately looked at her arm and saw a thin, red scar where she had been cut by the grays.
+
+That was her first encounter, but two weeks later, the grays came back again. This began a series of encounters. During one such event, Kelly was able to converse with the ETs, and they provided her with several predictions about her personal life.
+
+More strange events began to occur, including a series of weird poltergeist activity. 
+
+Meanwhile, Kelly's mother, Diane, woke up to find a strange needle-like mark on her arm. And following one of Kelly's encounters, Diane had a very strange "dream," that she had been taken onboard a UFO and shown weird-looking babies. A human-looking figure entreated Diane to hold and nurture the babies, saying, "they have everything, but they need love."
+
+This video presents the true story of the Robinson family's series of UFO encounters. What began with a simple sighting eventually escalated into a full-blown series of close encounters and onboard UFO experiences. This case reveals one of the main gray agendas to produce hybrid babies. It's a multiple witness case, and shows the patterns that often appear in many other cases of extraterrestrial contact.
+
+This amazing case was first presented in my book, "One in Forty: The UFO Epidemic," along with many other cases of UFO contact. Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/OK6ld-DOp2Q" target="_blank" rel="noopener noreferrer">EPISODE #101. 
 GONE TO LIVE WITH THE ALIENS</a>.</h3>
 <h5>LINK: https://youtu.be/OK6ld-DOp2Q</h5>                                                             <h5>March 11, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>10,174 views  Mar 11, 2022</h6>
+If you had the opportunity to go live with the aliens, would you accept the invitation? Before you answer, consider what happened to a young man named Paul.
 
+In 1978, a group of a half-dozen young men went to a remote cabin in the deserts of Palm Springs, California to enjoy a weekend getaway from the city. During their stay, one of the men, Paul, (age 21) decided to take a late night walk alone through the wilderness. Hours passed and back at the cabin, Paul's friends became worried. Had Paul become lost? Had he hurt himself. They were just getting ready to organize a search party and go look for him when Paul returned to the cabin with an incredible story.
+
+Paul said that during his walk, he saw an unidentified glowing object drop from the sky and land on the desert floor near the base of a cliff. Paul went to investigate and to his amazement, he saw that the object was a flying saucer, a UFO. And walking around the object were several strange figures. 
+
+Paul gathered up his courage and approached the object. Upon arriving at the site, Paul saw that the figures were not human. They were aliens, extraterrestrials. They were about five feet tall, bald, with large dark eyes, grayish skin, and each of them wore a white jumpsuit. They welcomed Paul and explained that they were studying this location. They invited him onboard their craft, which Paul said was all white inside, very clean and sparsely furnished. Then they asked him a question which sent Paul's mind reeling. "Would you like to come with us?" The only thing was, if he said yes, the decision would be permanent. He could not return.
+
+This was the story that Paul told his friends. Some of Paul's friends were skeptical of the story, but others believed him. And then, soon something happened which would leave them no choice.
+
+Paul's story is among the strangest of UFO contact stories, but it is not wholly unique. This video presents the true UFO encounter of Paul, and of two other separate cases involving different men -- all who were apparently invited to live among the ETs. It's something that happens more often than you might think.
+
+Paul's complete story is told in my book, "Onboard UFO Encounters." Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/oreyxXnKeF8" target="_blank" rel="noopener noreferrer">EPISODE #100. 
 AN ALIEN IMPLANT</a>.</h3>
 <h5>LINK: https://youtu.be/oreyxXnKeF8</h5>                                                             <h5>March 4, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>7,001 views  Mar 4, 2022</h6>
+In 2012, Nancy (pseudonym), a single parent from a small town in Indiana, took her 14-year-old son, Anthony, (pseudonym) to the dentist for his annual cleaning, check-up and dental x-rays. Unknown to her, the x-rays showed the presence of a strange unknown object in her son's jaw. They went to the dentist each year, but it wasn't until three years later, in 2015, that they were scheduled for another series of x-rays. On this occasion, the dentist revealed that the x-rays indicated the presence of a metallic FB (foreign body) in her son's jaw, beneath his lower left molar. There was no evidence of any entry wound, and the tooth was healthy, pain-free, and asymptomatic. The dentists were utterly baffled and unable to explain the presence of this mysterious object.
 
+So began Nancy and Anthony's search for answers. The problem was, there were no explanations, except for one. And the explanation was so outlandish that Nancy wasn't sure if she could accept it. Everywhere she looked, the words "alien implant" kept appearing. When Nancy questioned her son about it, he admitted that he had, in fact, had a close encounter with a UFO. He was also having dreams about aliens.
+
+Nancy was amazed. She had always known her son was special. As a very young child, he used to see spirits. As he grew, he began to display many powerful psychic abilities, and would daily experience precognition, clairvoyance and incredible synchronicities. And now there was the UFO sighting. Could this all be connected?
+
+It was shortly before the first x-ray was taken in 2012. Anthony and his friend were walking outside at night when a strange cluster of blue and yellow lights appeared in the sky. The lights dropped down low over their heads and began flashing bright colors. He and his friend were both convinced it was a genuine UFO.  
+
+Nancy now found herself obsessed. She needed to know exactly what was happening with her son. Then, on the evening of May 5, 2017, Nancy had an encounter with gray aliens. She watched as one gray stood by the bedroom door, and two other grays began working Anthony. One of the grays told her telepathically that she did not need to worry about her son. "Do not be afraid," he told her. "Everything is okay. We are not here to hurt you. Everything is going to be okay." 
+
+When morning arrived, Nancy told Anthony what happened, and that she felt a huge sense of relief. Both wondered if his apparent alien implant was still there. They were scheduled to have another set of x-rays in a few weeks, so they were eager to see. 
+
+When they arrived at the dentist's office, he took two x-rays. The first one showed that the mysterious object was still there. But the second x-ray, taken about 30 seconds after the first one, showed that the implant had disappeared. Shocked, the dentist took a third x-ray free of charge. To everyone's amazement, the implant was back! One of the dental technicians was so upset by the mystery, she had to leave the room.
+
+Events were still in progress. Around this time, Nancy began to have recall of her own encounters, reaching back all the way to childhood, when she discovered a mysterious "lump" in her nasal cavity. She also had vivid memories of grays visiting her throughout her life.
+
+Then, in November of 2018, Nancy was taken onboard a UFO. To her amazement, the interior of the UFO was "dressed up" to look very much like a living room, complete with couch, chair, a TV and cheap carpet. But she was sure she was on a craft, especially after a nine-foot-tall praying mantis ET entered and began to perform a procedure on her and someone else who was also onboard the craft.
+
+Nancy had no fear. She feels confident that the ETs mean her no harm. And both she and Anthony have accepted the fact that they are UFO contactees. Still, they prefer to keep this aspect of their lives private and have elected to remain anonymous. They just want to live their lives normally.
+
+Today Nancy and Anthony are moving on with their lives. Anthony is still having daily psychic experiences. But they, like his implant, have become a normal part of his life.
+
+This video presents the true story of Nancy's and Anthony's encounters with aliens. If you would like to explore more about their amazing experiences, and many others, check out my book, "Wondrous: 25 True UFO Encounters." Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Ze_So4bNDKI" target="_blank" rel="noopener noreferrer">EPISODE #099. 
 THE CAT PEOPLE: A TRUE STORY OF UFO CONTACT</a>.</h3>
 <h5>LINK: https://youtu.be/Ze_So4bNDKI</h5>                                                             <h5>February 25, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>15,122 views  Feb 25, 2022</h6>
+In 1956, ten-year-old Robert Hambly (pseudonym) was enjoying an afternoon of ice-skating with a dozen other children in a local park in the small town of Havre, Montana. Looking up, they were amazed to see several silvery spheres scooting across the sky. Robert had never heard about UFOs and had no idea what he was seeing, but he knew it wasn't normal.
 
+Only a few days later, Robert's life changed forever. He awoke in the middle of the night to see a strange figure standing next to his bed. To Robert, the figure looked just like a three-foot-tall humanoid cat. It had a large, bald head, huge dark cat-like eyes, and a thin body. Unable to move, Robert was filled with fear. After a short time, the figure vanished. But for the next several years, Robert was visited over and over again.
+
+Meanwhile, many miles away in Las Vegas, Nevada, a little girl, Melissa Branson, (pseudonym) woke up in her bedroom to see cat-like ETs moving through the wall. She told her parents who said Melissa must have had a nightmare. But Melissa knew better: she had been awake. And when it kept happening, she knew something very strange was happening to her.
+
+Later, as a teen-ager, Melissa saw a UFO near her home, but still didn't connect it to her childhood visitations.
+
+Both Melissa and Robert grew up, and many years later, they met, started dating, fell in love and got married. UFOs and aliens were the farthest thing from their minds. But in 1992, UFOs came roaring back into their lives. They watched the television miniseries "Intruders," and they realized that they both had very similar experiences with cat-like extraterrestrials. They also discovered that there was a history of UFO encounters on both sides of their families. 
+
+Then came a series of more UFO sightings. It wasn't long after the UFO sightings that, one night, the cat-like ETs returned. Frightened and angry, Robert mentally fought with the ETs, vanquishing them from his life forever.
+
+Robert and Melissa's case contains unique and interesting elements that provide some important insights into the nature of the UFO phenomenon. Both feel that they were contacted by the same group of ETs who may have even brought them together. Both experienced telepathic contact with the UFOs. Perhaps most important, Robert was able to end his encounters by ordering the ETs to leave him alone. Their case is an important addition to our understanding of the extraterrestrial presence on our planet.
+
+If you would like to explore more about Robert and Melissa's encounter (and many others) check out my book, "Wondrous: 25 True UFO Encounters." Now available!
+https://www.amazon.com/dp/B0949H5Y8G/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_f5eyfTnnUA" target="_blank" rel="noopener noreferrer">EPISODE #098. 
 A NINE-FOOT-TALL ET</a>.</h3>
@@ -4991,7 +6569,8 @@ THE UFOS OF BILL AND ROSE</a>.</h3>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h3><a href="https://youtu.be/cAQCVEWC3CM" target="_blank" rel="noopener noreferrer">EPISODE #090. THREE HOURS ONBOARD A UFO</a>.</h3>
+<h3><a href="https://youtu.be/cAQCVEWC3CM" target="_blank" rel="noopener noreferrer">EPISODE #090. 
+THREE HOURS ONBOARD A UFO</a>.</h3>
 <h5>LINK: https://youtu.be/cAQCVEWC3CM</h5>                                                             <h5>December 24, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
@@ -5165,8 +6744,7 @@ CONVERSATION WITH AN EXTRATERRESTRIAL WALK-IN</a>.</h3>
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ebTY2NQVLgs" target="_blank" rel="noopener noreferrer">EPISODE #061. 
-UNIDENTIFIED SUBMERSIBLE OBJECTS: 
-FIVE USO CASES WITH HIGH STRANGENESS</a>.</h3>
+UNIDENTIFIED SUBMERSIBLE OBJECTS: FIVE USO CASES WITH HIGH STRANGENESS</a>.</h3>
 <h5>LINK: https://youtu.be/ebTY2NQVLgs</h5>                                                             <h5>May 31, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
@@ -5208,8 +6786,7 @@ TOP TWENTY CASES OF HUMAN LEVITATION PART ONE</a>.</h3>
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/MtDA3NwG-iA" target="_blank" rel="noopener noreferrer">EPISODE #054. 
-BE CAREFUL WHAT YOU WISH FOR: 
-THE PAT BROWN STORY</a>.</h3>
+BE CAREFUL WHAT YOU WISH FOR: THE PAT BROWN STORY</a>.</h3>
 <h5>LINK: https://youtu.be/MtDA3NwG-iA</h5>                                                             <h5>April 11, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
