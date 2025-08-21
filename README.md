@@ -1651,19 +1651,88 @@ SHOCKING EXTRATERRESTRIAL ENCOUNTERS:
 TEN TRUE CASES</a>.</h3>
 <h5>LINK: https://youtu.be/2nA5OYF5fyM</h5>                                                             <h5>November 29, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>31,251 views  Nov 29, 2024</h6>
+It’s one of the most shocking and surprising experiences a person can have: a face-to-face encounter with an extraterrestrial humanoid. It almost always has a profound impact on a witness, forever changing the way they think about the Universe. This video presents ten shocking alien encounters from across the planet, each providing important insights into the nature of extraterrestrial contact.
 
+THE MAN IN THE SPHERE. In 1930, Yakov Tabunshikov was only thirteen when he stepped outside his home near Simferopol, Ukraine and witnessed an amazing sight: coming up behind the roof of his neighbor’s house was a transparent sphere, and inside it was a man in a white jumpsuit. Yakov watched in awe as the man in the sphere floated around the neighborhood and finally moved away. 
+
+THE LITTLE BLUE MAN OF STUDHAM COMMON. On January 28, 1967, a group of young boys were playing outside their school in Studham Common, Bedfordshire, UK. Suddenly a little blue man in a glowing jumpsuit appeared. The boys ran towards him and he vanished in a puff of smoke. He soon reappeared and vanished again three more times, leaving behind an enduring mystery.
+
+THE INDIFFERENT EXTRATERRESTRIALS. Around sunset on August 28, 1968, Juan Gascon del Toro was bicycling through a rural area of Aldaia, Spain when he came upon a landed UFO. Several humanoid figures in divers’ suits stood by it. Juan stopped his bike and stared in shock. Weirdly, the humanoids stared back at him and seemed not to care that they were being observed. Overcome with fear, Juan fled the scene.
+
+THE VERY TALL ALIENS. On the evening of January 19, 1979, Andrea X was driving near Bastia, Italy when his car stalled. Getting outside to check the engine, he noticed two odd-looking figures standing nearby. He paid them no attention until the next day when he was driving in the same area and again his car stalled. The same two figures were there. Looking at them, he saw they were not human. His car would not start until the figures departed.
+
+I NEARLY RAN OVER AN ALIEN. One evening in the Spring of 1980, a family of four was driving to their home in Cassville, Missouri when they saw a flying saucer landed in a field. As they watched it, suddenly a figure appeared in front of the car. It was a gray alien. The father had to swerve the car to avoid hitting it. This turned out to be one of a series of cases of landings and humanoids.
+
+UFO LANDS IN FARMER’S FIELD. On the morning of September 4, 1987 farmers Armando and Rosa were in their beanfield in Balsamo, Brazil when a UFO appeared overhead. Rosa ran in fear, but Armando stayed outside and saw the craft come in for a landing. Then the craft tilted towards him and inside he saw two men in jumpsuits staring back at him. They had dark eyes, dark hair and looked like normal humans. Just then, his son arrived and the craft flew away.
+
+THE TINY FLOATING MAN. One night in August 1991, El Vasco Landetcheverry and his daughter were watching TV in their home in Las Pipinas, Argentina when two bright lights appeared outside their home. Finally, El Vasco went outside to investigate. He walked into a wall of fog, and out of it floated a tiny little man the size of a coke bottle. It floated right up to him, stared at him, then floated back into the fog. The strange lights disappeared.
+
+MEMORIES OF GRAYS. In 2001, “Alex,” (age 5) woke in the bedroom of his home in Norfolk, Virginia to see the room filling with blue light. To his shock, several small gray figures with bald heads and large dark eyes were in his room. This happened several times, and later, as a young man, Alex found himself in telepathic contact with one of the grays who imparted profound spiritual wisdom, changing his life forever.
+
+“STAY CALM…IT’S ALRIGHT.” On the night of February 15, 2015, a woman woke in the bedroom of her home in Vancouver, British Columbia, Canada. She thought she heard her boyfriend coming in, but instead it was an 8-foot-tall skinny being. The witness was scared at first, but then felt a sense of tranquility and love coming from the being. She was surprised by her own reaction of crawling back into bed as the strange creature disappeared.
+
+THE TALE OF AN ALIEN WITH A TAIL. One sunny day in May 2016, Arfon Jones was driving along Tannyoky Road in County Armagh, Northern Ireland when he saw a strange figure standing in the road in front of him. He drove up to it, stopped his car and stared in amazement at a tall creature with a skinny muscular body, a bald head, large dark eyes, and a long tail like a rat. To his relief, the creature ran off into the bushes. But Arfon knew his life would never be the same.
+
+These ten cases show the dazzling variety of humanoids that our visiting our planet. These experiences have been covered up for too long. But now, as the UFO subject goes mainstream, the truth is coming out. All humanity faces the fact that we are not alone in this universe.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/D83pblWXPt4">EPISODE #244. 
 WEIRD! WEIRD! WEIRD! TEN TRULY STRANGE UFO ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/D83pblWXPt4</h5>                                                             <h5>November 22, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>36,426 views  Nov 22, 2024</h6>
+UFO encounters are known for high strangeness. These eleven close encounters of the second kind all involve cases which affected the environment or the witnesses, in very unusual ways. These cases come from all over the world, and show how truly bizarre a close encounter can be. It appears that high strangeness might be an intentional feature which encourages witnesses to consider new paradigms and explore new ways of thinking.
 
+MAY CAUSE UNCONTROLLABLE MOVEMENTS. Little is known about this case, which occurred on November 10, 1957 to a man from Madison, Ohio. While watching a low altitude UFO, he experienced uncontrollable movement of his hand, which would fly up of its own accord to his face. Afterwards, he suffered from eye irritation.
+
+THE UFO ZONE OF SILENCE. One day in the Summer of 1965, “Susan” and a friend were playing badminton at RAF Chicksands, a satellite communications base in Bedfordshire, UK, when both girls realized they had become completely deaf. Looking up, they saw a low-flying UFO. Others came outside to view it and experienced the total silence. Seven other military bases were visited that day.
+
+KNOCKED DOWN BY A UFO. On the night of November 1, 1966, Mrs. Tibbetts was in her Newfield, New Hampshire home when her son Dale ran inside to report a UFO hovering outside. Looking out the window, Mrs. Tibbetts saw a huge craft just above her rooftop. Seconds later, it struck her with a beam of light, knocking her down and causing persistent eye irritation.
+
+ROCK-DROPPING UFO. On the evening of December 13, 1973, Patrick Thrush (16) was driving to a friend’s home in Bradenton, Florida when he saw what he thought was a plane crashing. Pulling over, he saw it was a silver craft sending down a beam of light into the river. As he snapped two photos, it zoomed at him and dropped three small stones, one of which hit his car.
+
+UFO MAKES WAVES. On the night of March 29, 1974, a couple were on the beach at Lome, in Togo, Africa when a strange craft zoomed in from the ocean. As it hovered above the water, it created a depression on the surface and sent huge waves onto the beach. Then the couple was struck by a hot beam of light from the UFO which paralyzed them. Afterwards, the man experienced vertigo, deafness and fainting.
+
+UFO LANDS AT TOBACCO FARM. On July 6, 1975, tobacco farmer Joe Borda saw silver dome-shaped UFO sitting in the field of his farm in Mount Pleasant, Ontario, Canada. Strangely, he ignored it and forgot about it. But two days later, going to where it had landed, he found a large circle of crushed and burned plants, and two weird oily deposits. Later, strange voices and other high strangeness events would occur.
+
+TRANSFORMED BY A UFO. On the evening of October 1, 1977, Martin Rodriguez was playing with friends near their homes in Tordesillas, Spain when he came upon a landed UFO. Stepping towards it, he was struck by a beam of light. Upon awakening, he suffered from vomiting, dizziness, vision problems, and fainting. He was diagnosed with hydrocephaly, and had many surgeries. He also experienced a mysterious boost in his intelligence.
+
+THE UFO THAT OPENED THE WINDOW. On April 12, 1979, at the tail-end of a UFO wave, a family was driving to their home in Brockton, Massachusetts when a UFO appeared overhead. Suddenly all the windows of their car started opening and closing. The UFO followed them home, continuing its window shenanigans. As the father and son exited the car, both were struck by a beam of light from the craft.
+
+“A UFO SAVED MY LIFE.” As a little girl living on a farm in rural Canton, Ohio, Julie Riggs had a close-up UFO sighting that left her with psychic gifts and a strong connection to the ETs. Later in life, around 1980, she was harassed and then chased in her car by two strangers. As she sped to get away, a UFO appeared and led her off the highway, just in time to avoid hitting an abandoned vehicle on the road.
+
+UFO BEAMS FOUR BOYS. One night in the early 1980s, as four young boys from rural White Horse, Yukon Territory, Canada went for a walk in the woods, they were confronted by a large craft. It moved towards them, hovered overhead, and sent down a beam of light directly in their group. The boys flung themselves to the ground and the craft moved off. The main witness reports that the encounter changed his life forever.
+
+A MINIATURE UFO. One evening in October 2016, a 73-year-old man was walking through a golf course in Worthing, UK when he came upon a shiny silver cylinder about the size of a soda can. He tried to pick it up, but was unable. As he nudged it with his foot, it took off, throwing him back with a strange force. It zipped away, leaving no trace behind.
+
+These high strangeness cases make it clear that there is still much we don’t understand about UFOs and these mysterious visitors to our planet. They do make one thing very clear: we are being visited by something not from this planet.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/YUbVSNSIu40">EPISODE #243. 
 UFOS IN YOUR HOMETOWN: EPISODE SIX</a>.</h3>
 <h5>LINK: https://youtu.be/YUbVSNSIu40</h5>                                                             <h5>November 15, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>24,011 views  Nov 15, 2024</h6>
+The challenge continues! Name any town or city, and the chances are almost 100% that a UFO encounter has occurred there. In early 2024, I put out this challenge. So far, there have been cases in every single location. Episode six presents ten new locations, each with a history of encounters. These locations include Benson, Arizona; Greensboro, North Carolina; Edwardsburg, Michigan; Bedfordshire, UK; Chicoutimi, Canada; Dallas-Fort Worth, Texas; Asheville, North Carolina; Skagway/Juneau, Alaska and Bradenton, Florida. Sightings, landings, humanoids, and onboard experiences, many supported by evidence such as photos, radar-returns, landing traces, physiological effects, animal reactions, electromagnetic disturbances, and more! The truth can no longer be denied: UFOs are real!
 
+BENSON, AZ. In 1952, flight commander Chick Logan and many others were at Marana Airbase when a UFO appeared overhead. Chick took off in his plane to intercept the object. Although it was too high to reach, he did verify that it was not a balloon. Four years later in 1956, a fleet of a dozen objects move over Benson, alerting the Ground Observers Corp. In 2022, a Benson resident captured an anomalous light on an automatic camera outside his home.
+
+GREENSBORO, NC. In May 1930, Joseph Rankin and his wife were shocked when a UFO landed in the backyard. Even more shocking, they saw a humanoid inside. In 1946, two solders had a closeup observations of three disc-shaped objects. More sightings occurred in 1952, 1955, 1963 and 1966. That same year, teenager David Oldham was taken onboard a craft and examined by gray-type ETs. The sightings continued, including several photographic cases.
+
+EDWARDSBURG, MI. This small town produced a few dramatic case, including three events in 2008 alone, each involving solid objects moving in anomalous ways. In one case, a gentleman described a triangular craft which swooped mere feet above his car. In 2022, a man saw what he thought was a shooting star, until it made a right turn and zipped up and away.
+
+BEDFORDSHIRE, UK. In 1956, shopkeeper John Whitworth was visited by an unusual-looking gentleman who gave him directions to a UFO sighting, beginning a strange adventure that almost led to direct contact. One year later, pilot John Jordan had two close-up sightings in a row. In 1962, two young sisters watched a UFO hover over their backyard, and inside they saw two humanoids. Many other cases, including an entire family who experienced missing time.
+
+CHICOUTIMI, QUEBEC, CANADA. In April 1968, Mrs. Tremblay saw a UFO outside her home, and minutes later, saw a short humanoid. In 1970, Mrs. Desneige described a UFO which hovered directly above her neighbor’s home. In 2013, another witness saw a strange cylindrical object moving overhead at high speed.
+
+DALLAS-FORT WORTH, TX. In 1947, a woman saw a UFO with occupants who stopped their craft to wave at her. In 1958, a young girl said a gray-type ET stared at her from her bedroom window. In 1972, a family in Dallas saw a 30-foot-wide UFO being chased by jets. In 1974, Dallas-Fort Worth Airport experienced a wave of sightings. More cases, including an onboard experience, an apparent dog-man, and possible ETs walking among us!
+
+ASHEVILLE, NC. In 1947, a sighting over a park in Asheville kicked off the modern age of UFOs. Dramatic sightings continued in 1957, 1974, 1977, 1987 and 1989. These are not just anomalous lights, but solid craft seen by multiple witnesses. In 2013, Reverend Michael Carter was visited by a human-looking ET who cured him of a severe blood-clot in his leg. So many cases!
+
+SKAGWAY/JUNEAU, AK. Way back in 1916, numerous people saw a UFO from the decks of the Steamer, Georgia. In 1969, two other sailors found their boat, The Teel, disabled by a low flying craft. A sighting in 1973 impressed several witnesses, and in 1980 the small town of Kate experienced a dramatic UFO display. In 1996, a Skagway woman had a closeup brush with a UFO that resulted in missing time.
+
+BRADENTON, FL. Several military personnel experienced dramatic close-up encounters in 1949 and 1955. Very unusual sightings were reported in 1957 and 1959. In 1971, a police officer reported a face-to-face encounter with a humanoid asking about the wars on our planet. More cases in 2002, 2003 and 2006 make is clear that Bradenton is of interest to the ETs.
+
+These ten locations, provide by you the viewers, show once again that UFOs are ubiquitous, and that ETs are conducting a vigorous publicity campaign to announce their presence. With so many cases and so much evidence, the time for skepticism is over. The truth can no longer be hidden, distorted, ignored, or denied. UFOs are real and we are being visited by extraterrestrials.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/1qK7p8bUn3I">EPISODE #242. 
 MEETING THE EXTRATERRESTRIALS: TEN TRUE CASES</a>.</h3>
@@ -1904,138 +1973,600 @@ These six cases show what it’s like to be taken onboard a craft and examined b
 TEN SHOCKING TRUE CASES</a>.</h3>
 <h5>LINK: https://youtu.be/QcfhUnuJNbE</h5>                                                             <h5>September 6, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>65,450 views  Sep 6, 2024</h6>
+Seeing a UFO is an incredible experience. But far more shocking is having a very close encounter with a humanoid extraterrestrial. When someone has very close face-to-face contact, there is no chance of misperception. It is an undeniable experience that instantly changes a person’s worldview. This video presents ten shocking cases of people who have had direct contact with UFO occupants. The cases span from 1923 to 2012, come from across the planet, and involve a wide variety of humanoids. These cases are supported by multiple eyewitness testimonies, radar returns, photographs, landing traces and more.
 
+UFO LANDS FOR REPAIRS. One summer morning in June 1923, ten-year-old Norman Wilson Massie went outside his home in Mount Erie, Illinois to check on the family’s horses. To his shock, he came upon a landed UFO with five little blond men, each about four feet tall. They rushed back and forth, apparently repairing their craft. After five minutes, the craft flew away. Norman told his family, but nobody else for many years.
+
+MANY SURPRISES AWAIT TERRESTRIALS. It was a summer morning in 1945 when nine-year-old I. Chebotaryov went fishing along the shores of Taganrog Bay in the Sea of Azov, Russia. He was about to return home when a silver craft dropped from the sky and landed in the water just off shore. A silver-suited humanoid exited and approached the witness, saying that he came from another planet, and invited the witness to come onboard.
+
+HUMANOIDS VISIT A NAVY SHIP. In 1952, the USS Franklin Delano Roosevelt aircraft carrier had the first of what would be ten separate visitations by UFOs. This first encounter involved a metallic disk, as did a second and third encounter in 1956. In 1958, Navy officer Chester Grusinski was on deck when another craft appeared, and through the portholes he and many others saw alien figures looking down at them. The event was covered up as were the previous and future encounters.
+
+THE DOCTOR AND THE ALIEN. On August 26, 1966, Dr. Juan Jose Rivera was driving his motorbike near Punta Carnero, Spain when he saw a monkey-like figure wearing a jumpsuit float across the road ahead of him. He chased it down a hill to a landed flying saucer. He snapped one quick photograph before fleeing the scene in panic.
+
+THE HUMANOIDS OUTSIDE THE WINDOW. At 10pm on January 29, 1967, Enid Campbell looked out the window of her home in Knox City, Missouri to see a white spherical-shaped object approach her home and hover in her backyard. Looking inside, she saw two beings wearing “shiny silvery wetsuits.” She alerted her two children who also saw the craft. Afterward, they found burned vegetation in the backyard.
+
+UFO AND HUMANOIDS LAND BY A TRAIN. On April 20, 1967, several railway employees riding past the Casalegno Station in Argentina were shocked to see a strange craft with multicolored lights and tiny three-foot-tall humanoid alongside the railroad tracks. They slowed down the train and watched in shock as these beings moved hastily around the craft. They discovered that an earlier train had also seen the UFO.
+
+WE DID NOT LOOK BACK. At 3am on September 30, 1968, two young men were walking along a rural road near Roncenay, France when a glowing red UFO flew across the sky ahead of them. Coming around a corner, they saw that the craft had landed and two little humanoids were floating around it, shining flashlights on the ground. Then one of the humanoids approached to within 15 feet. The men fled in fear.
+
+ROCK COLLECTING ALIENS. Around dusk one evening in 1976, nine-year-old Hercilio da Costa was walking to her home in rural San Goncalo do Amarante, Brazil when she walked right up to a landed UFO. Seven human-looking figures in dark jumpsuits stood around it. One was collecting small stones and putting them in a sac. When one of the beings spoke, Hercilio fled in fear. Later, landing traces were found.
+
+THE FLOATING HUMANOID. At 1:30 am on December 30, 1979, Sebastiano Pannitteri woke up in his home in Sicily, Italy to his dog barking and his bedroom filling with light. Rushing to the window, he was awestruck to see a short humanoid dressed in a skin-tight white jumpsuit, floating in his yard. It remained there for five minutes before gliding away and disappearing behind a wall.
+
+TWO ALIENS ABOVE SECOND STREET. On the night of May 25, 2012, six people in two cars were traveling west on Highway 7 in Clinton, Missouri when their journey was interrupted by an unusual sight: a large craft with glowing portholes was hovering just above 2nd Street. The witnesses were frightened to see two skinny humanoids looking out the window. More sightings soon followed.
+
+So many cases of humanoid encounters! These ten cases may be shocking, but they are just the tip of the iceberg. These kinds of events are much more common than most people know. And they have lots to tell us about what’s out there beyond Earth. Are we ready to learn?
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/cLVWMVkyxJY">EPISODE #232. VISITORS TO EARTH: 
 TEN INCREDIBLE HUMANOID ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/cLVWMVkyxJY</h5>                                                             <h5>August 30, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
+48,843 views  Aug 30, 2024
+Despite what skeptics may claim, or any denials from our own govts, the thousands of firsthand cases of close encounters with humanoids speak for themselves: we are being visited by extraterrestrials. These visitors to Earth have been coming for a very long time. This video presents ten incredible humanoid encounters from many locations including France, Italy, Poland, Spain, Indonesia, Australia, Canada, Argentina, and the United States. Evidence such as landing traces, medical effects, animal reactions, electromagnetic disturbances and radar returns prove that these visitors to Earth are very real indeed.
+
+THE ALIEN IN THE BEAM OF LIGHT. At 6:35 am on April 3, 1948, driver Giuseppe Lanciano waited for the arrival of a train at San Martino, Italy. Suddenly his attention was drawn to a disc-shaped object, glowing orange, which zoomed silently overhead. He was joined by another witness and both watched as a beam came out of the bottom, carrying a short robotic-looking humanoid.
+
+WENDY AND THE ALIENS. Early one morning in June of 1949, Wanda M’s father came running into their home in Dunino, Poland shouting that a strange craft had landed in their yard. He, their neighbors, and Wanda ran outside to see two humanoids in jumpsuits standing next to a large silver-brown, cone-shaped object. The beings spoke a strange language, gestured, and then returned to their craft. It took off, leaving behind landing traces.
+
+ALMOST ABDUCTED. On the night of February 5, 1967, Timothy J. (age 15) was drawn outside his home in Hilliard, Ohio by a weird sound, and the barking of his dog. He was shocked to see a 75-foot-long craft fly by and land in a field. He watched as several figures came out and placed small spheres on the ground. Then Timothy stepped on a twig and the men heard him, came running and tried to pull him onto the craft.
+
+A UFO IN THE BACKYARD. At 8:15 pm on July 20, 1967, Elizabeth Douglas stepped outside her home in Titusville, Florida and saw a 60-foot wide, bell-shaped craft floating silently overhead. Looking through one of the windows, she saw the silhouette of a large-headed, skinny figure looking down at her. She called out her daughter who also saw it. Inside, her son Steven wondered why his TV suddenly malfunctioned.
+
+I KNOW WHAT I SAW. One morning in the summer of 1972, “Patricia,” (age 13,) was sitting in the backseat of the family car as they drove south of Molong, Australia when she saw a saucer-shaped craft sitting alongside the highway. Three 7-foot-tall silver-suited humanoids stood next to it, collecting samples. One looked directly at her as their car drove by.
+
+THE ALIEN AND THE SNOWMOBILER. On the evening of February 26, 1973, Helene R, her brothers and friends were finishing up a day of snowmobiling in the McWatters area of Quebec, Canada, when a brilliant object zoomed overhead. While the others raced off, Helene was left alone. The strange craft returned and apparently landed. Helene then had a very scary encounter with a short humanoid.
+
+THE GIANT HUMANOID. On the night of July 1, 1979, four teenage boys went hunting in the mountains near their homes in Sangonera La Verde, Spain. Suddenly a UFO blocked their way. They watched it for an hour when suddenly a 7-8 foot-tall humanoid wearing shiny tight-fitting clothes began to approach. The boys zoomed away in fear. They returned to town as they and others watched the UFO dart away.
+
+“I AM CERTAIN THAT I SAW AN EXTRATERRESTRIAL CRAFT.” On the night of January 4, 1994, the Noel family of Evreux, France reported their encounter with a black, triangular object. A few hours later, Didier Maury of Bacqueville had a scary encounter with a glowing cone-shaped object and an apparent humanoid. Hours after that, the Lopez family watched a UFO land next to their home and humanoids come out of it. These are only a few of an amazing series of events that occurred on that night and afterward.
+
+THE ET IN THE PALM PLANTATION. One evening in April 2008, a man saw a UFO drop from the sky and into the Palm tree plantation near his home in Bankinang, Indonesia. Hopping on his motorbike to investigate, he was shocked to come upon a 6-foot-tall humanoid with a bald head, pointed ears, a skinny body and long arms dressed only in underwear and standing a short distance away. It quickly vanished.
+
+THE MAGNETIC MAN. On the night of May 21, 2008, Walter Lopez and Omar Ferlatti were in a field near San Carlos, Salta, Argentina when they saw a tiny two-foot-tall humanoid figure wearing strange clothes standing nearby. They tried to get closer but were repelled by some kind of magnetic field. It turned out another person also saw the humanoid, and numerous people in the area were reporting UFOs.
+
+Ten humanoid encounters, each adding to the catalog of thousands of similar cases, each providing more evidence that our planet is being visited by a wide variety of extraterrestrial humanoids.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/h5343qnNLkA">EPISODE #231. UFOS IN YOUR HOMETOWN: 
 EPISODE THREE</a>.</h3>
 <h5>LINK: https://youtu.be/h5343qnNLkA</h5>                                                             <h5>August 23, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>23,209 views  Aug 23, 2024</h6>
+Has every location on our planet been visited by UFOs? The answer appears to be a resounding: yes! I put out a challenge to anyone interested in this subject: name a town or city anywhere on this planet, and I will find a UFO case there. Hundreds of people have responded, and so far, every place I have investigated has a history of UFOs and extraterrestrials. In Part Three of this series, “UFOs in Your Hometown,” we continue the search for UFOs across planet Earth, covering nine different locations, including Ealing, London (UK,); Frankfort, IN; Warrenton, MO; Santa Clarita, CA; Milwaukee, WI; Roseville, CA; Show Low, AZ; Littleton, MA and Bastrop, TX. These cases include the full range of UFO activity: sighting, landings, humanoids, onboard encounters, even a possible UFO crash.
 
+EALING, LONDON, UK. Way back in 1845, numerous people reported seeing a humanoid wearing skintight overalls and a transparent helmet leaping over walls far faster than a human. There’s also the 1978 sighting of a classic flying saucer that the witness felt was meant for him to see. Or the gentleman who saw a boomerang-shaped craft during a lunar eclipse in 2015. And more!
+
+FRANKFORT, INDIANA. Starting in 1953, Frankfort has been the location of constant UFO activity. Sightings continued throughout the 1950s, culminating in a fantastic encounter in 1958 when four UFOs played hide-and-seek with a diesel train for over an hour. In 1977, four people reported a scary encounter where they were followed by a UFO. In 1981, numerous people throughout Frankfort, including police, had amazing encounters, showing once again that UFOs are very interested in Frankfort.
+
+WARRENTON, MISSOURI. An incredible 1969 encounter by a technical illustrator in Warrenton, MO is only one of several amazing cases. Another case involved a couple who had a very close encounter with a craft that hovered right above a highway overpass. In 2019, a couple were shocked to see a UFO cloaked inside a cloud come right over their home. They may have also seen humanoids!
+
+SANTA CLARITA, CALIFORNIA. This town outside of Los Angeles, CA has some very dramatic cases. On July 13, 1979, Ed and Gloria Towers were shocked to see a metallic saucer target their home, hovering only 50 feet overhead. A very similar case happened to another Santa Clarita family in 2015 when a giant boomerang-shaped craft went right over their house. And more!
+
+MILWAUKEE, WISCONSIN. Sightings in this city reach back to 1896 with the famous airship wave. Throughout 1952, numerous city officials reported very dramatic sightings of solid craft darting around in the sky in some cases for hours at a time. More dramatic sightings occurred throughout the 1960s and 1970s. In 1980, an attorney reports that he was taken onboard a craft and met human-looking ETs. Sightings continued up to the present day, including a case of a UFO photograph in 2022.
+
+ROSEVILLE, CALIFORNIA. Several amazing multiple-witness sightings of disc-shaped craft have occurred in this town. There’s also the case of a lady who was taken onboard a craft in 2004. In 2016, a highway patrol officer reported a dramatic encounter with a low-flying triangle. In 2022, a woman was puzzled by two objects hovering outside her home and managed to take two photos!
+
+SHOW LOW, ARIZONA. In the summer of 1988, a woman woke up in her hotel room to see two unusual-looking ETs come through the wall, stand at the foot of her bed, and communicate telepathically with her. Just north of Show Low in the small town of Concho, a woman and her friends saw a UFO drop from the sky. They drove to the location, and came upon what appeared to be the craft stuck in a ravine.
+
+LITTLETON, MASSACHUSETTS. Amazing sightings occurred here, including a 1954 low-level sighting of a Saturn-shaped object, a multi-witness sighting of a classic saucer in 1964, a sighting by two men of an object over a highway involving the strange “Oz Factor,” and a 2015 sighting directly over the local police station.
+
+BASTROP/BERGSTROM AFB, TEXAS. In 1947 two Air Force officers at Bergstrom saw a silver saucer flying at 1,400 mph, overtaking their plane. In 1965, two Bergstrom officer with Top Secret clearances saw a craft with portholes right over the base. They told nobody. In 1980, a newsman and his wife had a dramatic sighting right outside Bastrop. In 1988, a UFO came so close to a Bastrop man that he shot at it with his gun. More dramatic cases continued in 2013 and 2014.
+
+These are just some of the many amazing encounters that have occurred in these nine locations. Firsthand cases reaching back a hundred years up to the present day, multiple witnesses, a wide variety of evidence to support them: the truth can no longer be denied. The cases speak for themselves. We are not alone. Our planet is being visited; apparently every location on our planet! Including your own hometown!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ITBbj6T_iv0">EPISODE #230. ASTOUNDING; 
 TEN TRUE HUMANOID ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/ITBbj6T_iv0</h5>                                                             <h5>August 16, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>43,633 views  Aug 16, 2024</h6>
+Few experiences are as astounding as a direct face-to-face encounter with an extraterrestrial humanoid from another world. And yet, the number of cases is far greater than most people think. They have been reported for well over a hundred years and probably into antiquity. Cases come from all over the world. This video presents ten little known cases, each one adding to our knowledge of ET contact. There are far too many cases to be explained away as hoaxes, hallucinations, or misperceptions.
 
+THE ETS AND THE SAUCER. On the afternoon of May 5, 1954, eight-year-old Arnaldo Ribeiro de Freitas was goat-herding near his home in Fregim, Portugal when an odd sound alerted him to two UFOs hovering nearby. One flew off, but the other remained, and Arnaldo could see two big-headed humanoids sitting inside it. And one was looking right at him! After it departed, it left weird landing traces on the ground.
+
+ANOTHER ALIEN MICHELIN MAN. One afternoon in May of 1960, Professor Miguel Timermans Ceballos was driving his motorcycle near Cadiz, Spain. Looking ahead, he saw a strange humanoid figure which looked very much like the famous Michelin Man. Seconds later, a second figure appeared. Both walked clumsily across the road before disappearing into the brush. Miguel was convinced they were not human.
+
+IT WASN’T ANYTHING HUMAN. Late in the evening of October 23, 1963, Robert W. Smith drove in a rural area of South River, NJ when he saw something odd in the beams of his car headlights: three very short humanoid figures dressed in tight-fitting, silver, one-piece suits. They darted across the road far faster than a human could move. Robert was too frightened to stop. It was an experience he would never forget.
+
+THE FLOATING HUMANOID OF COFICO. On July 2, 1968, numerous residents of Cofico, Argentina observed UFOs and/or humanoids hovering overhead. Three witnesses at one home described a glowing humanoid figure floating in the air. Another witness described a 9-foot-tall robotic figure, also floating in the sky. Another witness in a different home described the same thing. Even policemen witnessed strange activity.
+
+THE JAY-WALKING ALIENS. In early May of 1969, numerous residents in Rockville, Virginia started seeing UFOs darting around overhead. But on the night of May 11, 1969, Mike Luczkowich saw actual humanoids. Driving along Route 622, he saw what he first thought were two deer. Instead, he realized they were four-foot-tall humanoids with giant heads. They crossed the road in front of him, followed by a third one.
+
+THE DUMBBELL ETS. On the night of October 24, 1976, Romeo Lucarelli and his young daughter were driving to their home in Hobling, France when a brilliant light appeared ahead of them. It zoomed towards them and revealed itself to be a dumbbell-shaped object with two humanoid figures inside. To Romeo’s fear, the craft followed them home. His wife ran out just in time to see the UFO dart away.
+
+IT DIDN’T SEEM LIKE A NORMAL PERSON. On the night of January 21, 1977, Juan Pedro Hernandez of Camuy, Puerto Rico was shocked to see an ET craft hovering at low altitude overhead. Inside he saw a skinny figure with a big head and dark eyes looking at him. Suddenly he was struck a beam of light from the UFO. The beam retracted and the UFO departed. Juan followed, but govt agents appeared, blocking his way.
+
+THE UFO GNOME. In late March of 1978, Constantina Imbibos and her husband began seeing UFOs behind their home in Villamare Di Sapri, Italy. After several sightings, on April 25,1978, Constantina saw another UFO, and seconds later, a strange gnome-like humanoid wearing an orange suit and pointed hat. It bounced around like a gnome. Soon more UFOs would be seen, and more gnome-like entities.
+ 
+AN 8-FOOT-TALL GRAY. On the night of July 31, 2018, a military veteran with a Top Secret clearance was driving on State Route 13 just north of Mount Vernon, Ohio when an eight-foot-tall, incredibly thin, hairless humanoid crossed the road in front of him. It had black eyes, a small mouth and four fingers on each hand. It was not human. Truly frightened, the witness decided not to stop.
+
+I SAW SOMETHING I WILL NEVER FORGET. Around 5am on July 16, 2020, Paul Froggatt was bicycling home from work in Warwick, UK when a UFO appeared. He snapped two photos with his camera, but became frightened when the craft seemed to follow him. Moments later he came face-to-face with a 7-foot-tall, praying mantis humanoid. He was so frightened he began to cry. He fled the area, thoroughly traumatized.
+
+As hard as it might be for some people to believe, the growing number of cases involving humanoid encounters make it undeniable that we are being visited by extraterrestrials. Thankfully, as the government UFO coverup collapses, and as more people reveal their encounters, the truth is coming out. ETs are real! And it’s time that all of humanity knows it.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/xdA0e3it6x8">EPISODE #229. BEWILDERED: 
 TEN HUMANOIDS ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/xdA0e3it6x8</h5>                                                             <h5>August 9, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>46,547 views  Aug 9, 2024</h6>
+A close encounter with a UFO, and especially humanoids, challenges a person on multiple levels: physically, emotionally, mentally, and spiritually. Almost without exception witnesses are left stunned, surprised, bewildered. The ten cases presented in this video come from across the world and involve a wide variety of humanoids. They contain a wide variety of evidence. And each case shows how the witnesses are deeply and profoundly affected to a degree that their lives are never the same.
 
+BLACK HOLE ALIENS. On August 26,1974, Jean Marie Bigorne stepped outside his home in Feignies, France and saw a black hole in the gray night sky. As it started to descend, he rushed inside, got his wife, and together they watched it split into two half-circles. The right side disappeared, but the left side suddenly revealed two robotic-looking humanoids. The witnesses became entranced and watched it for 45 minutes until going inside. They never saw it leave.
+
+ALIENS IN THE ANDES. On the evening of February 17, 1981, cattleman Jose Fermin Albornoz was sleeping after protecting a herd of sheep in the Manzano-Amargo area of the Argentinian Andes. A brilliant light and buzzing noise woke him up and he saw a saucer land next to his campsite. As the animals scattered, two strange humanoids appeared and spoke to him in a strange language. Jose fainted in fear.
+
+HUMANOIDS AT THE CAMPGROUND. On evening in 1981, a group of people were camping at Laguna Sofia National Park in Puerto Natales, Chile. One of the campers stepped outside her tent and saw a strange craft drop from the sky and land nearby. As she approached, a door opened and three tall humanoids exited and began taking soil samples. She fled and woke everyone up in time to watch the craft dart away.
+
+THE LIGHT-HEADED ALIEN. On the night of October 9, 1984, doorman Isidoro Ferri was woken up in his bedroom at the Villa La Radicchia in Polcanto, Italy by a brilliant light streaming in through the window. Paralyzed, he saw that the light was coming from the head of a humanoid standing outside. Shortly later, he saw a craft. The light flashed and fluctuated, causing alarming physiological effects. Afterwards, landing traces were found, and researchers found many other witnesses.
+
+THE ALIENS AT SCHOOL. One day in June 1986, “Leif” was parked next to a school in Ytteroya, Norway when he noticed a three-foot-tall figure with a bald head and huge dark eyes approach. It wore a shiny blue jumpsuit. Fifteen feet behind it was a landed UFO. Leif hid behind the truck as the being turned around and re-entered the craft. Two of the figures turned and stared at Leif as the craft rose into the sky and departed.
+
+THE HUNTERS AND THE ALIENS. On the night of June 26, 1987, three men were hunting in the countryside near Badajoz, Spain when a brilliant light appeared in the sky. It zoomed towards them and landed, disgorging two tall, strong-looking figures. The two humanoids approached the hunters, who panicked and fled the scene. Moments later, they saw the craft depart. Later, landing traces were found.
+
+KT & THE GRAYS. One day in May 1992, wildlife researcher K.T. Frankovich was walking her dogs through a lime grove next to her apartment in Miami-Dade, Florida. Suddenly a gray alien appeared. K.T. watched it for several minutes, receiving several telepathic messages before fleeing the scene. A few nights later, two grays appeared outside her apartment with another profound message.
+
+HAVANA HUMANOID. On the morning of November 27, 1995, security guard Samuel Rodolfo Barreras was shocked to see a flying saucer approach and land next to the buildings he was guarding outside of Havana City, Cuba. A door in the craft opened and out stepped a robotic-looking humanoid who approached Samuel (who was now paralyzed.) The being scanned the area for 15 minutes before returning to the craft, which promptly departed.
+
+THE HUMANOID IN THE BATHROOM. Late on the night of June 24, 2001, Mr. G.H. a university professor from Patras, Greece, walked into his kitchen and was confronted by a tall faceless humanoid wearing a shiny blue coverall. It ran into his bathroom and disappeared. For the next few minutes, he chased it around the house, back into the bathroom twice more until it was gone, leaving the witnesses utterly bewildered.
+
+IT APPEARED THREE TIMES. One night in December 2001, a young man was watching TV alone in his family’s home in Tampa, Florida. Hearing an odd crinkling sound outside, he looked and saw a gray ET standing in his backyard. It quickly disappeared. Later, the witness heard the same sound again and saw that the ET had returned to his backyard. Then the gray-skinned humanoid returned a third time.
+
+These ten cases show how incredibly strange a UFO/humanoid encounter can be, and how profoundly it changes a person. Nobody but a firsthand witness can ever know what it’s truly like to have an encounter with a humanoid from a UFO.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_VPPmPzGbO4">EPISODE #228. ANYONE, ANYWHERE, ANYTIME: 
 TEN HUMANOID ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/_VPPmPzGbO4</h5>                                                             <h5>August 2, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>89,340 views  Aug 2, 2024</h6>
+Humanoid encounters are far more numerous than you might think. Cases come from across the world and have been occurring for a very long time. It can happen to anyone, anywhere, anytime! These cases make it clear that we still have much to learn about the Universe we live in. This video presents ten cases of people who have had face-to-face encounters with extraterrestrials of many different kinds.
 
+THE LITTLE MAN IN THE UFO. One night in December 1951, the Coley family of Red Springs, NC were amazed to see a UFO hovering near their home. More amazing, they could see a humanoid figure inside. This was just the beginning. On August 6, 1952, James J. Allen saw a craft land next to his home in nearby Lumberton. A short humanoid figure emerged, quickly returned into the craft which took off. In 1975 a huge wave of sightings occurred, and was observed by dozens of police officers. Along with it came several more humanoid encounters.
+
+THE LITTLE BLACK ALIENS. On the afternoon of October 9, 1957, Marie Yeager sat in her home in Mariaville, NY when a UFO landed in the forest near her home. Moments later, it departed. But the next day it was back, and this time she saw little black humanoids come out of it. She fled her home in fear. But soon she discovered that other people in her area had also seen UFOs.
+
+FIVE SAUCERS AND SIX ALIENS. On the morning of November 18, 1957, tobacco farmers Pedro Zilli and Joao Ermani of Maracaja, Brazil were amazed to see two silver craft landed in the fields next to their farm. As they approached, they saw six tall humanoids dressed in skintight jumpsuits running inside the craft, which promptly took off. Unknown to them, many other people in the area were also seeing UFOs.
+
+SOMETHING WEIRD OVER DENMARK. On November 21, 1957, grocer Hans Haugaard Hansen was driving near Gesten, Denmark when he noticed a strange craft hovering over a nearby turnip field. He stopped his car and was amazed to see two human-looking figures inside a transparent cockpit. The craft quickly took off. He called the police who investigated and learned that other people in the area were also seeing UFOs and humanoids. In fact, these events took place during a huge wave across the entire country which caused concern at the highest levels of government.
+
+I CAN STILL FEAL THE FEAR. One afternoon in June of 1963, an anonymous woman and her 7-year-old son were vacationing on the small island of Storholmen in Sweden. As they stood by the shore, a strange feeling overcame her, and looking out, she saw a silver craft approach. Inside and on top of it, she saw two perfect-looking muscular men dressed in tight jumpsuits. The craft approached so close that she and her son hid in fear. Then it sped away so fast it disappeared from view in seconds. 
+
+ALIEN STREET SWEEPER. On the evening of November 18, 1973, four ladies were driving outside Montreal, Canada, when a UFO began to pace their car. After several miles of being followed, they drove through a weird “pink cloud.” Moments later, they saw a short humanoid figure standing in the middle of the road. Unknown to them, many people in the area were seeing UFOs on the same night.
+
+“DON’T YOU WANT TO COME ONBOARD?” It was a Summer morning in 1974 as “Mrs. N.” took a walk near her home in Oslo, Norway. Suddenly beautiful music began to play, a glowing craft approached and began to follow her. Inside she saw three figures in dark jumpsuits. One of them stood up, smiled, and gestured to her. She had the impression it was inviting her to come onboard. Filled with fear, Mrs. N ran, and the craft followed.
+
+LANDING AT A FRENCH FARM. At 6:30 pm on December 9, 1977, Chanta L of Fonforet, France was amazed to see a glowing craft land outside her farmhouse. Moments later, a 7-foot-tall being floated out of the craft and explored around before returning inside it. Later the craft took off and landed again, leaving strange traces on the ground. At this time, many people in the area were reporting UFOs.
+
+I HEARD A PIERCING SCREAM. One night in March 1978, rancher Monte Brinsmead saw a classic flying saucer with colored lights outside his farm near Lake Sorell, Tasmania. He grabbed his rifle to shoot at it when it took off. He learned that many of his neighbors had been seeing UFOs. Soon numerous events of high strangeness occurred, including an encounter with an apparent humanoid.
+
+THE ALIEN AT THE BEACH. At 9am on February 3, 1994, six witnesses at the beach in Ancona, Passetto, Italy saw a weird humanoid figure wandering among the rock formation known as “Pope’s Chair” along the beach. Suddenly it flew up into the air and off into the distance.
+
+These ten cases show that a UFO and humanoid encounter can happen to anyone, anywhere, anytime. While there are those who remain skeptical, there are too many cases to deny, dismiss or debunk. The accounts speak for themselves. We are being visited by extraterrestrials.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/3v3S97WDd64">EPISODE #227. UFOS IN YOUR HOMETOWN: 
 PART TWO</a>.</h3>
 <h5>LINK: https://youtu.be/3v3S97WDd64</h5>                                                             <h5>July 26, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>30,631 views  Jul 26, 2024</h6>
+Ask and ye shall receive! I recently put out a challenge on my YouTube channel, name any location on Earth, such as your hometown, and I bet I can find a UFO encounter that occurred there! I received more than 150 responses. Challenge accepted! And guess what? I was right! So far, I have been successful in locating UFO cases in every location provided. UFOs are seen everywhere. Pick a location and the chances are it has a long history of UFO encounters. This video is Episode Two of an ongoing series I call “UFOS IN YOUR HOMETOWN.” For this episode, by special request from you, the viewers, I cover the locations: Locust Grove, Oklahoma; McMinnville, Oregon; India (yes, the country!); Berkshire Mountains, Massachusetts; Sacramento, California and Nova Scotia, Canada. The encounters in these locations include sightings, landings, humanoids, and onboard encounters. The evidence supporting these cases includes multiple eyewitness testimonies, photographs, radar-returns, landing traces, animal reactions, physiological effects, electromagnetic disturbances and more. Have UFOs visited your hometown? Likely, the answer is yes!
 
+LOCUST GROVE, OKLAHOMA. This is a very small rural town with a population of less than 1400 people, and yet, there is a UFO case involving multiple sightings of strange orbs along with strange animal reactions.
+
+MCMINNVILLE, OREGON. On May 11, 1950, the town of McMinnville earned international headlines when Paul and Evelyn Trent captured two photographs of a metallic saucer hovering over their farmhouse. Today, the photos are considered among the best on record. But McMinnville has many other cases. In 1957, the Kelchner family viewed a glowing egg-shaped object over their poultry farm for 30 minutes. In 1976, a man called the National UFO reporting Service (NUFORC) to report his sighting of a UFO being chased by jet fighters. In 1991, Susan Wold called the newspapers about her sighting of a solid object in view for 45 minutes. There are more incredible sightings, including a report of a strange humanoid seen by campers at an isolated McMinnville Ranch.
+
+INDIA. With a population well in excess of one billion people, India has countless UFO cases. For this reason, only humanoid cases are presented. In March of 1931, a 14-year-old boy from the Andhra Pradesh area of India says he met a wise old Sage who took him onboard a craft where he was given predictions of future disasters. Other cases include a 1954 landing with humanoids near a beryllium mine; a 1976 encounter between a woman and an eight-foot-tall humanoid; a family’s multiple encounters with a UFO and entities with the appearance of Hindu Gods, and more. In 1985, a girl from Bihar was taken onboard and examined by ETs. In 2001, a group of boys from Ahmedabad reported their encounter with two short pale beings. One amazing account includes a UFO and humanoid encounter by a group of scientists in the Indian Himalayas, involving an actual photograph of the humanoid. And many other cases.
+
+BERKSHIRE MOUNTAINS, MASSACHUSETTS. This area in the western part of the state contains many cities, so in this episode I cover a few famous accounts, including the alleged onboard experience of talk show host, Morton Downey Jr. Another very famous case is that of Thom Reed, who in 1967 along with his family, had a very close encounter. Other sightings occurred in 1973, 1978 and more.
+
+SACRAMENTO, CALIFORNIA. This city contains more than a half million residents, and has a long and rich history of sightings, landings, and humanoids. The earliest occurred in 1896 with the famous airship wave. Classic saucer sightings were made in 1947, 1950, 1952, 1955, 1957 and more. One of the strangest UFO cases on record occurred to a paperboy on July 11, 1961 that must be heard to be believed. A truly astonishing case involves a witness who saw a landed UFO and humanoids near McClellan AFB. Encounters continue, with some as recent as 2018.
+
+NOVA SCOTIA, CANADA. This area contains many towns and cities and a huge variety of encounters. In 1952, the crew of the Marcala reported their close encounter with a silvery UFO. In 1952, a trained weather observer had an amazing encounter with a disc. An amazing humanoid encounter occurred in 1953. A harrowing USO encounter occurred in May 1963. Nova Scotia’s most famous case by far is the Shag Harbor incident of October 4, 1967. More landings, USOs, pilot encounters and more, including an incredible encounter of a UFO over a graveyard.
+
+Six specific locations – all with a history of UFO encounters. As should be obvious by now, UFOs are seen everywhere: sightings, landings, humanoids, onboard experiences and more. Pretty much every location on this planet has a long history of encounters. Those who don’t think UFOs are real have not done their research. It’s that simple. The evidence is undeniable. We are not alone!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_nrka0VJMms">EPISODE #226. FROM BEYOND EARTH: 
 TEN HUMANOID ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/_nrka0VJMms</h5>                                                             <h5>July 19, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>62,949 views  Jul 19, 2024</h6>
+When it comes to extraterrestrials, the humanoid form seems to be the universal template. The vast majority of reports involve some kind of bipedal humanoid. And there are sooo many! These accounts come from across the planet, and have been occurring for a very long time. The cases have astounding similarities that point towards the veracity of these accounts, and they are also supported by a wide variety of evidence. This video presents ten cases of face-to-face encounters with humanoids. There are too many cases to ignore, deny or explain away. The evidence speaks for itself. There is life beyond Earth.
 
+ET CONTACTS DEAF-MUTE MAN. One evening in 1950, 13-year-old William Ortiz (who was deaf) saw a gray-type ET outside his home in Floridablanca, Colombia. Moments later, he saw a landed craft and several other figures. The ET closest to him then communicated telepathically and used sign-language. Afterwards, William’s hearing was temporarily restored. It was to be the first of three amazing encounters.
+
+THE LITTLE MAN OF NORBOTTEN. From 1970-1972, people over a wide area near Norbotten, Sweden encountered a strange little man that did not appear to be human. The little figure was often seen along highways late at night, and was usually accompanied by blinding lights and mysterious sounds. Some witnesses reported strange medical effects after their encounters.
+
+ALIENS AT A RADIO STATION. In the Spring of 1975, a nightwatchman at the Maribor Radio station in Yugoslavia (now Slovenia) received a series of strange phone-calls at the station. Two months later, he was at work when TV malfunctioned. Then, in walked four tall humanoid figures. One approached the witness (now unable to move) and pressed his thumb against his neck. The high strangeness had just begun.
+
+ALIEN OR ESCAPED CIRCUS DWARF? At 4pm on May 14, 1976, two men were shocked to see a short humanoid in the wilderness at Monte Parodi, Italy. It wore a strange jumpsuit and floated above the ground. Four months later, on September 17, 1976, 15 witnesses saw another short humanoid in the same area. This time, there were landing traces, radiation readings, and one of the witnesses photographed the ET.
+
+A PURPLE-HAIRED ALIEN. On the morning of March 13, 1978, Claudio Franco (age 10) was at school in Vilar Formosa, Portugal. During class, he went alone to the restroom and as he exited, he was pushed down. Then he saw a shocking sight: a humanoid figure with purple hair, a wrinkled and scarred face, wearing a skintight white jumpsuit stared down at him. After 10 minutes, the figure disappeared. Claudio found burn-marks on his back.
+
+WE LOVE YOU. On the evening of October 14, 1978, Peggy Otis and her young granddaughter Jenny were driving to their home in Bear Valley, Colorado when a UFO appeared over their car. Peggy recalls exiting the car, screaming, and seeing what she thought were angels. Later, she sought hypnosis, and recalled having a telepathic conversation with gray aliens who had important messages to share with her.
+
+MY WORLD WOULD NEVER AGAIN BE THE SAME. One evening in August of 1979, Mrs. H.M. Dickinson was in her home overlooking Patten Bay in Surry, Maine when she and a friend saw a small bulb-shaped, transparent craft with a bald-headed creature inside floating a few feet away. The creature turned its head and stared at her as it floated off. A few days later, the being returned!
+
+I NEVER BELIEVED IN ALIENS. Around dusk one evening in February 1981, an anonymous farmer from Westfield, North Carolina went to look for his dog who had run off. He found his dog attacking a small, thin, hairless humanoid with large dark eyes. The humanoid's legs were mangled by his dog. The farmer ran off in fear. When he returned the next day, the humanoid was gone, and his dog was dead.
+
+WE COME FROM VERY FAR AWAY. On the night of February 6, 1991, Sylvia and two friends observed a UFO near Sylvia’s home in Chaville, France. Returning home, Sylvia was struck by a beam of light from the object. That night, strange humanoids visited her in her bedroom. The next morning, she received a telepathic message from the ETs and had a face-to-face encounter with an apparent gray alien.
+
+THE ALIENS FOLLOWED THEM HOME. On the afternoon of December 19, 2015, two brothers (Miguel and Patricio) were hiking in the forests near their home in Auracania, Chile when two tall humanoids wearing white jumpsuits confronted them. The boys ran home and the humanoids chased them. Arriving home, they locked the doors. Their mother also saw the two humanoids, which remained outside for the next two hours. 
+
+These ten cases contain many important insights into the nature of UFO contact. They show how similar ETs can be. They show how contact can be very frightening. They show how truly advanced extraterrestrials are. Most importantly, these cases provide compelling evidence for the reality of visitors from beyond Earth.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Lcmue1wnMoM">EPISODE #225. THE ULTIMATE UFO ENCOUNTER: 
 SIX ONBOARD UFO ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/Lcmue1wnMoM</h5>                                                             <h5>July 12, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>73,103 views  Jul 12, 2024</h6>
+There are many different kinds of UFO encounters, but the ultimate experience is being taken onboard a craft and meeting ETs face-to-face. And it happens more often than you might think. In 1991, the Roper Poll Survey found that as many as 1 in 50 people may be UFO contactees, which means that millions of people are having this kind of encounter! This episode presents just a small sample of six cases from around the world. These cases involve both single and multiple witnesses and contain some very compelling evidence such as physiological effects, healings, implants and more. Even more importantly, they answer some of the many questions surrounding this subject.
 
+THE CASE OF BETTY STEWART DAGENAIS. In 1925, when Betty Stewart Dagenais of Ontario Canada was only five years old, she was taken onboard a craft and examined by gray ETs. A few months later it happened again. As an adult she had three more encounters. These were primarily recalled under hypnosis, and all she could remember was being physically examined and apparently given an alien implant. This turned out to be true, because later her implant was surgically removed by doctors here on Earth, and it turned out to have some amazing properties that defy conventional explanations.
+
+THE CASE OF SHARON KEEFE. Sharon’s first UFO sighting occurred when she was only 11 or 12 years old. Years later as an adult living in Gallup, NM, she started having missing time. In 1975-76, while driving with her daughters along the highway at night, she was followed by a UFO and experienced another episode of missing time. She decided to seek hypnosis, and recalled that she and her daughters were taken onboard a craft and examined by tall gray beings. They told her that they were there to test her endurance and give her gifts. She felt love and compassion for the beings and felt that her experience was benevolent.
+
+THE CASE OF HERMINIO & BIANCA REIS. On the evening of January 12, 1976, while driving along a remote highway near Paraibuna, Brazil, Bianca Reis saw a glowing orange object in the sky. She alerted her husband, Herminio, and the next thing they knew, it sent down a beam of light onto their car and sucked them both (with their car) into the craft. Inside they met tall human-looking beings who spoke telepathically with them, engaging them in a long conversation about deep, philosophical subjects. They gave them information about how to teach people to advance their own psychic abilities and learn astral projection. Soon more contacts occurred and even more people became involved and even healed!
+
+THE CASE OF GHULAM REZA BAZARANI. It was April 2, 1976, the day of “Sizdeh-Bedar,” an Iranian holiday when Gholam Reza Bazargani (age 19) went walking in the forests near his home in Chalus, Iran. Gholam was from a wealthy family, and when he went missing, police organized a massive search. Two days later, Gholam was found hundreds of miles to the south in the city of Isfahan. He had an amazing story to tell. He said that a silver flying saucer appeared overhead and he suddenly found himself inside it being examined by non-human entities. He recalled being examined by instruments with colored lights, and then lost consciousness. When he awoke, his watch was missing. On the day of his return, many people in the area saw flying saucers.
+
+THE CASE OF MIGUEL HERRERO SIERRA. Early on the morning of December 18, 1977, Miguel Herrero Sierra (a 37-year-old driver/entrepreneur) left his home in Alcala, Spain to go fishing at the Buendia Reservoir. He never made it. Half-way there, his car engine mysteriously failed. Then he saw a landed flying saucer in the field next to him. Two human-looking figures dressed in white jumpsuits approached and pulled him onboard. The ETs told him that they were contacting many people on Earth and told him many other things before returning him back to his car. While Miguel remembered at least 15 minutes of being onboard, the entire experience lasted three hours. Later, under hypnosis, he recalled more incredible details.
+
+THE CASE OF HELEN. On January 24, 1992, “Helen,” (age 50) was with her husband in their home in Mezobereny, Hungary. Suddenly a strange apparition of a woman appeared in her kitchen. Later that night, Helen felt compelled to go into her backyard where she saw a landed flying saucer. She went onboard where she saw many other women and young children. Over the next few nights, she had the same experience. Then she woke up in her bed to find several strange dark marks on her abdomen. Doctors were unable to diagnose or explain them. Then, to Helen’s surprise, she found herself cured of two chronic medical conditions!
+
+These six cases are just a tiny portion of the actual number of cases of this kind, and yet they provide a representative sample of what it’s like to have the ultimate UFO encounter, an onboard experience and face-to-face meeting with extraterrestrials.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/-xuPD9cG4rI">EPISODE #224. ALIENS TRIED TO ABDUCT MY DOG: 
 THE JOHN TRASCO STORY</a>.</h3>
 <h5>LINK: https://youtu.be/-xuPD9cG4rI</h5>                                                             <h5>July 7, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>9,800 views  Jul 7, 2024</h6>
+Around 6:00 p.m., on November 6, 1957, John Trasco and his wife Ellen were in their home in Everittstown, New Jersey. John had just returned from his job at the local paper mill. He stepped out to feed their dog, King, a six-year-old, charcoal-colored, half-blind, bad-tempered, Belgian police dog, who they kept tied to the side of the house.
 
+Shortly after John stepped outside, Mrs. Trasco heard King barking furiously. She looked outside and saw a strange reflection in the yard. Staring at it, she was amazed to see it was a glowing egg-shaped object, about nine to twelve feet long, hovering, and bobbing up and down. Meanwhile, John also saw the craft, and approaching him from the direction of the craft was a strange humanoid figure.
+
+“I looked and I seen a little man,” John says. “…He came down towards me and he said, ‘Don’t be afraid. I don’t mean any harm.’ So, I got a little closer to him and started talking to him about the dog. And he said, ‘Don’t be afraid. We’re friendly people, we don’t mean any harm.’ I started shaking. I was scared. He came up to me and said, ‘Would you like to give us your dog, we’d like to have it.”
+
+The man spoke very slowly in English, with what sounded like a German accent in a sharp, squeaky voice. “We just want your dog,” he said.
+
+So began one of the strangest UFO encounters in history. In this episode, you can hear the firsthand audiotape interview with John and Ellen as they describe their unique and bizarre encounter with a short humanoid who tried to abduct their dog. This episode is a sequel or addendum to the episode, “ALIENS ABDUCTED BY DOG," which features more than two dozen cases of this kind. You can learn more about them in my book, "NOT FROM HERE: VOLUME FIVE," now available on Amazon.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/zubKBEuOOrM">EPISODE #223. ALIENS ABDUCTED MY DOG</a>.</h3>
 <h5>LINK: https://youtu.be/zubKBEuOOrM</h5>                                                             <h5>July 5, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>23,365 views  Jul 5, 2024</h6>
+We all love our fur babies, and dogs are the most popular pet of all. They have been man’s best friend for countless millennia. What many people don’t know, however, is that ETs also show a great interest in canines. There has never been a study of dog-UFO cases until now! This video presents more than two dozen cases in which dogs have been directly and extensively involved with UFOs and extraterrestrials. These cases reach back to the 1940s up to the present day, and they provide some profound insights into extraterrestrials and their agenda on this planet.
+
+These cases come from across the planet, New Zealand, Australia, Russia, Ukraine, England, Wales, Ireland, Spain, Canada, Mexico, and more, including all over the United States. A wide variety of ETs show interest in a wide variety of dogs. The cases include dogs being taken onboard and examined, and even in some cases healed. In some cases, the dogs are taken by themselves. In others, people are taken onboard with their own dogs. 
+
+Why are ETs taking dogs onboard? What do these accounts have to tell us about extraterrestrials? The answers are in this unique episode. These cases offer a wide variety of compelling evidence including multiple eyewitness testimonies, photographs of UFOs, audio recordings from firsthand witnesses, landing traces, medical effects, electromagnetic disturbances, and of course, animal reaction cases!
+
+With so many encounters like these, the truth cannot be denied. ETs are showing an interest in dogs. If you would like to explore more about cases like these, check out the book, “Not from Here: Volume Five,” which contains a full-length chapter with a comprehensive presentation of dog-UFO encounters. Now available on Amazon!
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Ng-O1vql7iY">EPISODE #222. UFOS IN YOUR HOMETOWN: 
 BY SPECIAL REQUEST</a>.</h3>
 <h5>LINK: https://youtu.be/Ng-O1vql7iY</h5>                                                             <h5>June 28, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>30,293 views  Jun 28, 2024</h6>
+UFOs are seen all over our planet. It appears that virtually every location on Earth has a long and rich history of UFO encounters. But is this true? Recently a put out a challenge: name a location that you would like to know if UFOs have visited such as your hometown. The response was huge: many people asked if I could find any UFO cases in their hometown. So, by special request, this episode presents ten locations from across the United States (and a few outside of it,) and the history of UFO encounters that have occurred there. This includes sightings, landings, face-to-face encounters with humanoids and of course, onboard encounters. Compelling evidence supports many of these cases including multiple eyewitness testimonies, photographs, radar-returns, landing traces, physiological effects, animal reactions, electromagnetic disturbances and more.
 
+WENATCHEE, WASHINGTON. This history of UFOs in Wenatchee reaches back to at least 1907 when a strange airship was seen by multiple citizens. Following this, many other encounters occurred, including star-like objects, multi-colored UFOs, cone-shaped objects, shiny silver triangular-shaped objects, craft turning at right angles, and even a large object directly over downtown Wenatchee.
+
+SIOUX FALLS, SD. One of the earlier Sioux Falls cases involved the sighting of a classic flying saucer moving overhead in July 1947. In 1954, police officers in Sioux Falls and surrounding areas saw UFOs. In 1957, police officer Jack Peters photographed a UFO as people all over the area witnessed strange activity. In 1976, UFOs were seen landing in Sioux Falls, and some reported seeing an actual ET. Even as late as 2018, UFOs continued to appear.
+
+PAYSON, AZ. In July of 1969, a ranch family had a dramatic sighting of a classic flying saucer outside their ranch home. 1981, Sheriff Deputy Loyce Hamlin and 4 other officers reported UFOs. Hamlin had seen one before following a plane taking off from Payson. In the late 1980s, a Payson resident reported missing time while returning to his home. The sightings continued!
+
+ALBANY, GA. In 1948, a pilot’s sighting over Albany was declared unidentified by Project Blue Book. More pilot sightings occurred in 1953 and in 1956. In 1968, Conway Jones reported a frightening encounter where a UFO disabled his car. In 1973, a flurry of encounters over Albany generated national headlines.
+
+AALBORG, DENMARK. In 1963, a flying saucer landed next to a farmhouse in Aalborg. A human-looking ET came out and took the farmer onboard, right in front of his amazed wife. In 2006, 2009, and 2011, three more close encounters were reported, showing that Aalborg has been repeatedly visited by extraterrestrials.
+
+VISALIA/TULARE, CA. In November of 1989, hundreds of residents in the area witnessed the now famous unexplained airships. Following this, encounters occurred regularly, including in 1952, 1979, and 2010. On January 1, 2022, a family had a close-up sighting of a UFO and captured three photos of the object hovering near their home.
+
+PHILIPPINES. On March 8, 1968, more than 100 passengers on a jet over the Bashi Channel were amazed to see a UFO pacing their plane. A few months later, a mini-wave of sightings were observed by hundreds of people in the city of Manila. In November of 1968, four separate groups of witnesses observed a strange object with two human-looking figures inside. In 1979, a UFO was seen by many landing near Mount Apo. In 1991, a resident saw a UFO land near her home. ETs came out and started picking flowers.
+
+ST LOUIS, MO. This city has many cases. A chiropractor reports his lifelong experiences with friendly ETs. In 1966, a UFO was seen landing at Point Pleasant Elementary school, and several students and one teacher saw an ET. Another case involves a dramatic sighting over a drive-in theater. And there are two other cases, one involving a face-to-face encounter with a humanoid, and another involving a landing.
+
+OCALA, FL. Sightings here reach back to 1947 and occur regularly, including in 1952, 1955, 1957, 1968, 1974 and more. On May 14, 1978, a wave of sightings over Ocala was witnessed by dozens and was also seen and caught on radar at the Navy’s Pinecastle Electronic Warfare Range. The wave went on for months and generated national headlines and huge controversy. In April 2003, a woman reported a humanoid in her home which healed her of a problem pregnancy. The sightings continued.
+
+WILMINGTON, NC. On April 6, 1897, hundreds in Wilmington saw the famous unexplained airships. More sightings of UFOs occurred in 1977 and 1980. In 1986, a couple had a scary encounter with a giant V-shaped craft. In 2001, a gentleman reported his terrifying encounter with humanoids in his Wilmington home.
+
+These are just a small sample of the actual number of the documented cases coming from these ten locations. And these are just the ones which have been recorded. The fact is, most people don’t report their encounters. Have UFOs visited your hometown?
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/CKtz-9dA9A0">EPISODE #221. THEY ARE HERE: 
 TEN CLOSE ENCOUNTERS WITH EXTRATERRESTRIALS</a>.</h3>
 <h5>LINK: https://youtu.be/CKtz-9dA9A0</h5>                                                             <h5>June 21, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>56,640 views  Jun 21, 2024</h6>
+The time for skepticism is over. There are too many cases to ignore, too much evidence to deny. This video presents ten true cases of firsthand extraterrestrial encounters from across the globe, each providing important information and profound insights into the UFO phenomenon. Many have multiple witnesses and compelling evidence in the form of landing traces, electromagnetic disturbances, animal reactions and physiological effects. It’s time for all humanity to accept the truth of the ET presence on Earth.
 
+THE UFO GOBLINS. On the morning of March 15, 1943, sisters “C,” (10) and Angela (6) were grazing the family goat by their home in the small town of Montecreste, Italy. Suddenly a “great roar” overhead caught their attention and they saw a saucer-shaped craft land nearby. Two figures in white jumpsuits exited and talked in a weird language. Knowing nothing of UFOs and ETs, the girls thought they saw goblins.
+
+FOUR ALIENS IN THE BACKYARD. At 2am on October 13, 1975, Mayme H awoke to her dog barking. Looking outside her home in Alton, Illinois, she saw a 3½-foot-tall humanoid in a silver jumpsuit in her backyard. Moments later, it was joined by three others, and all four ran single-file into the forest behind her home. The next morning, they found a circle of crushed grass in a field not far from the location.
+
+HIGHWAY HUMANOID. At 9:45 pm, January 26, 1976, Claude Cretin was driving between Madilly-Mandelot and Bouze-les-Beaune in France when a flash of light blinded him. A short distance ahead, he saw a tall humanoid in a fluorescent red bodysuit and helmet with a face-mask standing by the road. He drove off in fear and went to the police. Returning to the site the next morning, they found broken branches 10-15 feet high.
+
+THE MEN FROM THE STAR. Just past midnight on January 28, 1976, Miguel Fernandez Carrasco was walking to his home in Benacazon, Spain when a star-like object approached. Suddenly it landed next to him. It was a strange craft. Two 7-foot-tall humanoids exited and approached. Miguel ran in fear. The humanoids went back into the craft and then followed him from above, sending down a beam of light, causing Miguel to pass out. He awoke two hours later in front of his home, with strange marks on his body. 
+
+ANOTHER FLYING HUMANOID. At 5:00 am on April 7, 1977, former politician Cyril John saw light flood his home in Milford Haven, Wales. Looking out the window, he saw an oval-shaped craft hovering 200 feet away. Then he saw a 7-foot-tall humanoid wearing a silver-gray suit, hovering just 35 feet away. He watched both object and humanoid for the next half-hour until they slowly moved off into the distance.
+
+AN ALIEN MEETING. On the afternoon of Sep 27, 1978, Henryk Marciniak took his motorcycle to a wooded area outside Kanin, Poland to pick edible mushrooms. Suddenly he saw a metallic craft landed in a clearing. Two short humanoids in black jumpsuits exited and approached him. They had greenish-skin, webbed hands, and large bulging eyes. They showed interest in both his motorcycle and the mushrooms, then took off in their craft.
+
+RIGHT OVER THE CAR. At 5:30 pm on Nov 13, 1982, two men driving to Port Wakefield in South Australia saw an object pacing their car. Suddenly it was right overhead and looking up, they saw right into the front of the craft. They could see several humanoids inside and all kinds of weird equipment. Frightened, they panicked and drove off. Soon other people in the area began to report UFOs.
+
+100 LITTLE ALIENS. At 5:45 pm on October 28, 1985, a dozen children were playing outside their homes in Honefoss, Norway when a UFO appeared overhead and seemed to land. As it disappeared, they suddenly saw a huge crowd of tiny humanoids running around. They were dressed in jumpsuits and helmets. For the next two hours, they ran around the area, causing some children to flee in panic. Later strange footprints were found. 
+
+THE ALIENS IN THE BUSHES. One afternoon in Oct 1986, farmer Alberto Meyer was shocked to see two 5-foot-tall humanoids emerge from the brush near his home in Viale, Entre Rios, Argentina. They had huge hairless heads, small facial features, and wore skintight jumpsuits. One seemed to smile at Alberto as they returned to the brush. Later, a footprint was found and photographed. More UFOs were soon seen.
+
+HUMANOIDS ABOVE A CITY STREET. At 9pm on Jan 19, 1991, Helge F walked along Markt Street in Ronneburg, Germany when a powerful wind struck her. Looking up, she saw a craft 100 feet overhead. It tilted toward her, revealing three strange humanoids inside. Helge found herself waving at them. One pointed a strange rod at her. The craft moved off. Helge found she was missing about 15 minutes of time.
+
+These ten cases are a tiny portion of the actual number of cases, each of which provide further evidence that we are not alone, that ETs are visiting our planet. The truth can no longer be denied. They are here.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/qHun029FgFA">EPISODE #220. FACE TO FACE: 
 TEN VERY CLOSE ENCOUNTERS WITH EXTRATERRESTRIALS</a>.</h3>
 <h5>LINK: https://youtu.be/qHun029FgFA</h5>                                                             <h5>June 14, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>88,299 views  Jun 14, 2024</h6>
+While governments across the world now admit to the validity UFOs, they still refuse to discuss firsthand contact cases. The heart of the UFO phenomenon is not the craft, but the UFO occupants themselves. The evidence shows clearly that UFOs are craft, piloted by living beings. The thousands of humanoid cases can no longer be denied, ignored, or explained away. This video presents ten cases of very close encounters with humanoids of all kinds. They span more than 100 years, come from across the world, and many contain compelling evidence to support them.
 
+THE SMILING EXTRATERRESTRIAL. One morning in the Summer of 1915, Bjarne Westvand (age 6) was playing outside his home in Jakobsbakken, Norway when a craft landed, and out stepped two three-foot-tall figures with large heads, long hair, gray skin. One walked right up to him then turned around and departed. It was an experience he kept secret for 65 years.
+
+QUARRY ALIEN. At 2:05 pm on May 30, 1971, Pierrette Debofle stepped outside her home in Dannes, France to collect some grass for her rabbits. Looking up, she saw a strange craft in the chalk quarry behind her house. Then she saw a three-foot-tall figure with a large glowing head and a bulky torso, walking and floating near the craft. Suddenly it went inside it and the craft took off at high speed.
+
+THE GITCHIE-MANITOU UFO WAVE. One night in mid-April 1976, Linda Sehr of Lyon, Iowa saw a UFO near the Gitchie-Manitou State Park. To her shock, it followed her car home. One month later Andy and Joel Rygh (age 8 and 6) were playing the park when they saw a 7-foot-tall humanoid. They ran and told their two older brothers, and all four saw a craft dart away. Soon more encounters would occur.
+
+CURED OF ARTHRITIS. At 8pm on September 6, 1976, Leoncio and Elena Torres were driving through a rural area of Carabaya, Peru when a UFO landed on the road in front of them. Two human-looking figures came out, approached them, and touched them both on the back. They felt burning heat and the figures left. Afterward there were landing traces on the road, and both Leoncio and Elena were cured of their arthritis.
+
+THE LITTLE MAN OF DUNN, NORTH CAROLINA. On October 12, 1976, eight-year-old Tonnlie Barefoot was playing outside his home in Dunn, NC when he saw a little one-foot-tall man staring at him. The tiny man ran away. Tonnlie told his mother and others, but nobody believed him. Then they found the footprints. Two weeks later, Shirley Ann McCrimmon was entering her home only a few miles away when she also saw a little man. But was this an ET or something else?
+
+THE ALIEN COUPLE. On the night of August 30, 1977, Ceferina Vargas Martin was walking home in Escalada, Spain when a powerful light hit her face. Seconds later, she saw a very odd-looking man and woman with large eyes, two slits for a nose, a thin mouth and yellowish skin. Both wore strange clothes. A powerful weakness swept over her and she fainted. Upon awakening, the couple was gone, and so were some of Ceferina’s belongings.
+
+A VERY CLOSE ENCOUNTER. On November 1, 1980, sisters Kristina Rydhold and Nina Grundin were driving to their parents’ home near Hovsta, Sweden when a UFO began to circle overhead. Without warning it approached to within 50 feet, close enough that they could both see two humanoids inside it. Their car stalled and began to shake mysteriously. Finally the craft left, but this was only one of several close encounters in the area at that time.
+
+PICNIC WITH AN EXTRATERRESTRIAL. On the afternoon of April 26, 1984, a few hundred teachers and students went for an outside picnic at rural Monte Sant’Antonio near Macomer, Italy. A teacher and student went exploring and both saw a strange short humanoid. They were unable to move until it left. Moments later, a craft rose from the ground, leaving landing traces. Soon, another student saw the strange humanoid.
+
+MISSING TIME IN MIRABEL. Around 4am one morning in August 2012, a man and woman traveled by motorcycle outside of Mirabel, Canada. Suddenly a UFO appeared overhead. It sent down a beam of light, striking them. The man saw strange humanoids looking down at him. Afterwards, they drove off and forgot everything. Months later, the man suddenly remembered the encounter. The woman, however, had no memory of any humanoids.
+
+THE ALIEN IN THE RECTANGLE. On the night of September 8, 2012, Konnonova Irina Dmitrievna was outside her home in Penza, Ternovka, Russia when she noticed a glowing rectangle of red light in the sky. As it approached, the light changed shape and she could see a humanoid inside, facing her. It soon moved off. But a short time later and a few miles away, another woman saw a very similar object.
+
+Ten cases, each offering a glimpse into what it’s like to have a face-to-face encounter with strange humanoids, each providing another piece of the puzzle to solving the UFO mystery. The evidence speaks for itself: we are not alone!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/HefLEAs1mFI">EPISODE #219. ASTONISHING: 
 TEN CASES OF EXTRATERRESTRIAL CONTACT</a>.</h3>
 <h5>LINK: https://youtu.be/HefLEAs1mFI</h5>                                                             <h5>June 7, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>92,043 views  Jun 7, 2024</h6>
+A face-to-face encounter with an extraterrestrial humanoid – it’s one of the most astonishing experiences a person can have. And it’s happening to a lot of people. It’s been happening all over the world for a very long time. While governments across the world are admitting that UFOs are real, they refuse to talk about firsthand contact cases. The question is why? Is it because humanoid encounters represent the forefront of UFO research and have volumes to teach us about this subject? This video presents ten astonishing cases of direct contact with humanoids. These include multiple witness cases with a wide variety of supporting evidence. Time for truth!
 
+A SHOCKING EXPERIENCE. It was 10am one summer morning in 1948 when Ernst-August R. was minding his sheep in a rural area of Hemer, Germany. Suddenly his sheep scattered as a large saucer-shaped craft landed next to him. Ernst reached out and touched it. He was immediately shocked and passed out. Upon awakening, he was surrounded by strange humanoids.
+
+A VERY LOUD UFO. One afternoon in July of 1960, railway worker Georges Godbout and two others were on the Canadian National Railroad by Chapais, Quebec, Canada when a UFO appeared over the tracks. It stopped and a humanoid wearing a green bodysuit came out. He started to look around, but seeing the witnesses, quickly fled. The UFO flew off with a noise so loud, it made the witnesses physically ill.
+
+SPRAYED BY A UFO. On the afternoon of September 30, 1971, Anssi Hakala (age 11) was bicycling to his home in rural Marttila, Finland when a tall green humanoid appeared, floating above his head. Anssi biked away in fear. The being disappeared into a craft, which continued to pace Anssi on his bike, spraying him with a weird liquid as Anssi raced home.
+
+THE LAUGHING ALIENS. At 5:30 pm on September 27, 1973, Antoine X (a mechanic) was out picking edible mushrooms by his home in Bedarrides, France when he saw what appeared to be two small children. But they wore beige jumpsuits, had very fine features and looked identical. Antoine called out to them, but they laughed and disappeared into the brush. Moments later, a metallic craft rose up and darted away.
+
+UFO AT A YOUTH CAMP. At 9:30 pm on February 3, 1977, several children from a youth camp at Seven-Mile-Beach in Tasmania, Australia spotted a classic flying saucer hovering at low elevation. It was covered with lights and had several portholes, and through one of the portholes, the children saw a strange humanoid with an oversized head looking down at them.
+
+UFO LANDS AT SCHOOL FOR THE DEAF. At 6:30 pm, Frank Sverre Mandte and Johnny Myrr (both age 11 and deaf) were approaching the Alm’s School near Honefoss, Norway, when they noticed a glowing object approach. In moments, it came overhead, stopped, and landed a short distance away. Both boys saw a humanoid looking out at them. The object took off, leaving behind undeniable landing traces.
+
+ALIENS INSPECT FARMHOUSE. Just before 10pm on August 31, 1978, just as a power-outage struck the area of their home in La Dulce, Argentina, Manuel and Leonor Arias observed an oval craft with porthole hovering near their farm. It then ejected two figures with glowing red eyes who approached the farm and began to inspect the sheds. They stayed for an hour. It was one of more than 20 encounters in the area.
+
+CHASED BY EXTRATERRESTRIALS. At 7:40 pm on September 21, 1978, an anonymous boy was walking near his home in Cosenza, Italy when the environment around him lit up like daylight, and a UFO appeared on a nearby hill. Suddenly he saw four humanoids bounding towards him. He fainted and when he awoke, he was surrounded by four humanoids. He fainted again, and when he awoke, they were gone.
+
+AN ALIEN IN THE YARD. At 10pm on November 24, 1988, Rune Asplund was in his home in Daviken, Sweden when he noticed an odd-looking figure in his yard. The figure stood in a strange posture, and was wearing a shiny, metallic jumpsuit. Going outside to investigate, the figure disappeared into thin air. Rune later learned a police officer had an encounter the same night, and his neighbor also saw a strange humanoid.
+
+PLEASE TELL ME I’M NOT CRAZY. It was 1:30 am one evening in the summer of 1999 when a 14-year-old girl heard a deafening screeching sound coming from outside the second-story bedroom window of her home in Clarksburg, Massachusetts. Looking outside, she saw a strange 3-foot-tall creature with gray skin, a hairless head and black eyes. Her sister and mother also heard the scream, rushed in, and saw it too. The creature remained for 15 minutes before finally leaving. But it would soon return.
+
+These ten amazing humanoid encounters show how very strange face-to-face contact can be. And these ten accounts represent just a tiny portion of the true number of encounters. So many cases. So many kinds of humanoids. So much evidence! The time for skepticism is over. We are being visited.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/AGWKmPYFz6c">EPISODE #218. NOT ALONE: 
 TEN SUPER-STRANGE ALIEN ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/AGWKmPYFz6c</h5>                                                             <h5>May 31, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>78,830 views  May 31, 2024</h6>
+With nearly a million reported and documented UFO encounters, it is clear that we are not alone in this universe. ETs are visiting our planet, and people all over the world are encountering humanoids of many different kinds. This video presents ten super-strange cases of humanoid encounters, many with multiple witnesses and compelling evidence. Face-to-face contact with extraterrestrials provide important insights into the UFO phenomenon and answer many of the questions surrounding this subject.
 
+POLICE OFFICERS SEE LANDED UFO AND HUMANOIDS. At 1am one evening in January 1956, French gendarmes (Henri Barboule and Msr Simon) were in Barre-des-Cevennes, France, when they heard a deafening roar. Looking up, they saw a flying saucer pass overhead and land a short distance away. As the craft released a probe, four humanoids exited the craft. Both officers were paralyzed with fear.
+
+UFO LANDS IN CITY PARK. Around 9:30 pm on the night of December 9, 1962, driver/waiter Antonio Candau was walking to his home near Bologna, Italy when he saw a flying saucer land nearby. He watched in awe as two olive-skinned human-looking men wearing yellow jumpsuits exited. The two men approached him, speaking a strange language and gesturing to him. The experience changed Antonio’s life.
+
+FOLLOWED BY A UFO. One night in January 1973, five people were driving near Nowra, NSW, Australia when a UFO appeared and began pacing their car. One of the passengers was shocked to see humanoid figures looking out at him through the portholes. The craft followed their vehicle for many miles, before suddenly darting away. The next morning, one of the witnesses would have another encounter.
+
+THE CLUMSY ROBOT. Early in the morning of July 10, 1976, Miguel Angel Ruiz Samperio, and his friend, Margarita Cagigas were getting ready to car-pool to work when they saw a strange figure walking down the street of their home town of Escalante, Spain. To their shock, it looked robotic and was at least nine feet tall. After walking off, it disappeared. They later learned that other people saw it too.
+
+ALIENS AT THE FRONT DOOR. On the night of July 11, 1978, “Amalia,” was in her home in Alta da Mooca, Brazil when she heard a thump and a strange buzzing noise, her dog began to bark, and her TV filled with static. Opening the door, she was confronted by two short humanoids and a landed UFO behind them. She was paralyzed as the figures shone strange lights around and returned to their craft, which took off, leaving Amalia utterly shocked.
+
+UFO LANDS AT SUGAR-CANE FARM. Late at night on April 26, 1979, farmer Mamerto Demetillo was woken up by light filling his home in Talisay, the Philippines. Rushing outside, he saw three flying saucers landing next to his farm. He watched as two human-looking figures exited each craft, and examined the area. After 20 minutes, they returned inside the craft which took off, leaving landing traces. At the time, there was a wave of sightings in the area.
+
+THE MOST REMARKABLE THING THAT EVER HAPPENED TO ME. One night in the fall of 1989, shortly after reading some UFO books, an anonymous witness saw a UFO outside her home near the Apalachicola Forest in Florida. Suddenly, a glowing sphere emerged from the craft and entered through her window. An eight-foot-tall figure appeared. The witness fainted and for 2 years, forgot the encounter.
+
+YOU ARE ME. On the night March 9, 1992, two women were driving to their homes in Hamar, Norway when a saucer with two short humanoids hovered in front of their car. They both experienced missing time. Later that night, one of the witnesses, Gry Jannicke Jarlum, was visited at her home. She remained in contact with the ETs who began to teach her volumes of profound information, completely changing her life forever.
+
+A ROADSIDE GRAY. While driving to his home in Cary, Illinois one evening in March 1995, an anonymous man was shocked to see a short strange-looking figure alongside the road. Thinking it was the victim of a car accident, he slowed down, and was amazed to see a short figure with a large bald head, huge dark oval eyes, and pale white skin. It was not human, and the witness drove off in shock.
+
+THE MEN IN THE SKY. On the night of April 26, 2009, a man in his home in Bad Neuenahr, Germany noticed a brilliant light in the sky. He watched it approach, revealing itself to be a multi-colored rectangular craft with numerous portholes. And through the portholes he saw the silhouettes of several figures looking out at him from only 100 feet away. He was convinced it was a genuine UFO, and watched as it flew slowly away.
+
+Ten super-strange alien encounters from all over the world! And there are so many more. How many cases are needed to prove to the world that we are not alone? Earth is being visited by extraterrestrials of many kinds. The truth can no longer be denied, covered up or explained away. The evidence speaks for itself.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/55KdbyIVK00">EPISODE #217. MEETING THE ALIENS: 
 FIVE ONBOARD UFO ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/55KdbyIVK00</h5>                                                             <h5>May 24, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>71,058 views  May 24, 2024</h6>
+Can you imagine being taken onboard a craft and meeting extraterrestrials face-to-face? It is perhaps the ultimate encounter. This video presents five astonishing cases of people taken onboard an ET craft. While each of these cases does involve a single witness, every one of them was recalled consciously without hypnosis. And every one of them includes compelling evidence pointing to the reality of the encounter. They come from all over the world, and provide a close-up look at what it’s like to meet aliens face-to-face. They also answer many of the questions surrounding ET contact and their agenda on planet Earth.
 
+THE CASE OF WARABE AMANAKA. It was a summer evening in 1926 when 2-year-old Warabe Amanaka heard a telepathic voice calling him outside. Venturing outside his home in Matsuyama, Japan, he was greeted by a tall, blond-haired human-looking figure who promised to meet him again. Over the next three years, the man (who Warabe called Uncle) appeared several times. Then on Aug 2, 1930, Warabe (age 5) heard the familiar telepathic voice and met Uncle again. This time, Warabe was taken onboard a craft, and given a ride around the planet, viewing whales in the ocean, elephants in Africa and the Great Pyramids of Egypt. After being dropped back home, the ETs promised to visit him again. During one of his visits, the ETs gave Warabe a strange metal box. It’s one of Japan’s strangest cases on record.
+
+THE CASE OF NICHOLAS HENRY EDWARDS. In Jul 1952, at age nine, Nicholas Edwards was outside his home near Point Defiance Park in Washington State, when he saw a UFO and then found himself in a strange room surrounded by little aliens. Shortly later, he and his entire family had a close up sighting of a UFO. But it wasn’t until November 15, 1959 that Nick (now 16) recalled a lengthy and complicated onboard encounter. While driving with two friends in California, a UFO pulled their car onboard. Nick’s two friends fell unconscious, but Nick remained awake as small human-like ETs with large dark eyes and pale skin pulled him from the car and took him to another room. The ETs were kind and gentle as they put him on a table and examined him with strange instruments. The encounter changed his life forever.
+
+THE CASE OF KLAUS-DIETER KAUFMANN. At 8:30 pm one night in the Spring of 1960, 14-year-old Klaus-Dieter Kaufmann walked to his home in Frankfurt, Germany. Suddenly a Saturn-shaped craft hovered overhead. A beam of light came down, struck him, and rendered him unconscious. He woke up a few hours later. Terrified, he ran home and found a strange mark on his back. Years later, as an adult, he went to have surgery and the doctor told him that it looked like he had already had surgery on his back. Klaus-Dieter recalled his missing time encounter with the UFO, and began to remember what happened. He recalled going onboard the craft, meeting different kinds of humanoids, who gave him a strange exam. Although frightened, one of the ETs comforted him and explained that he would be returned home shortly.
+
+THE CASE OF GILBERTO GREGORIO COCCIOLI. At 3am on Oct 4, 1972, Gilberto Coccioli (age 50) stepped outside his home in Burzaco, Argentina to check on his dog. Without warning, he was struck by a beam of light and pulled onboard a craft hovering overhead. Inside, he was confronted by 7-foot-tall humanoids who placed him on a circular bench, and examined him. He saw many things beyond his comprehension. Two other women were onboard and had intimate relations with him. He saw a small pile of stones and convinced the ETs to give him one. Then he was placed back on the ground, with the stone in his hand. His dog was badly traumatized. The stone turned out to be earthly iron pyrite. Gilberto remained in contact with the ETs, who began to teach him science, philosophy, and spirituality.
+
+THE CASE OF ISTVAN BALOGH. On the night of Dec 26, 1991, Istvan Balogh (a 21-year-old border guard) returned home to find a flying saucer hovering over his backyard in Bekes, Hungary. A week prior to this, he had heard a strange telepathic message, repeating, “You will meet us.” He was unable to resist as he was pulled onboard the craft where he was greeted by short humanoids, four feet tall with greenish skin, large eyes, and three fingers on each hand. They told him that they had watched him for three years and would take him on a trip. He recalls seeing the moon and other strange sights before being returned to his yard. He told his superiors what happened to him and was promptly fired. A psychiatric exam showed him to be a normal, but a physical exam showed that a metal rod which had been placed after breaking his arm, was now missing.
+
+These 5 cases show that people all over the world are being taken onboard UFOs and that it has been happening for a long time. This kind of experience is far more common than most people believe. The evidence speaks for itself: we are not alone!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/TYocXlD19Jk">EPISODE #216. 
 TWELVE AMAZING UFO ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/TYocXlD19Jk</h5>                                                             <h5>May 17, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>69,577 views  May 17, 2024</h6>
+So many humanoids! Encounters with humanoids and extraterrestrials are far more common than most people believe. Cases come from across the world and have been occurring for a long time. And in almost all cases people describe humanoid figures. In fact, the humanoid form appears to be universal. This video presents twelve amazing humanoid encounters from 1940 to 2009. Some are single-witness cases, but most have multiple witnesses, and a few have compelling physical evidence in support of their case. There are now enough documented cases to conclude that we are not alone on planet Earth. We are being visited.
 
+SOLDIERS OR ALIENS. In July of 1940, a 15-year-old boy from Kongens Tisded, Denmark was going to water his cattle when he came upon three figures wearing jumpsuits and helmets. To his shock, they approached a landed disc-shaped craft which took off silently. He thought they might be German soldiers, but later realized he may have encountered ETs.
+
+THE OLD THIN ALIEN. One day in the summer of 1951, three people went to a play in Beausoleil, Alpes-Maritime, France. Approaching the theater, they saw a small transparent craft low in the sky, and inside it was an old, thin, man with a beard, watching the play. The witnesses tried to alert the audience, but the craft quickly darted away.
+
+THE ARTISTS & THE ALIENS. At 3:30 am on December 28, 1954, seven people drove along Route 143 near Mendoza, Argentina. Suddenly, they came upon a landed craft and two humanoids along the road. They exited their vehicle and got a closer look, as the humanoids scrambled into their craft. The witnesses retreated to their car and left, and the UFO followed!
+
+A CHURCH-GOING ALIEN. On the night of June 26, 1962, the Massolongo family was in their home in Verona, Italy when they saw a UFO hover over the Santa Anastasia Church. It remained there so long, they finally went to bed. Later that night, a glowing green humanoid approached the bedroom window and touched the daughter. All three witnesses watched it leave.
+
+AN APPOINTMENT WITH HUMANOIDS. On October 29, 1965, Sture Johnson received a message that she and her husband Turid (a famous medium) should visit a certain location in Vagarro, Sweden. They went there that evening, and to their amazement encountered black floating humanoids. But were these ETs, or were they something else entirely?
+
+THE ETS BY THE HOSPITAL. At 10:30 am on September 14, 1967, Fabio J Diniz (age 16) was walking by the Baleia Hospital in Belo Horizonte, Brazil when he saw a landed saucer in a nearby field. Two tall humanoids exited and told Fabio to return the next day for another contact. Unfortunately the craft did not return, but it did leave behind landing traces.
+
+THE RECUMBENT ALIENS. One night in September 1973, a couple and their friend were driving near Alijo, Portugal when a glowing disc began to pace their car. Suddenly the car mysteriously broke down. The disc left, then returned. and all three witnesses saw two humanoids lying on their backs alongside the road. The humanoids rose and flew over the car and were gone.
+
+LANDING AND HUMANOIDS IN BOZEMAN. One summer evening in 1978, “Bob” was driving outside of Bozeman, Montana when he saw a bright light alongside the road. Thinking there was a fire, he stopped to investigate. Instead he saw a landed craft and three little humanoids. He hid and watched until the humanoids entered the craft which took off and was gone.
+
+A SUNNY DAY WITH ALIENS. One day in May 1979, a family of four exited their apartment in Toronto, Canada when they saw a huge oval-shaped craft hovering mere feet above their building. To their amazement, about thirty humanoid figures were visible through the portholes. They watched for 10 minutes until the craft zoomed away at high speed.
+
+THE LITTLE BOY IN THE UFO. At 6pm on Sep 1, 1984, six-year-old Nao Nishimoto was amazed to see a flying saucer hovering over the field in front of her home in Takamatsu, Japan. Suddenly a face appeared in one of the portholes. It was a little boy, smiling down at her. As the craft left, the little boy waved goodbye.
+
+THE SMILING ALIENS. One night in July 1992, Reuben Taylor and his mom drove long the 101 Freeway in Echo Park, near Los Angeles, California when a huge craft appeared overhead. The craft moved closer and they were amazed to see several human-looking ETs looking down and smiling at them.
+
+ALIEN TOUR BUS. One night in November 2009, an anonymous man was in his home in Schwindegg, Germany when he noticed an object in the sky only 300 feet away. It looked like a floating bus, and inside he saw several humanoid figures staring back at him. He shouted in fear as the UFO quickly moved away.
+
+These twelve cases are just a small sample of the huge number of documented accounts of humanoids coming from across the world. These cases make it clear that we live in a universe populated by all different kinds of people. We are not alone!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/bS_7JqPxEv4">EPISODE #215. TRULY INCREDIBLE: 
 TWELVE WEIRD HUMANOID ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/bS_7JqPxEv4</h5>                                                             <h5>May 10, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>56,756 views  May 10, 2024</h6>
+So many cases of humanoids! The general public has no real idea just how many people are having these experiences. This video presents twelve incredible cases of humanoid encounters from across the planet, from the 1950s to the 2020s. Robotic entities, human-looking ETs, little green men, grays, and more. And of course, compelling evidence: multiple eyewitness testimonies, landing traces, medical effects, and more. Truth is coming out!
 
+BACKYARD ALIENS. Around 9pm on December 15, 1956, Marie Carow stepped into her backyard in Conashaugh, PA. She was hoping to see deer, but instead observed two four-foot-tall helmeted figures staring at her. She called her husband, but he refused to come outside. Later, she found out her neighbors saw a UFO at the same time.
+
+HUMANOIDS IN PONTEJOS. On the evening of January 9, 1969, four employees at a café-bar in Pontejos, Spain received an incredible shock when they saw a UFO with five humanoids hovering right across the street. Unknown to them, another witness also viewed the object. It remained for a short time then darted away. Could it have been interested in a nearby nuclear facility?
+
+ROCK-COLLECTING ALIENS. Around 4am one evening in February 1969, a family of four was awakened by light streaming into their home along the beach near Nuble, Chile. Looking outside, they watched a strange craft land and tall humanoids emerge, poke the sand with weird tubes, and start collecting rocks. After the encounter, they all broke out in a strange rash.
+
+ENCOUNTER WITH A UFO PILOT. On October 5, 1971, pilot Jose Americo Medeiros and three other student pilots were coming in for a landing at Santos Dumont Airport in Rio de Janeiro, Brazil when a UFO began pacing their plane. Suddenly it darted forward and crossed right in front of them. They were shocked to see a gray-skinned humanoid looking right at them.
+
+THE ALIENS AT THE TRAIN STATION. Just before midnight on June 25, 1974, three employees of the Tandil Railway Station in Argentina were shocked to see a bright light outside, followed by the appearance of a short, bearded humanoid. It disappeared after a few moments. One of the men was so traumatized, he suffered a nervous breakdown. The next day, two other people also reported a humanoid in the same area.
+
+THE ROBOT IN THE FOREST. On the night of August 15, 1974, a group of nine witnesses observed a boxy-looking, glowing white, robotic-figure in the La Pelouse Park of Bouxiere-Aux-Dames, France. Soon more witnesses also began reporting a strange glowing figure in the same area. Researchers later discovered a long history of encounters in the area dating back to the 1920s.
+
+LANDING IN TASMANIA. Early one morning in February 1976, an anonymous gentleman from Kettering, Tasmania saw a strange craft come in for a crash landing. Rushing to the site, he was shocked instead to see a small disc-shaped object landed a short distance away. He could see strange forms inside the craft. When it departed, weird landing traces were left on the ground.
+
+HUMANOIDS IN LITTLE HAVEN. In the middle of the night on April 19, 1977, Rosa Grenville, a hotelier at the Haven Fort Hotel in Little Haven, Wales was shocked to see a landed UFO and humanoids right outside her window. Viewing through binoculars she was amazed to see that they wore strange jumpsuits. She tried to wake her husband, but the craft took off before he could see it.
+
+THREE HUMANOIDS IN A SATURN-SHAPED UFO. After seeing strange lights throughout early July 1979 over their home in Schiedam, the Netherlands, two teenagers were amazed to see a Saturn-shaped craft with humanoids inside it, hovering very near the balcony of their home. They also began reporting a wide variety of psychic events.
+
+LITTLE GREEN MEN. While driving to her home in Niva, Denmark late on the evening of September 28, 1988, an anonymous woman was shocked to see two very short greenish humanoids with large heads and pointed chins walking along the road. She pulled a U-turn to get a closer look, but they were gone.
+
+THE ALIEN IN THE WINDOW. On the night of June 27, 2014, a woman from St-Croix, Quebec, Canada was amazed to see a UFO over her home. When her son arrived home shortly later, he reported seeing a short, large-headed humanoid peering in through the backdoor window.
+
+THE ALIENS BY THE CROSS. On May 3, 2022, 88-year-old Lyubov Danilova Smolskaya of Belarus, Russia woke to her home filling with light. Looking outside she saw a landed craft and two bizarre-looking humanoids. They shone a beam of light on her, then got into the craft which floated away. After it was gone, strange landing traces were found.
+
+These twelve incredible humanoid encounter cases make it very clear that people all over the world are having these experiences. There are too many cases to ignore, explain away or cover-up. The truth can no longer be denied. UFOs are real, and we are being visited by extraterrestrials.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/c_QaAdJmVaM">EPISODE #214. 
 TEN STARTLING CASES OF HUMANOIDS AND ALIENS</a>.</h3>
 <h5>LINK: https://youtu.be/c_QaAdJmVaM</h5>                                                             <h5>May 3, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>83,609 views  May 3, 2024</h6>
+Humanoid and alien encounters! They are perhaps the most fascinating aspect of ufology, and have so much to teach us about the ET agenda. This video presents ten cases from all over the world involving a wide variety of extraterrestrials. There are human-looking ETs, little dwarfs, frog-like beings, flying humanoids and more. Many involve multiple witnesses and startling physical evidence such as landing traces, medical effects, animal reactions and electromagnetic disturbances. There are too many cases to ignore, deny or explain away. Something very profound is happening here.
 
+TEN LITTLE ALIENS. One evening in January 1931, cattle-herder Helge Eriksson was walking to his home in Eslov, Sweden when he saw a crowd of ten little men coming towards him. They were only about four feet tall, with oversized heads and long beards. They wore one piece robes with hoods and seemed to float across the ground. They paid no attention to Helge and moved up to a brilliant light source and were gone.
+
+THE ET IN THE PURPLE CAPE. It was a sunny afternoon on February 29, 1964 as David and Ken (age 10 and 9) saw a saucer land near their homes in Plympton, South Australia. To their shock, a door opened and out stepped a human-looking ET with copper-red skin and a big nose. It wore a strange suit with a purple cape. As soon as it saw the boys, it fled back into its craft, which promptly took off. Interestingly, not far away, another lady in Gum Tree, South Australia saw a very similar-looking ET.
+
+THE ALIENS ON THE HIGHWAY. Around 4am on August 23, 1967, Stanley Moxon was driving near Joyceville, Ontario, Canada when he saw a glowing green craft descending alongside the road. He turned off his headlights, drove up to it, and flicked on his headlights. To his shock, it had landed, and two short ETs were outside picking plants. Surprised, they flew back into the craft which took off straight up.
+
+THE FLYING HUMANOID. One night in 1967, Patricia K and her fiancé were driving near Wolstanton, England when she saw a classic flying saucer. It flew away before her fiancé could see it. But eight years later, their 8-year-old son was drawn to look outside by a loud buzzing noise. To his amazement, he saw two 3-foot-tall humanoids flying past his window mere feet away.
+
+I WOULD NOT HARM A HAIR ON YOUR HEAD. Around 3:15 am on January 8, 1974, John E Justice was driving to his home in Springfield, Ohio when his car stalled and his lights went out. Instantly, a brilliant rainbow-colored light appeared, transforming into a small craft. Inside, he was shocked to see five female humanoids, each about four feet tall, with super-long hair. The craft darted away after a few moments, but one year later, he had an even more startling encounter with a humanoid.
+
+I WAS REALLY AFRAID. On the night of November 17, 1975, two college students, Dave Vardeman and Suzanne Erenberger watched a brilliant light descend to the ground near Cedar-Rapids, Iowa. Suzanne was amazed to see a metallic craft with two humanoids inside. But strangely, Dave didn’t remember seeing any craft or humanoids. All he recalls is that they were both frightened enough to flee the area and call the police.
+
+FIFTY FROG-LIKE ETS. At 9pm on May 2, 1976, Dominique Menuge was driving near Matton France when reflections off the side of the road caught his eye. To his shock, he saw about fifty 4-foot-tall frog-like humanoids standing motionless in the field. Terrified, he fled the area, but not before he saw one of the humanoids standing only a few feet away from his car.
+
+ALMOST ABDUCTED BY ALIENS. On September 9, 1976, Hermelindo Silva was walking home with his dog when a UFO appeared overhead. Suddenly it sent down 4 cables with hooks. Short little humanoids came out of the craft and managed to grab him, hook his ankle and pull him up towards the craft. Hermelindo fought with them and freed himself, but not without sustaining some serious injuries.
+
+UNNATURAL EYES. On the night of March 13, 1977, 17-year-old Stephen Taylor was walking to his home in Pembroke, Wales when he saw a brilliant orange craft. He ran away, but shortly later, he came upon the craft, now landed in a field. Then an odd humanoid with frog-like eyes, wearing a jumpsuit walked right up to him. Stephen swung a punch, missed, and ran home in complete terror.
+
+THE ALIEN WITH A MUSTACHE. On the night of December 1, 1977, Emilio Ruiz woke to find the bedroom of his home in Puente San Miguel, Spain, filling with light. Looking out the window, he saw a tall figure approach and peer inside. To his shock, it wasn’t human. He screamed and the figure walked away. Later, he discovered that numerous people in the town had seen unexplained lights.
+
+Ten cases, from across the planet, all involving a wide variety of humanoids and aliens. These cases show that contact with ETs can happen to anyone, anywhere, anytime. The evidence cannot be denied. We are not alone!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/VyoikIl8qKs">EPISODE #213. 
 FIVE REALLY WEIRD EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/VyoikIl8qKs</h5>                                                             <h5>April 26, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>131,560 views  Apr 26, 2024</h6>
+UFO contact is known for high strangeness. When people encounter ETs face-to-face, or are taken onboard, things can go from strange to truly bizarre. This video presents five cases from across the world, which contain incredibly odd and unique elements of high strangeness. Each of these five cases include sightings, landings, humanoids, and an onboard experience. Each contain physical evidence of some kind or another. These cases have some remarkable insights into the UFO/extraterrestrial phenomenon.
+
+THE CASE OF CATHIE CONNELLY. In the summer of 1940, Cathie Connelly was walking down a country lane in Meriden, England when she came upon a small, strange structure. There were tall odd-looking men wearing jumpsuits standing near it. When she returned later, it was gone. Later, while working at a factory, she saw one of the men she had seen next to this craft, and he told Cathie that he was an ET. So began Cathie’s contacts. She was soon taken onboard. She saw human-looking people and blue-skinned beings with cat-like eyes. She was physically examined and given a tour of the craft. They took her to an active war-area and to New York, showing her the Statue of Liberty. Many other incidents of high strangeness occurred, including going back in time to certain childhood events, and to a country in Africa.
+
+THE CASE OF ARNE-HARDER JORGENSEN. One day in Aug of 1956, Arne-Harder Jorgensen (age 10) played Cowboys & Indians with his friends near his home in Vaklev, Denmark. Suddenly he heard foreign-sounding voices and laughter. Peaking outside of his hiding place, he saw three short, bald humanoids wearing jumpsuits and eating berries from a berry bush. Suddenly the ETs turned and stared right at him. Arne tried to run, but found that he couldn’t move. One of the humanoids studied him up and down, and walked away. Then, a silver saucer-shape craft took off. Arne’s paralysis lifted. He ran home to find that it was now dusk. The next morning, they discovered four deep holes in the ground. Also three chickens were missing from a neighbor’s coop. Later, Arne had two close-up UFO sightings.
+
+THE CASE OF ONILSON PATERO. On the night of May 22, 1973, Onilson Patero was driving to his him in Catanduva, Brazil when he picked up a hitchhiker, a young blond-haired, blue-eyed man. As he dropped off the hitchhiker, the man said they would meet again. Continuing his drive, Onilson’s car suddenly lost power. A UFO appeared and shone a beam of light onto his car, turning it transparent. Onilson ran from his car and fainted. He was found unconscious lying next to the road. One year later, on the night of Apr 26, 1974, Onilson saw another UFO. He was struck by a beam of light, and taken onboard, where he saw the same hitchhiker. Onilson was given an exam and experienced many strange events onboard, including seeing his own twin, being taken to another country in Europe and more. The ETs dropped him off. It was now six days later and he was 745 miles from his original location.
+
+THE CASE OF DAVID HAMEL. On Oct 12, 1975, David Hamel (a carpenter,) his wife Ruth and a friend were watching TV in his home in Maple Ridge, Canada. Suddenly the TV screen became staticky and two Asian-looking figures appeared and pulled David up into a craft. David was given a tour of the craft, and volumes of scientific and philosophical information. The ETs warned him about nuclear power, and then told him that they would give him detailed instructions about how to build a free-energy motor. Returning him to his home, David’s life changed as he remained in contact with the ETs. David began a lifelong quest to build a UFO craft, using a concept of counter-rotating magnets. David spent thousands of dollars and eventually built a motor, which spontaneously exploded. He continued his efforts, eventually attracting the attention of prominent scientists. Two books have been written about his case.
+
+THE CASE OF ELIZABETH HESS. In 1954, 13-year-old Elizabeth Hess (pseudonym) and her mother experienced missing time during a trip to the store near their home in New York City. Years later, in November 1989, Elizabeth woke up to find three strange humanoids in her Manhattan apartment. They led her down the street to the Hudson River, where she met a tall gray and 30 other people who had also been led there. A strange experience followed where Elizabeth was instructed to pick a glass and give it to a homeless woman. Next, Elizabeth was back in her home, undergoing a medical procedure at the hands of the ETs, who told her to quit smoking and eating chocolate. Later, Elizabeth had miscarriages where the fetus was missing.
+
+These five cases typify the high strangeness that is so often present during UFO contact. They reveal some of the ETs’ agendas on this planet, and that people all over the world are experiencing contact with a wide variety of humanoids. The evidence speaks for itself. We are not alone!
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/53Emmv7ZHoU">EPISODE #212. STRANGE HUMANOIDS AROUND THE WORLD: 
 TEN EYEWITNESS ACCOUNTS</a>.</h3>
 <h5>LINK: https://youtu.be/53Emmv7ZHoU</h5>                                                             <h5>April 19, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>102,948 views  Apr 19, 2024</h6>
+There are many different kinds of strange humanoids being reported by people all over the world, and it’s been happening for a long time. It’s definitely not just grays! In fact, the variety of ET types is far more numerous than most people realize. This video presents ten cases from across the world, spanning five decades, from the 1950s to the 1990s. Many involve multiple witnesses and different forms of evidence. But most fascinating are all the amazing kinds of ETs.
 
+BROWN-SKINNED MIDGET ETS. One afternoon in the Fall of 1957, a 15-year-old boy was working in the fields south of the small town of Ejstrupholm, Denmark when a metallic craft landed just 100 feet away. To his utter shock, two 3-foot-tall brown-skinned ETs wearing transparent helmets emerged. After a few minutes, they returned to the craft, which took off. The witness was so amazed, he told almost nobody.
+
+LOVERS LANE ALIENS. Late one evening in the Fall of 1966, a young couple drove to an isolated location outside of Rockford, Illinois to enjoy each other’s company in private. Without warning, a bright light appeared overhead. They quickly pulled a U-turn to flee the area, but before they could get away, they saw two gray figures with big black eyes staring back at them. It was an experience they would never forget.
+
+THE ETS IN MELON FIELD. Around dusk on September 12, 1971, Juan Rodriguez Dominguez, who worked as a guard for the giant El Lunarejo melon farm in Aznalcollar, Spain, got the shock of his life when a massive, silver, torpedo-shaped craft landed a short distance away. Dozens of tiny figures wearing uniforms emerged. When Juan confronted them, the ETs chased him, shooting paralyzing lights rays at him.
+
+NUCLEAR RESEARCHER HUMANOID ENCOUNTER. On the night of June 29, 1973, a nuclear researcher/professor was driving with his wife south of Chalk River, Ontario, Canada when they noticed a star-like object pacing their car. Soon it came closer, revealing itself to be a spherical craft with portholes, and through them they could see humanoid figures. And it crossed the road right in front of their car.
+
+HUMANOID INVESTIGATES GRAVESITE. On the evening of July 23, 1977, a family in Lindley, New York were shocked to see multiple UFOs, and then little humanoids running around their backyard. They watched it do strange things to a gravestone nearby. The witnesses finally called the police and the UFOs and humanoids quickly left. But this was just the beginning of a weeks-long series of incredible encounters.
+
+THE ETS IN THE FLYING BOX. One Summer evening in 1978, an anonymous gentleman was walking his dog near his home in Beeston, England when he saw something he could hardly believe: a box-shaped craft floating just above the rooftops. Most amazing, inside he saw several 10-foot-tall skinny figures wearing strange jumpsuits. A few of them saw the witness and waved at him before slowly moving away.
+
+ETS OFFER CAKE. On the evening of December 3, 1979, teen-ager Lilli-Ann Karlsson was taking a walk in the park near her home in Vastervick, Sweden. Suddenly paralyzed, she found herself confronted by a craft in the field right next to her. Two ETs emerged and began to float towards her. They were 5 feet tall, white and glowing. They approached her, holding a piece of what looked like chocolate cake.
+
+THREE LITTLE FLOATING ALIENS. Around dusk on January 12, 1983, Ed Eggen (pseudonym) and his two young sons were shocked to see a little bald man wearing a gray jumpsuit outside their home in Pine Township, Indiana. They ran outside to investigate. Seconds later, they noticed a second figure, and then a third. They approached within feet of them before all three figures converged and darted off into the sky.
+
+THE GLOWING GIANT. Late in the evening of March 6, 1983, Madame Fauquembergue was in her home in Pas-de-Calais, France when she noticed a strange glowing figure moving around outside her home. Looking more closely, she saw it was 7 or 8 feet tall and wearing a silver jumpsuit. Earlier that evening, she and her family had been puzzled when the entire house lit up with light.
+
+THE SHRUGGING GRAY. It was about 2:00 am on July 21, 1991, when 3 young girls decided to go outside and jump on the trampoline in the backyard of their home in a small town in central Missouri. They all saw a strange light, and moments later, a 4-foot-tall gray figure approached them. The girls fled into their home, but the gray then began to stare at them through the window, and kept doing for a period of hours.
+
+These ten cases provide a small sample of the huge number of cases taking place across the planet. These cases show unique aspects and corroborating similarities. The evidence includes landing traces, medical effects, animal reactions, and more. Each case provides another piece of the puzzle, and shows us that we are not alone. Humans are just one of many types of intelligent life in this vast universe.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Y6gcstxbaDo">EPISODE #211. 
 FIVE FASCINATING ONBOARD UFO ENCOUNTERS</a>.</h3>
 <h5>LINK: https://youtu.be/Y6gcstxbaDo</h5>                                                             <h5>April 12, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h6>93,806 views  Apr 12, 2024</h6>
+UFO sightings, landings and face-to-face encounters with extraterrestrials are all undeniably interesting. But perhaps the most extraordinary of all UFO encounters are cases where people have been taken onboard a craft. These cases leave little room for misperception or denial. They represent the cutting edge of UFO research, and make it very clear that we are not alone. This video presents five extensive onboard UFO encounters from across the world. Three of these cases involve multiple witnesses. All of them have physical evidence. But most important, these five cases show what it’s like to have an onboard UFO encounter and interact directly with ETs.
 
+THE ONBOARD ENCOUNTER OF PROFESSOR JOAO DE FREITAS GUIMARAES. On the night of July 16, 1956, Joao de Freitas Guimaraes was taking a walk along the beach in San Sebastiao, Brazil. Sitting down to rest, he was shocked to see a craft emerge from the ocean, fly towards him, and land on the beach. Two human-looking figures wearing jumpsuits emerged and invited him onboard the craft. Inside, Joao was amazed to see how advanced the craft was. Looking out a porthole, he saw the craft zoom into outer space. The ETs warned him about humanity’s savage nature and use of atomic weapons. They promised to meet him again and returned him to the beach. At first Joao kept his experience a secret, but word leaked out to the press and Joao’s story was published widely in newspapers. And soon he would have another encounter.
+
+THE ONBOARD ENCOUNTERS OF LYDIA STALNAKER. In 1955, at age 9, Lydia Stalnaker and her two siblings walked near their home in Jacksonville, Florida. Suddenly there was a flash of light and a strange man began to approach. They ran home in fear. Lydia didn’t realize it, but she had been taken onboard a UFO. Later in 1974, Lydia (now age 28) drove outside Jacksonville and saw a UFO land near the highway. She and another man pulled over. They drove together to get a closer look, and suddenly Lydia lost consciousness. When a third missing-time UFO sighting occurred, Lydia sought hypnosis. She learned that she had been taken onboard UFOs three times, meeting grays and other humanoids. They warned her that Earth was facing future catastrophes. Lydia began exhibiting psychic abilities, and before long, was taken onboard again!
+
+THE ONBOARD EXPERIENCE OF JOE, CAROL & LUKE. On the night of June 20, 1976, a couple and their infant son were driving near Goodland, Kansas when they saw multiple UFOs. After watching them and talking about how interesting it might be to be taken onboard, one of the craft swooped over their car. The couple suddenly realized that their car was now five miles further ahead down the road, and they were missing hours of time. They also found strange marks on their body. Later, under hypnosis, they recalled that they were taken onboard by friendly ETs. They were separated and given physical exams. The husband experienced a profound spiritual event. All three were then returned to their car with little memory of the event. Ultimately, they were profoundly changed in a positive way by their encounter.
+
+THE ONBOARD ENCOUNTER OF MYRIAM & SONIA. While driving through Bayamon, Puerto Rico, Myriam X and her mother Sonia were shocked when darkness enveloped them, surrounded by intense light and a period of missing time. Suddenly they were 45 miles away in Arecibo. Myriam and Sonia (both who had been ill) now found themselves miraculously healed. Years later, under hypnosis, they recalled that a UFO had appeared over their car. The craft pulled them and their car into the craft, where they met grays and human-looking ETs. They were separated, given exams, and healed. Both were also given information about the ETs, their agenda on Earth, and much more. They then had a profound reunion with deceased loved ones. They were then returned to their car.
+
+THE ONBOARD ENCOUNTER OF FERNANDO X. One evening in autumn of 1986, a young electrician by the name of Fernando was riding his motorcycle outside of Calleredo, Spain when he saw multiple UFOs overhead. When one of them zoomed towards him, Fernando jumped on his motorcycle to escape. But the engine wouldn’t work. Fernando watched in awe as the UFO floated a few feet off the ground. Two gray aliens emerged and pulled him onboard. Fernando was placed on a table with a bright light overhead, while the ETs examined him. Shortly later he fell asleep, waking up to find himself lying next to his motorcycle. The UFO and ETs were gone, and three hours had passed. Fernando rushed home where he found a strange mark on his body.
+
+These five cases are just the tip of the iceberg. Many researchers believe these cases might number in the millions. These cases provide incontrovertible evidence of onboard UFO encounters. The time has come for truth and transparency on this subject. There are too many cases to ignore; we are being visited by extraterrestrials.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/P_BKYS32Iok">EPISODE #210. 
 TEN TRULY STRANGE UFO ENCOUNTERS</a>.</h3>
