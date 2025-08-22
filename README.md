@@ -1,3 +1,6 @@
+# ufo-dennett
+UFO incidences written about by Preston Dennett from 2017 to 2025. UFO info is dated from 1930's worldwide.
+
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/TnGr33HOAaM" target="_blank" rel="noopener noreferrer">EPISODE #275. 
 MINDBOGGLING HUMANOID ENCOUNTER: SIX SHOCKING CASES</a>.</h3>
@@ -7981,9 +7984,12 @@ UFOs are known to be attracted to technological installations such as power stat
 
 There are more than 20 cases on record. These are not simple sightings, but also include physiological effects and strange electromagnetic effects. In a few cases, photographs have been taken. There's at least one case of a landing. Humanoids have been seen, and there's even an apparent abduction. Clearly something very profound is happening here!
 
-San Quentin Prison, Lebanon Correctional Institute, Colorado State Penitentiary and many others have all had encounters. Some locations have been visited repeatedly. The question, of course, is why? After watching this presentation, you will know the answer.
+San Quentin Prison, Lebanon Correctional Institute, Colorado State Penitentiary and many 
+others have all had encounters. Some locations have been visited repeatedly. The question, 
+of course, is why? After watching this presentation, you will know the answer.
 
-For those who are interested in learning more about UFOs over prisons, I collected many of these cases in chapter six of my book, "Not from Here: Volume Three," now available on Amazon.
+For those who are interested in learning more about UFOs over prisons, I collected many of 
+these cases in chapter six of my book, "Not from Here: Volume Three," now available on Amazon.
 
 https://www.amazon.com/dp/1719142742/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
@@ -7992,11 +7998,22 @@ NIGHT OF THE UFOS</a>.</h3>
 <h5>LINK: https://youtu.be/ybm2Z1f1oPg</h5>                                                             <h5>July 25, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>18,772 views  Jul 25, 2020</h6>
-On the evening of June 14, 1992, a massive UFO wave occurred over the small community of Topanga Canyon, California. Hundreds of UFOs were seen by multiple witnesses across the canyon. Objects hovered over homes, shot across the sky, chased cars down the road, even lifting one up in the sky. But the full story has never been told. Until now. This video presents brand new startling information about this famous case, including excerpts from phone calls made to the police, new eyewitnesses, photographs and more, including an apparent abduction.
+On the evening of June 14, 1992, a massive UFO wave occurred over the small community of 
+Topanga Canyon, California. Hundreds of UFOs were seen by multiple witnesses across the 
+canyon. Objects hovered over homes, shot across the sky, chased cars down the road, even 
+lifting one up in the sky. But the full story has never been told. Until now. This video 
+presents brand new startling information about this famous case, including excerpts from 
+phone calls made to the police, new eyewitnesses, photographs and more, including an 
+apparent abduction.
 
-On this evening, numerous people called the police, the local newspaper, and UFO groups. In this video, you will hear the police tape firsthand, and listen to actual witnesses reporting the incredible events which occurred on that evening. The night of June 14, 1992 remains one of the most incredible UFO events in California history, and marked the beginning of a two-year-long UFO wave of stupendous proportions.
+On this evening, numerous people called the police, the local newspaper, and UFO groups. 
+In this video, you will hear the police tape firsthand, and listen to actual witnesses 
+reporting the incredible events which occurred on that evening. The night of June 14, 
+1992 remains one of the most incredible UFO events in California history, and marked the 
+beginning of a two-year-long UFO wave of stupendous proportions.
 
-My book, "UFOs over Topanga" tells the story of this UFO wave, and for those who are interested, is available on Amazon.
+My book, "UFOs over Topanga" tells the story of this UFO wave, and for those who are 
+interested, is available on Amazon.
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Hsn4vI9auDA" target="_blank" rel="noopener noreferrer">EPISODE #019. 
@@ -8005,13 +8022,22 @@ THE UFO BREATHING POOL</a>.</h3>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,096 views  Jul 18, 2020</h6>
 Are you ready to go swimming inside a UFO?
-It's among the strangest of events that occur to abductees when they are taken onboard an extraterrestrial craft. They are placed in an aquarium-like tank and made to breathe a thick gelatinous liquid. Many researchers have investigated cases like these: David Jacobs, Barbara Lamb, Yvonne Smith and others. While there are several theories, the exact purposes of the UFO breathing pool remain unknown.
+It's among the strangest of events that occur to abductees when they are taken onboard an 
+extraterrestrial craft. They are placed in an aquarium-like tank and made to breathe a 
+thick gelatinous liquid. Many researchers have investigated cases like these: David 
+Jacobs, Barbara Lamb, Yvonne Smith and others. While there are several theories, the 
+exact purposes of the UFO breathing pool remain unknown.
 
-This video presents more than a dozen cases of abductees who have experienced the UFO breathing pool. What is it like to be placed in this liquid?  What kind of liquid is it? How are people able to breathe in this liquid and still survive? There are now enough documented cases to provide a clear picture of this unique procedure and the reasons behind it.
+This video presents more than a dozen cases of abductees who have experienced the UFO 
+breathing pool. What is it like to be placed in this liquid?  What kind of liquid is it? 
+How are people able to breathe in this liquid and still survive? There are now enough 
+documented cases to provide a clear picture of this unique procedure and the reasons 
+behind it.
 
 SPECIAL NOTE: THIS VIDEO ALSO CONTAINS MYSTERIOUS ORBS!
 
-If you'd like to learn more about the UFO Breathing Pool, please check out Chapter Eight of my book, "Not from Here: Volume Two," now available on Amazon.
+If you'd like to learn more about the UFO Breathing Pool, please check out Chapter Eight 
+of my book, "Not from Here: Volume Two," now available on Amazon.
 
 https://www.amazon.com/dp/153280458X/...
 
@@ -8021,13 +8047,20 @@ ALIEN DRINKS</a>.</h3>
 <h5>LINK: https://youtu.be/EM0CV-PWIDI</h5>                                                             <h5>July 12, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,320 views  Jul 12, 2020</h6>
-If an extraterrestrial handed you a glass of strange liquid and said, "Drink this," would you drink it?
+If an extraterrestrial handed you a glass of strange liquid and said, "Drink this," would 
+you drink it?
 
-It's one of the stranger and more unusual experiences that people have when taken onboard a UFO. They are given alien drinks, weird glowing liquids, and are told to drink them. What are the contents of these extraterrestrial beverages? What do they taste like? What is the purpose behind them? 
+It's one of the stranger and more unusual experiences that people have when taken onboard 
+a UFO. They are given alien drinks, weird glowing liquids, and are told to drink them. 
+What are the contents of these extraterrestrial beverages? What do they taste like? What 
+is the purpose behind them? 
 
-This video presents 15 cases in which abductees were given alien drinks. There aren't a lot of cases, but there are enough to provide some insights and answers into this unique and bizarre aspect of UFO abductions.
+This video presents 15 cases in which abductees were given alien drinks. There aren't a 
+lot of cases, but there are enough to provide some insights and answers into this unique 
+and bizarre aspect of UFO abductions.
 
-For those who'd like to learn more, I present these cases in detail in my book, "Not from Here: Volume Two," now available on Amazon.
+For those who'd like to learn more, I present these cases in detail in my book, "Not from 
+Here: Volume Two," now available on Amazon.
 
 https://www.amazon.com/dp/153280458X/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
@@ -8040,18 +8073,18 @@ In Part One of this presentation,  dozens of cases of UFOs hovering over schools
 presented. Now, in Part Two, we explore the more exciting cases involving landings and 
 humanoids. There are five very famous incidents of UFOs landing next to schools:
 
-1. Ariel Elementary School, Ruwa, Zimbabwe.
-2. Broad Haven Primary School, Wales.
-3. Crestview Elementary School, Opa-Locka, Florida.
-4. Hillsdale College, Hillsdale, Michigan.
-5. Westall High School, Melbourne, Australia.
+	1. Ariel Elementary School, Ruwa, Zimbabwe.
+	2. Broad Haven Primary School, Wales.
+	3. Crestview Elementary School, Opa-Locka, Florida.
+	4. Hillsdale College, Hillsdale, Michigan.
+	5. Westall High School, Melbourne, Australia.
 
 What many people don't know is that these five cases are just the tip of the iceberg. 
 There are at least 40 documented accounts of UFOs landing next to schools. Often 
 humanoids are seen. In some cases, messages are given. In a few cases, children are 
 abducted. Government coverups, landing trace evidence, medical effects and more. The 
-cases reach back more than 100 years and come from all over the world.  Something 
-very profound is happening here!
+cases reach back more than 100 years and come from all over the world.  Something very 
+profound is happening here!
 
 This video presents the cases chronologically, as they happened.
 
@@ -8074,26 +8107,25 @@ are on record. These are typically long lasting, low level, daylight encounters 
 large groups of witnesses. Something very profound is happening here.
 
 This video is Part One of a two-part presentation on the history of schoolyard UFO 
-encounters on our planet. Why are UFOs targeting schools? What happens when a UFO 
-hovers over a school playground and is viewed by hundreds of witnesses, including 
-teachers? 
+encounters on our planet. Why are UFOs targeting schools? What happens when a UFO hovers 
+over a school playground and is viewed by hundreds of witnesses, including teachers? 
 
 The cases shown here will answer these questions and more. 
 
 Part One covers dozens of sightings, starting as early as 1853 and continuing to the 
-present day. There are cases of UFOs hovering at extremely low levels, sometimes 
-causing panic on the playground. There are cases involving photographs and moving 
-films. Two cases involve physical evidence in the form of angel hair. In some cases, 
-there is a strong government response. 
+present day. There are cases of UFOs hovering at extremely low levels, sometimes causing 
+panic on the playground. There are cases involving photographs and moving films. Two 
+cases involve physical evidence in the form of angel hair. In some cases, there is a 
+strong government response.
 
 And this is just the beginning! While the sightings are amazing enough, even more 
 astonishing are the many cases of landings and humanoids.  Part Two of this 
-presentation: "Schoolyard UFO Encounters Part Two: Landings and Humanoids," 
-covers the cases of actual contact, revealing the truth behind the alien agenda 
-of targeting schools. 
+presentation: "Schoolyard UFO Encounters Part Two: Landings and Humanoids," covers 
+the cases of actual contact, revealing the truth behind the alien agenda of 
+targeting schools.
 
-All these cases and more have been collected in my book, "Schoolyard UFO Encounters: 
-100 True Accounts," now available on Amazon.
+All these cases and more have been collected in my book, "Schoolyard UFO Encounters: 100 
+True Accounts," now available on Amazon.
 
 https://www.amazon.com/Schoolyard-UFO...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
@@ -8273,8 +8305,8 @@ PHONE CALL FROM AN ET</a>.</h3>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,507 views  Nov 25, 2017</h6>
 <p>Have you ever received a phone call from an ET? As fantastic as it sounds, some people 
-have. UFO contact comes in many different forms, including by telephone. In this video 
-I present several cases in which people have held telephone conversations with 
+have. UFO contact comes in many different forms, including by telephone. In this video I 
+present several cases in which people have held telephone conversations with 
 extraterrestrials. For more info, see my book, "Not from Here: Vol 1."</p>
 
 <h6>TRANSCRIPT</h6>
@@ -8452,4 +8484,5 @@ more. In many of these cases, the UFOs land and entities are seen. In some cases
 mines are physically effected.</p>
 
 <h7>Create Date: 8/18/2025 9+pm<br>
-Last Modified: 8/20/2025 9+pm</h7>
+Last Modified: 8/20/2025 9+pm<br>
+Last Modified: 8/21/2025 8+pm</h7>
