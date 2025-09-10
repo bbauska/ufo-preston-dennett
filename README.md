@@ -5,202 +5,202 @@
 from 1930's worldwide.</h2>
 
 <h3>UFO incidences dated, early-20th century - 2025, worldwide.</h3>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #285 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title"><a href="https://youtu.be/E9c5mov1PcA" target="_blank" 
-          rel="noopener noreferrer">EPISODE #285.<br>
-          SEVEN AMAZING<br>
-          ONBOARD<br>
-          UFO ENCOUNTERS</a></h2>
-        <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #285 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title"><a href="https://youtu.be/E9c5mov1PcA" target="_blank" 
+rel="noopener noreferrer">EPISODE #285.<br>
+SEVEN AMAZING<br>
+ONBOARD<br>
+UFO ENCOUNTERS</a></h2>
+<article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h5>Sep 5, 2025</h5>
 
 <p class="tallFirstLetter">Onboard UFO encounters are perhaps the most extensive and interesting of all UFO experiences. They are also the most controversial. Skeptics try to explain these reports as the results of hoaxes, hallucinations, misperceptions or mental illness. But an objective examination of the reports refutes these explanations. The fact is, cases like these have occurred for over 100 years, come from across the planet, and are reported by a wide variety of people. There is a reason these visitors are coming to our planet, and as the onboard cases show, the reason is us! This video presents seven little known onboard UFO encounters, each adding another piece of the puzzle toward solving the UFO mystery.</p>
 
-          <p><b>I WAS COMPLETELY PARALYZED</b>. On <b>November 2, 1954</b>, Maurilio Braga Godoi was walking to his home in Santo Amaro, Brazil, and came upon a landed UFO. He wanted to run but felt himself drawn inside it. He saw a glowing map on a weird table. He was met by three short humanoids with dark skin and dark hair, wearing gray jumpsuits, who were interested in examining him. He was taken on a tour over South America and was given a strange liquid to drink before being returned. The case was investigated by the Brazilian military who classified it as unknown.</p>
+<p><b>I WAS COMPLETELY PARALYZED</b>. On <b>November 2, 1954</b>, Maurilio Braga Godoi was walking to his home in Santo Amaro, Brazil, and came upon a landed UFO. He wanted to run but felt himself drawn inside it. He saw a glowing map on a weird table. He was met by three short humanoids with dark skin and dark hair, wearing gray jumpsuits, who were interested in examining him. He was taken on a tour over South America and was given a strange liquid to drink before being returned. The case was investigated by the Brazilian military who classified it as unknown.</p>
 
-          <p><b>I WAS SO SCARED</b>. Gerardo Scharff had an abusive childhood and was used as a slave by a ruthless dairy farmer in Villa Maria, Argentina. He prayed nightly for help. One <b>night in May 1966</b>, at age 12, a strange craft landed, and tall beings brought him onboard. They asked him about his life and gave him a tour of the craft. He was taken into space and shown the solar system. He was taken to another planet and shown an alien city. He was examined, fed a strange liquid, given prophecies of future events, and then returned. The ETs soon visited him again, providing food and helping to free him from his abusive situation.</p>
+<p><b>I WAS SO SCARED</b>. Gerardo Scharff had an abusive childhood and was used as a slave by a ruthless dairy farmer in Villa Maria, Argentina. He prayed nightly for help. One <b>night in May 1966</b>, at age 12, a strange craft landed, and tall beings brought him onboard. They asked him about his life and gave him a tour of the craft. He was taken into space and shown the solar system. He was taken to another planet and shown an alien city. He was examined, fed a strange liquid, given prophecies of future events, and then returned. The ETs soon visited him again, providing food and helping to free him from his abusive situation.</p>
 
-          <p><b>THEY WERE FRIENDLY</b>. One <b>morning in July 1974</b>, three teenage boys from Fairview, NJ, were walking home after playing basketball when a UFO appeared overhead. Suddenly, they found themselves inside. One of the witnesses saw his two friends being examined by gray aliens, who spoke with him telepathically. He believes they were helping his friends with their heart conditions. He counted about 25 grays. Looking out a porthole, he saw his hometown below him. Suddenly, all three were returned, and he watched the craft depart. His two friends had missing time, and had no memory of being onboard.</p>
+<p><b>THEY WERE FRIENDLY</b>. One <b>morning in July 1974</b>, three teenage boys from Fairview, NJ, were walking home after playing basketball when a UFO appeared overhead. Suddenly, they found themselves inside. One of the witnesses saw his two friends being examined by gray aliens, who spoke with him telepathically. He believes they were helping his friends with their heart conditions. He counted about 25 grays. Looking out a porthole, he saw his hometown below him. Suddenly, all three were returned, and he watched the craft depart. His two friends had missing time, and had no memory of being onboard.</p>
 
-          <p><b>THEY ONLY WANTED TO HELP ME</b>. On the <b>night of February 28, 1984</b>, Tom Fraser had a horrific motorbike accident in Guildford, England. Moments before hitting the ground, he saw a glowing light in the sky. In the seconds following the accident, he himself badly injured, lying on a table onboard a UFO. Gray ETs promised to heal him and said they had a mission for him. Tom was healed, and given a tour of the craft. His next memory was of waking up in a hospital with only a broken arm, which shocked the doctors as they thought he should be much more severely injured.</p>
+<p><b>THEY ONLY WANTED TO HELP ME</b>. On the <b>night of February 28, 1984</b>, Tom Fraser had a horrific motorbike accident in Guildford, England. Moments before hitting the ground, he saw a glowing light in the sky. In the seconds following the accident, he himself badly injured, lying on a table onboard a UFO. Gray ETs promised to heal him and said they had a mission for him. Tom was healed, and given a tour of the craft. His next memory was of waking up in a hospital with only a broken arm, which shocked the doctors as they thought he should be much more severely injured.</p>
 
-          <p><b>WE’RE JUST CURIOUS</b>. On the <b>night of October 13, 1994</b>, a college student was asleep in her dorm-room in Buffalo, NY, when she woke up being levitated out of her room. Seconds later, she found herself on a metal table, unable to move, being examined by gray aliens. They communicated with her telepathically, reassuring her that they meant no harm. Suddenly she awoke back in her room. She later found a strange mark on her lower back.</p>
+<p><b>WE’RE JUST CURIOUS</b>. On the <b>night of October 13, 1994</b>, a college student was asleep in her dorm-room in Buffalo, NY, when she woke up being levitated out of her room. Seconds later, she found herself on a metal table, unable to move, being examined by gray aliens. They communicated with her telepathically, reassuring her that they meant no harm. Suddenly she awoke back in her room. She later found a strange mark on her lower back.</p>
 
-          <p><b>I WAS EXTREMELY SCARED</b>. On the <b>night of June 16, 2002</b>, two 9-year-old cousins were taking a walk near their home in Blanchard, OK when they felt a weird vibration, followed by a strange darkness. A loud whooshing sound came next and suddenly they saw a large craft hover and land next to them. Three grays appeared and pulled them onboard the craft and examined them. One of them also saw a human-looking figure onboard. He also saw a tub of black liquid, before being returned. They found out that their parents had been searching for them for over an hour.</p>
+<p><b>I WAS EXTREMELY SCARED</b>. On the <b>night of June 16, 2002</b>, two 9-year-old cousins were taking a walk near their home in Blanchard, OK when they felt a weird vibration, followed by a strange darkness. A loud whooshing sound came next and suddenly they saw a large craft hover and land next to them. Three grays appeared and pulled them onboard the craft and examined them. One of them also saw a human-looking figure onboard. He also saw a tub of black liquid, before being returned. They found out that their parents had been searching for them for over an hour.</p>
 
-          <p><b>IT GOT EXTREMELY BIZARRE</b>. One <b>night in October 2010</b>, Frank woke up to find himself on the balcony of his apartment in Harleysville, PA. Directly overhead was a large craft. He felt himself floating upwards. Moments later, he was inside the craft. He was unable to focus his eyes, but recalls being physically examined by humanoid beings, and then suddenly waking up sitting, up in bed. After another later encounter, he decided that it was time to seek help.</p>
+<p><b>IT GOT EXTREMELY BIZARRE</b>. One <b>night in October 2010</b>, Frank woke up to find himself on the balcony of his apartment in Harleysville, PA. Directly overhead was a large craft. He felt himself floating upwards. Moments later, he was inside the craft. He was unable to focus his eyes, but recalls being physically examined by humanoid beings, and then suddenly waking up sitting, up in bed. After another later encounter, he decided that it was time to seek help.</p>
 
-          <p>These seven cases represent the tip of the iceberg. None of these witnesses needed hypnosis to recall their encounters. None of them are seeking attention. This sort of experience is far more common than most people believe. It represents the very heart of the UFO phenomenon. And it also has the potential to answer the many questions surrounding extraterrestrial contact. For that reason alone, these cases should be taken seriously.</p>
+<p>These seven cases represent the tip of the iceberg. None of these witnesses needed hypnosis to recall their encounters. None of them are seeking attention. This sort of experience is far more common than most people believe. It represents the very heart of the UFO phenomenon. And it also has the potential to answer the many questions surrounding extraterrestrial contact. For that reason alone, these cases should be taken seriously.</p>
 
-          <p><a href="https://prestondennett.weebly.com/">PRESTON DENNETT WEBSITE</a>.</p>
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #284 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title"><a href="https://youtu.be/E9c5mov1PcA" target="_blank" 
-          rel="noopener noreferrer">EPISODE #284.<br>
-          DON'T BE SCARED:<br>
-          TEN VERY STRANGE<br>
-          HUMANOID ENCOUNTERS</a></h2>
-        <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Aug 29, 2025</h5>
+<p><a href="https://prestondennett.weebly.com/">PRESTON DENNETT WEBSITE</a>.</p>
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #284 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title"><a href="https://youtu.be/E9c5mov1PcA" target="_blank" 
+rel="noopener noreferrer">EPISODE #284.<br>
+DON'T BE SCARED:<br>
+TEN VERY STRANGE<br>
+HUMANOID ENCOUNTERS</a></h2>
+  <article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h5>Aug 29, 2025</h5>
 
-          <p class="tallFirstLetter">Cases of strange humanoids come from all over the world. 
-            They have been reported by a wide variety of people for over 100 years. The huge 
-            number of cases represents the best evidence that something very profound is 
-            happening here. The video presents 10 cases, each of which shares remarkable 
-            commonalities but also have unique details of high strangeness. These cases have 
-            volumes to teach us about the extraterrestrial presence on our planet, such as 
-            who these beings are, where they come from and why they are here.</p>
+<p class="tallFirstLetter">Cases of strange humanoids come from all over the world. 
+  They have been reported by a wide variety of people for over 100 years. The huge 
+  number of cases represents the best evidence that something very profound is 
+  happening here. The video presents 10 cases, each of which shares remarkable 
+  commonalities but also have unique details of high strangeness. These cases have 
+  volumes to teach us about the extraterrestrial presence on our planet, such as 
+  who these beings are, where they come from and why they are here.</p>
 
-          <p><b>I BEHELD AN INCREDIBLE THING</b>. Security guard Francesco Rizzi never believed in 
-            UFOs,  but at <b>2:20 am on December 17, 1962</b>, he changed his mind. He was guarding 
-            a textile plant in the heart of Milan, Italy, when a craft dropped from the sky and 
-            hovered mere feet above the ground. A short humanoid emerged and began to make weird 
-            hand signals for Francesco to approach. A second humanoid appeared calling the first 
-            one back inside, and the craft took off.</p>
+<p><b>I BEHELD AN INCREDIBLE THING</b>. Security guard Francesco Rizzi never believed in 
+  UFOs,  but at <b>2:20 am on December 17, 1962</b>, he changed his mind. He was guarding 
+  a textile plant in the heart of Milan, Italy, when a craft dropped from the sky and 
+  hovered mere feet above the ground. A short humanoid emerged and began to make weird 
+  hand signals for Francesco to approach. A second humanoid appeared calling the first 
+  one back inside, and the craft took off.</p>
 
-          <p><b>A NICE LITTLE MAN</b>. Throughout <b>October and November of 1965</b>, a massive UFO wave struck the city of Mogi-Guacu, in Sao Paolo, Brazil. There were thousands of witnesses, but only a few saw humanoids such as one farm family who seemed to be a target when craft landed at least twice on their farm, humanoids came out and gathered samples from the ground. It was one of many other humanoid cases in the area.</p>
+<p><b>A NICE LITTLE MAN</b>. Throughout <b>October and November of 1965</b>, a massive UFO wave struck the city of Mogi-Guacu, in Sao Paolo, Brazil. There were thousands of witnesses, but only a few saw humanoids such as one farm family who seemed to be a target when craft landed at least twice on their farm, humanoids came out and gathered samples from the ground. It was one of many other humanoid cases in the area.</p>
 
-          <p><b>I WILL DENY IT</b>. One <b>night in October 1968</b>, a pastor and three female high-school students drove along a remote road near Hastings, North Dakota when a UFO began to pace their car. The two girls in the backseat watched excitedly as they saw short gray humanoids looking down at them. Strangely, the pastor and the girl in front refused to even look. The UFO followed them for several miles then quickly darted off.</p>
+<p><b>I WILL DENY IT</b>. One <b>night in October 1968</b>, a pastor and three female high-school students drove along a remote road near Hastings, North Dakota when a UFO began to pace their car. The two girls in the backseat watched excitedly as they saw short gray humanoids looking down at them. Strangely, the pastor and the girl in front refused to even look. The UFO followed them for several miles then quickly darted off.</p>
 
-          <p><b>NO SATISFACTORY EXPLANATION</b>. On the <b>night of October 1, 1975</b>, two young men from Hakushu, Japan took a drive into the foothills of the southern Alps. Right after parking their car in an empty parking lot, one of the men saw strange humanoids around the car. Suddenly the car was drawn backwards several times. They drove off in fear. They returned later and the same thing happened again.</p>
+<p><b>NO SATISFACTORY EXPLANATION</b>. On the <b>night of October 1, 1975</b>, two young men from Hakushu, Japan took a drive into the foothills of the southern Alps. Right after parking their car in an empty parking lot, one of the men saw strange humanoids around the car. Suddenly the car was drawn backwards several times. They drove off in fear. They returned later and the same thing happened again.</p>
 
-          <p><b>DON’T BE SCARED</b>. At age 7, David woke up in the bedroom of his home in Plattsmouth, Nebraska to see a gray alien staring at him. It told him, ‘Don’t be scared, turn around,” which he did. When he looked back, the gray was gone. He woke up his brother who slept in the same room, and moments later, they saw the gray again peeking into the doorway.</p>
+<p><b>DON’T BE SCARED</b>. At age 7, David woke up in the bedroom of his home in Plattsmouth, Nebraska to see a gray alien staring at him. It told him, ‘Don’t be scared, turn around,” which he did. When he looked back, the gray was gone. He woke up his brother who slept in the same room, and moments later, they saw the gray again peeking into the doorway.</p>
 
-          <p><b>DID YOU SEE WHAT I JUST SAW?</b> One <b>morning in May 1976</b>, two men were driving along a road just outside of Valdez, Alaska, when they saw a UFO landed in the field right along the highway. To their amazement, a ramp opened up and two gray ETs emerged. They seemed to be in a hurry. The men drove on but immediately turned around. When they returned, the craft was gone.</p>
+<p><b>DID YOU SEE WHAT I JUST SAW?</b> One <b>morning in May 1976</b>, two men were driving along a road just outside of Valdez, Alaska, when they saw a UFO landed in the field right along the highway. To their amazement, a ramp opened up and two gray ETs emerged. They seemed to be in a hurry. The men drove on but immediately turned around. When they returned, the craft was gone.</p>
 
-          <p><b>NOT OF THIS WORLD</b>. On the <b>night of July 25, 1982</b>, world-famous bullfighter, Rafale Peralta was driving near Punta Umbria, Spain, when he noticed strange lights along the beach. He stopped his car and went to investigate. To his shock, he came upon a landed UFO and a 7-foot-tall silver-suited humanoid. The being tried to speak, but when Rafael answered, the being returned to the craft and departed.</p>
+<p><b>NOT OF THIS WORLD</b>. On the <b>night of July 25, 1982</b>, world-famous bullfighter, Rafale Peralta was driving near Punta Umbria, Spain, when he noticed strange lights along the beach. He stopped his car and went to investigate. To his shock, he came upon a landed UFO and a 7-foot-tall silver-suited humanoid. The being tried to speak, but when Rafael answered, the being returned to the craft and departed.</p>
 
-          <p><b>I CONTINUE TO WONDER</b>. On the <b>night of October 27, 2010</b>, Carlos woke up in his apartment in Albuquerque, New Mexico, to see a UFO hovering outside his window. Suddenly he sensed grays in his apartment and felt like he was put to sleep. Later, he awoke and saw one of the grays staring at him through the window and then was put to sleep again. He awoke again just in time to watch the UFO depart.</p>
+<p><b>I CONTINUE TO WONDER</b>. On the <b>night of October 27, 2010</b>, Carlos woke up in his apartment in Albuquerque, New Mexico, to see a UFO hovering outside his window. Suddenly he sensed grays in his apartment and felt like he was put to sleep. Later, he awoke and saw one of the grays staring at him through the window and then was put to sleep again. He awoke again just in time to watch the UFO depart.</p>
 
-          <p><b>A CREATURE IN OUR HOME</b>. On <b>October 22, 2015</b>, Emma (of New York State) dreamed that she saw a gray alien crouching under her dining room table. Suddenly she was waking up in bed to a loud crashing noise. Her husband leaped out of bed and into the dining room to see that a small table had broken and spilled its contents. Their burglar alarm was malfunctioning, and they both saw strange orbs outside.</p>
+<p><b>A CREATURE IN OUR HOME</b>. On <b>October 22, 2015</b>, Emma (of New York State) dreamed that she saw a gray alien crouching under her dining room table. Suddenly she was waking up in bed to a loud crashing noise. Her husband leaped out of bed and into the dining room to see that a small table had broken and spilled its contents. Their burglar alarm was malfunctioning, and they both saw strange orbs outside.</p>
 
-          <p><b>I FELT I WAS BEING TAGGED</b>. It was <b>October 6, 2023</b>, and struggling from a recent divorce, Chris took a drive near his home in Olympia, Washington, to vent his emotion. Stopping his car over a bridge, he screamed. At that moment, he felt electricity jolt through him and looked up, saw two craft with three gray ETs looking down at him. He felt a telepathic link as they suddenly flew off, but since then, continues to feel that they are observing him.</p>
-          <p>A face-to-face encounter with a humanoid being is one of the most life-changing experiences a person can have. Only a person who has had this experience can truly understand how transformative it is. There are now many thousands of documented cases, and some researchers believe they may number in the millions. There are too many cases to deny or explain away. We are being visited!</p>
-          <p>PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/</p>
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #283 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title"><a href="https://youtu.be/RviKwrUg198">EPISODE #283.<br>
-          ENCOUNTERS<br>
-          ON A<br>
-          DESERT HIGHWAY</a></h2>
-        <article>
-        <h5>Aug 22, 2025</h5>
-          <p class="tallFirstLetter">On the <b>evening of September 14, 1978</b>, Susan Ware (an artist 
-            and former 3rd Class Petty Officer in the US Navy) and her friend Karen drove along 
-            a remote highway in the deserts of central Utah. It was a beautiful night as the moon 
-            rose, and the stars shone brightly in the clear night sky. But suddenly, things changed. 
-            An eerie darkness settled over the area, blotting out their view of the sky above. Then, 
-            without warning, Karen, (who was driving) slammed on the brakes and came to a stop. Ahead 
-            of them on the highway, they saw something astonishing. A group of twenty oversized 
-            jackrabbits were blocking the road. The rabbits stood unmoving, like sentries, their 
-            backs facing the vehicle. The astonished women exited the car and stared with disbelief. 
-            The jackrabbits were far too large to be normal, and their lack of movement betrayed the 
-            fact that something very odd was happening here.</p>
-          <p>Susan and Karen walked to the front of the car and reached out to hold each other’s hand. 
-            At that moment, the lights in the vehicle turned off, the radio which had been playing 
-            became silent, a blinding light shone down on them from above, and all the rabbits turned 
-            around in one smooth, synchronized movement. Susan screamed. The rabbits were no longer 
-            rabbits: they were gray aliens!</p>
-          <p>The next thing Susan and Karen knew, it was morning, nine hours had passed, and they 
-            were in a small diner in Grand Junction, Colorado, hundreds of miles away from their 
-            original location. Both women stared around them in astonishment. Susan’s mind instantly 
-            went back to the last thing she remembered: the car stopping, the rabbits turning around, 
-            the gray aliens, the bright light coming from above. At the same time, she began having 
-            flashbacks of being in a strange room, seeing gray ETs looking at her, and falling 
-            through the sky high above the Earth. Karen, however, could only remember starting the 
-            drive earlier that evening. She didn’t remember anything about the encounter itself. Both 
-            women had no idea how they got to the diner. And both felt physically ill with burns on 
-            their skin, a raging thirst, nausea and more.</p>
-          <p>Unable to understand and process the experience, both women moved on with their lives. 
-            As Susan recovered, she remembered that as a child, she had several encounters with 
-            strange humanoids looking in through the window of her home. Joining the Navy as a 
-            young woman, she had several UFO sightings. Once while camping with friends in the 
-            desert, she had an astonishing close-up sighting.</p>
-          <p>For decades, she did her best to forget about her strange experiences, particularly 
-            the encounter on the desert highway. She got married, had children and did her best to 
-            live a normal life. But throughout the years, she continued to have experiences with 
-            high strangeness: seeing a spirit, having psychic visions, powerful intuitions and 
-            synchronicities, remote viewing, even a couple of Bigfoot encounters. But always, in 
-            the back of her mind, was the encounter on the desert highway. What happened that night? 
-            What had occurred during those nine hours of missing time?</p>
-          <p>Finally, the time came when Susan realized it was time to figure things out. Her 
-            children had grown up. She was  separated from her husband. She no longer had to 
-            worry about what other people might think. She went to her computer and typed in 
-            the word UFO. To her amazement, the film, “Alien Abduction Answers,” by John Yost 
-            had just been released that very day. This incredible synchronicity inspired her 
-            to reach out to John Yost. This led to her meeting hypnotherapist Debz Shakti.</p>
-          <p>Under hypnosis, Susan recalled being pulled onboard a craft along with her friend 
-            Karen. She found herself in a small room with soft blue walls. A small gray stood 
-            next to her. Susan asked if she could touch the being, and it said yes. It then 
-            proceeded to show her images of war: tanks on the streets, explosions, people 
-            starving and more. The gray warned her that Susan had to do her best to warn the 
-            world about the dangers of human aggression. She was physically examined, and she 
-            believes she may have been healed. Both women were returned to Earth.</p>
-          <p>Going under hypnosis turned out to be a turning point in Susan’s life. She overcame 
-            the fear of her encounter and finally had answers about what happened. She sought 
-            the help of researchers like Richard Banasiak and Earl Grey of MUFON. Susan’s case 
-            garnered a lot of attention and was voted as MUFON’s best case of the year for 2023.</p>
-          <p>Susan’s story is also told in my book, “Humanoids and High Strangeness: Twenty True 
-            UFO Encounters.” Now available!</p>
-          <h4>LINKS</h4>
-          <ul>
-            <li><a href="https://www.youtube.com/watch?v=ENVCS4Vy4wc">THE JACKRABBIT CASE</a></li>
-            <li><a href="">THE LIGHT GATE Welcomes Susan Ware-ET/UFO ...</a></li>
-            <li><a href="https://prestondennett.weebly.com/">PRESTON DENNETT WEBSITE</a></li>
-          </ul>
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #282 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title"><a href="https://youtu.be/TnGr33HOAaM">EPISODE #282.<br>
-          MINDBOGGLING<br>
-          HUMANOID<br>
-          ENCOUNTERS:<br>
-          SIX<br>
-          SHOCKING CASES</a></h2>
-        <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Aug 15, 2025</h5>
+<p><b>I FELT I WAS BEING TAGGED</b>. It was <b>October 6, 2023</b>, and struggling from a recent divorce, Chris took a drive near his home in Olympia, Washington, to vent his emotion. Stopping his car over a bridge, he screamed. At that moment, he felt electricity jolt through him and looked up, saw two craft with three gray ETs looking down at him. He felt a telepathic link as they suddenly flew off, but since then, continues to feel that they are observing him.</p>
+<p>A face-to-face encounter with a humanoid being is one of the most life-changing experiences a person can have. Only a person who has had this experience can truly understand how transformative it is. There are now many thousands of documented cases, and some researchers believe they may number in the millions. There are too many cases to deny or explain away. We are being visited!</p>
+<p>PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/</p>
+  </article>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #283 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h2 class="chapter-title"><a href="https://youtu.be/RviKwrUg198">EPISODE #283.<br>
+ENCOUNTERS<br>
+ON A<br>
+DESERT HIGHWAY</a></h2>
+  <article>
+<h5>Aug 22, 2025</h5>
+<p class="tallFirstLetter">On the <b>evening of September 14, 1978</b>, Susan Ware (an artist 
+  and former 3rd Class Petty Officer in the US Navy) and her friend Karen drove along 
+  a remote highway in the deserts of central Utah. It was a beautiful night as the moon 
+  rose, and the stars shone brightly in the clear night sky. But suddenly, things changed. 
+  An eerie darkness settled over the area, blotting out their view of the sky above. Then, 
+  without warning, Karen, (who was driving) slammed on the brakes and came to a stop. Ahead 
+  of them on the highway, they saw something astonishing. A group of twenty oversized 
+  jackrabbits were blocking the road. The rabbits stood unmoving, like sentries, their 
+  backs facing the vehicle. The astonished women exited the car and stared with disbelief. 
+  The jackrabbits were far too large to be normal, and their lack of movement betrayed the 
+  fact that something very odd was happening here.</p>
+<p>Susan and Karen walked to the front of the car and reached out to hold each other’s hand. 
+  At that moment, the lights in the vehicle turned off, the radio which had been playing 
+  became silent, a blinding light shone down on them from above, and all the rabbits turned 
+  around in one smooth, synchronized movement. Susan screamed. The rabbits were no longer 
+  rabbits: they were gray aliens!</p>
+<p>The next thing Susan and Karen knew, it was morning, nine hours had passed, and they 
+  were in a small diner in Grand Junction, Colorado, hundreds of miles away from their 
+  original location. Both women stared around them in astonishment. Susan’s mind instantly 
+  went back to the last thing she remembered: the car stopping, the rabbits turning around, 
+  the gray aliens, the bright light coming from above. At the same time, she began having 
+  flashbacks of being in a strange room, seeing gray ETs looking at her, and falling 
+  through the sky high above the Earth. Karen, however, could only remember starting the 
+  drive earlier that evening. She didn’t remember anything about the encounter itself. Both 
+  women had no idea how they got to the diner. And both felt physically ill with burns on 
+  their skin, a raging thirst, nausea and more.</p>
+<p>Unable to understand and process the experience, both women moved on with their lives. 
+  As Susan recovered, she remembered that as a child, she had several encounters with 
+  strange humanoids looking in through the window of her home. Joining the Navy as a 
+  young woman, she had several UFO sightings. Once while camping with friends in the 
+  desert, she had an astonishing close-up sighting.</p>
+<p>For decades, she did her best to forget about her strange experiences, particularly 
+  the encounter on the desert highway. She got married, had children and did her best to 
+  live a normal life. But throughout the years, she continued to have experiences with 
+  high strangeness: seeing a spirit, having psychic visions, powerful intuitions and 
+  synchronicities, remote viewing, even a couple of Bigfoot encounters. But always, in 
+  the back of her mind, was the encounter on the desert highway. What happened that night? 
+  What had occurred during those nine hours of missing time?</p>
+<p>Finally, the time came when Susan realized it was time to figure things out. Her 
+  children had grown up. She was  separated from her husband. She no longer had to 
+  worry about what other people might think. She went to her computer and typed in 
+  the word UFO. To her amazement, the film, “Alien Abduction Answers,” by John Yost 
+  had just been released that very day. This incredible synchronicity inspired her 
+  to reach out to John Yost. This led to her meeting hypnotherapist Debz Shakti.</p>
+<p>Under hypnosis, Susan recalled being pulled onboard a craft along with her friend 
+  Karen. She found herself in a small room with soft blue walls. A small gray stood 
+  next to her. Susan asked if she could touch the being, and it said yes. It then 
+  proceeded to show her images of war: tanks on the streets, explosions, people 
+  starving and more. The gray warned her that Susan had to do her best to warn the 
+  world about the dangers of human aggression. She was physically examined, and she 
+  believes she may have been healed. Both women were returned to Earth.</p>
+<p>Going under hypnosis turned out to be a turning point in Susan’s life. She overcame 
+  the fear of her encounter and finally had answers about what happened. She sought 
+  the help of researchers like Richard Banasiak and Earl Grey of MUFON. Susan’s case 
+  garnered a lot of attention and was voted as MUFON’s best case of the year for 2023.</p>
+<p>Susan’s story is also told in my book, “Humanoids and High Strangeness: Twenty True 
+  UFO Encounters.” Now available!</p>
+<h4>LINKS</h4>
+<ul>
+  <li><a href="https://www.youtube.com/watch?v=ENVCS4Vy4wc">THE JACKRABBIT CASE</a></li>
+  <li><a href="">THE LIGHT GATE Welcomes Susan Ware-ET/UFO ...</a></li>
+  <li><a href="https://prestondennett.weebly.com/">PRESTON DENNETT WEBSITE</a></li>
+</ul>
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #282 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title"><a href="https://youtu.be/TnGr33HOAaM">EPISODE #282.<br>
+MINDBOGGLING<br>
+HUMANOID<br>
+ENCOUNTERS:<br>
+SIX<br>
+SHOCKING CASES</a></h2>
+<article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h5>Aug 15, 2025</h5>
 
-          <p class="tallFirstLetter">A face-to-face encounter with a humanoid creature is one 
-            of the most shocking and mindboggling experiences a person can have. And it happens 
-            more often than you might think. There are many thousands of documented cases. Most 
-            people who have these kinds of encounters rarely report it to UFO groups, so the 
-            actual number is likely much higher. These cases have been occurring for at least a 
-            hundred years and probably much longer. They occur all over the world to all kinds 
-            of people. This episode presents six particularly unusual cases. In each of these 
-            cases, the witnesses not only held conversations with the ETs, but they were given 
-            information that impacted them for the rest of their lives.</p>
+<p class="tallFirstLetter">A face-to-face encounter with a humanoid creature is one 
+  of the most shocking and mindboggling experiences a person can have. And it happens 
+  more often than you might think. There are many thousands of documented cases. Most 
+  people who have these kinds of encounters rarely report it to UFO groups, so the 
+  actual number is likely much higher. These cases have been occurring for at least a 
+  hundred years and probably much longer. They occur all over the world to all kinds 
+  of people. This episode presents six particularly unusual cases. In each of these 
+  cases, the witnesses not only held conversations with the ETs, but they were given 
+  information that impacted them for the rest of their lives.</p>
 
-          <p><b>THE ALIEN PLAN</b>. One <b>evening in April 1962</b>, five-year-old 
-            Worthington White woke up in his grandmother’s home in Quantico, Virginia to see light 
-            flooding into his bedroom through the attic door. He noticed three short child-like 
-            figures standing in the room. One of them approached and began to communicate 
-            telepathically, downloading information into his brain. The next morning, he knew his 
-            life would never be the same. In fact, he had incredibly ambitious goals and a whole 
-            new plan for his life. Growing up, he faced many challenges, but the advice given to 
-            him by the ETs appeared in his mind and helped chart the course of his life, eventually 
-            putting him in an incredibly influential career at the very top of the US government.</p>
+<p><b>THE ALIEN PLAN</b>. One <b>evening in April 1962</b>, five-year-old 
+  Worthington White woke up in his grandmother’s home in Quantico, Virginia to see light 
+  flooding into his bedroom through the attic door. He noticed three short child-like 
+  figures standing in the room. One of them approached and began to communicate 
+  telepathically, downloading information into his brain. The next morning, he knew his 
+  life would never be the same. In fact, he had incredibly ambitious goals and a whole 
+  new plan for his life. Growing up, he faced many challenges, but the advice given to 
+  him by the ETs appeared in his mind and helped chart the course of his life, eventually 
+  putting him in an incredibly influential career at the very top of the US government.</p>
 
-          <p><b>A GRAY SAT NEXT TO ME</b>. One <b>night in June 1963</b>, seventeen-year-old Victor was driving 
-          along a remote road in Deptford, New Jersey. Without warning, his headlights failed, 
-          his car engine quit, and he rolled to a stop. A sudden inexplicable and overwhelming 
-          fear swept through him and he realized someone was sitting next to him in his car. 
-          Looking over, he was shocked to see a short gray alien. It looked at him with such 
-          peace that he became instantly calm. In then communicating him with telepathically, 
-          filling his mind with volumes of information. It then disappeared, but from that 
-          point on, Victor slowly discovered that the gray had taught him many things.</p>
+<p><b>A GRAY SAT NEXT TO ME</b>. One <b>night in June 1963</b>, seventeen-year-old Victor was driving 
+along a remote road in Deptford, New Jersey. Without warning, his headlights failed, 
+his car engine quit, and he rolled to a stop. A sudden inexplicable and overwhelming 
+fear swept through him and he realized someone was sitting next to him in his car. 
+Looking over, he was shocked to see a short gray alien. It looked at him with such 
+peace that he became instantly calm. In then communicating him with telepathically, 
+filling his mind with volumes of information. It then disappeared, but from that 
+point on, Victor slowly discovered that the gray had taught him many things.</p>
 
-          <p><b>THE RAINBOW MAN</b>. One <b>afternoon in summer 1974</b>, two brothers, Thomas (age 5) and Kevin 
-          (age 4) from Needmore, Pennsylvania, noticed a hippy-looking man sit down in their 
-          backyard. The man began to communicate to them telepathically. Both boys noticed the 
-          man had a visible aura filled with rainbow colors. The man shared knowledge with them 
-          about themselves and the universe, taking them on an interactive journey into some of 
-          Earth’s natural wonders, and teaching them both about their past, present and future 
-          life. Both were deeply impacted by the encounter and found that the knowledge the man 
-          shared with them helped to guide them throughout their adult life.</p>
+<p><b>THE RAINBOW MAN</b>. One <b>afternoon in summer 1974</b>, two brothers, Thomas (age 5) and Kevin 
+(age 4) from Needmore, Pennsylvania, noticed a hippy-looking man sit down in their 
+backyard. The man began to communicate to them telepathically. Both boys noticed the 
+man had a visible aura filled with rainbow colors. The man shared knowledge with them 
+about themselves and the universe, taking them on an interactive journey into some of 
+Earth’s natural wonders, and teaching them both about their past, present and future 
+life. Both were deeply impacted by the encounter and found that the knowledge the man 
+shared with them helped to guide them throughout their adult life.</p>
 
-          <p><b>I WAS SO SCARED, I STARTED TO CRY</b>. One night in summer 1988, a young boy, Jose de Diego 
+<p><b>I WAS SO SCARED, I STARTED TO CRY</b>. One night in summer 1988, a young boy, Jose de Diego 
 Vazquez, was walking through the Yunque Rain Forest in Puerto Rico as part of a survival 
 training course. Strange lights flew overhead and landed behind a large rock. Jose was 
 petrified with fear when a male humanoid stepped out and began to speak with him, 
@@ -208,7 +208,7 @@ telling him not to be afraid. The figure then used strange symbols to share asto
 information with the young boy. The man disappeared, and Jose ran back to camp only to 
 be faced with a strange mystery. No time had passed during the entire encounter!</p>
 
-          <p><b>THE BLOOD OF THE KINGS</b>. On the night of January 10, 2010, a man heard a strange knocking 
+<p><b>THE BLOOD OF THE KINGS</b>. On the night of January 10, 2010, a man heard a strange knocking 
 sound on his back door in Toledo Ohio. Going to investigate, he was met by a short gray 
 alien. The man invited the gray inside, at which point, a long conversation followed. 
 The gray saud they had observed the man since childhood, that they were very interested 
@@ -216,7 +216,7 @@ in his genetics, and then proceeded to answer all the witness’s questions, eve
 the witness to touch the ET. The ET had some questions of his own. It was an encounter 
 that would change the witness’s life.</p>
 
-          <p><b>THE HARVESTERS OF MEMORIES</b>. Ever since he was a young boy, Christopher, a boy from South 
+<p><b>THE HARVESTERS OF MEMORIES</b>. Ever since he was a young boy, Christopher, a boy from South 
 Dakota, had been visited by gray ETs. Usually they stood by his bed and seemed to study 
 him. The visits occurred at least twice a year, but doubled when Christopher (who was 
 being treated for Aspergers and depression) decided to stop taking prescription medicine. 
@@ -226,54 +226,54 @@ telepathically, sharing incredible volumes of information about the ETs and thei
 mission on Earth, and explained exactly why they found him to be of particular interest 
 to them.</p>
 
-          <p>These six cases are important because they show that often an encounter with a humanoid 
-          appears to be an intentional event designed to impart wisdom to an individual to help 
-          guide them through their lives. They show that extraterrestrial contact can play a very 
-          powerful role in a person’s life-path.</p>
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #281 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title"><a href="https://youtu.be/cdvOvf3C4RE" target="_blank" 
-          rel="noopener noreferrer">EPISODE #281. ONBOARD<br>
-          AN EXTRATERRESTRIAL<br>
-          CRAFT: FIVE FANTASTIC<br>
-          FIRSTHAND CASES</a></h2>
-        <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Aug 8, 2025</h5>
+<p>These six cases are important because they show that often an encounter with a humanoid 
+appears to be an intentional event designed to impart wisdom to an individual to help 
+guide them through their lives. They show that extraterrestrial contact can play a very 
+powerful role in a person’s life-path.</p>
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #281 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title"><a href="https://youtu.be/cdvOvf3C4RE" target="_blank" 
+rel="noopener noreferrer">EPISODE #281. ONBOARD<br>
+AN EXTRATERRESTRIAL<br>
+CRAFT: FIVE FANTASTIC<br>
+FIRSTHAND CASES</a></h2>
+<article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h5>Aug 8, 2025</h5>
 
-          <p class="tallFirstLetter">It is the closest of all UFO experiences: being taken onboard 
-          a craft. Cases like these represent the frontline of research. They contain more 
-          information than any other type of UFO encounter and offer the opportunity to answer 
-          the many questions that surround extraterrestrial contact, such as, who are these 
-          mysterious visitors to our planet, where do they come from, and why they are here. 
-          While some people remain skeptical that cases like these take place, the truth is 
-          that there are tens of thousands of reports, with indications that they may number 
-          in the millions. This video presents five particularly extensive and lesser-known 
-          onboard UFO encounters from across the world-cases which involve long interactions 
-          and conversations with extraterrestrials. Most of the cases involve multiple 
-          witnesses, each of who were given amazing information about the ETs and/or the 
-          future of our planet.</p>
+<p class="tallFirstLetter">It is the closest of all UFO experiences: being taken onboard 
+a craft. Cases like these represent the frontline of research. They contain more 
+information than any other type of UFO encounter and offer the opportunity to answer 
+the many questions that surround extraterrestrial contact, such as, who are these 
+mysterious visitors to our planet, where do they come from, and why they are here. 
+While some people remain skeptical that cases like these take place, the truth is 
+that there are tens of thousands of reports, with indications that they may number 
+in the millions. This video presents five particularly extensive and lesser-known 
+onboard UFO encounters from across the world-cases which involve long interactions 
+and conversations with extraterrestrials. Most of the cases involve multiple 
+witnesses, each of who were given amazing information about the ETs and/or the 
+future of our planet.</p>
 
-          <p><b>I HAVE NO FEAR</b>. On the night of <b>February 4, 1974</b>, a family of three 
-          was camping in a remote and isolated area of the vast Sonoran Desert in Mexico. In 
-          the middle of the night, they were awakened by a beeping noise but couldn’t locate 
-          the source. The next morning, the mother had the impression that a UFO had visited 
-          them in the night. Years passed, and they decided to explore the incident under 
-          hypnosis. Together, they recalled being taken onboard the craft by gray-type ETs. 
-          The father was given harrowing predictions about the future of humanity. The son 
-          recalled being shown strange alien symbols. The mother could only recall being led 
-          up to the craft. All four say that the strange encounter remains one of the most 
-          mysterious events of their lives.</p>
+<p><b>I HAVE NO FEAR</b>. On the night of <b>February 4, 1974</b>, a family of three 
+was camping in a remote and isolated area of the vast Sonoran Desert in Mexico. In 
+the middle of the night, they were awakened by a beeping noise but couldn’t locate 
+the source. The next morning, the mother had the impression that a UFO had visited 
+them in the night. Years passed, and they decided to explore the incident under 
+hypnosis. Together, they recalled being taken onboard the craft by gray-type ETs. 
+The father was given harrowing predictions about the future of humanity. The son 
+recalled being shown strange alien symbols. The mother could only recall being led 
+up to the craft. All four say that the strange encounter remains one of the most 
+mysterious events of their lives.</p>
 
-          <p><b>I HAD A ROLE TO PLAY</b>. One night in <b>June of 1975</b>, a newly engaged 
-          couple were in Minong, Pennsylvania when they saw a UFO and experienced a period 
-          of missing time. They alerted their family who also saw the object. They flashed a 
-          light at it, and it flashed back and disappeared. Later, the couple realized that 
-          they had missing time and went under hypnosis. The woman recalled being taken 
-          onboard and meeting a glowing being face-to-face. He told her that the world was 
-          on the verge of catastrophe, and that she had a role to play in helping humanity. 
-          The man recalled only that the ETs were concerned for the world. Both say the 
-          encounter was benevolent.</p>
+<p><b>I HAD A ROLE TO PLAY</b>. One night in <b>June of 1975</b>, a newly engaged 
+couple were in Minong, Pennsylvania when they saw a UFO and experienced a period 
+of missing time. They alerted their family who also saw the object. They flashed a 
+light at it, and it flashed back and disappeared. Later, the couple realized that 
+they had missing time and went under hypnosis. The woman recalled being taken 
+onboard and meeting a glowing being face-to-face. He told her that the world was 
+on the verge of catastrophe, and that she had a role to play in helping humanity. 
+The man recalled only that the ETs were concerned for the world. Both say the 
+encounter was benevolent.</p>
 
 <p><b>MY WHOLE CONCEPT OF THE UNIVERSE CHANGED</b>. In <b>1975</b>, Frank Johnson of eastern Pennsylvania began meditating in the hopes of making contact with ETs. Immediately, he and his wife 
 Alice experienced a series of close-up sightings outside their home. Then, one evening, 
@@ -308,21 +308,21 @@ cases presented here are just a tiny fraction of the true number of cases. The w
 don’t have the luxury of disbelief. The question is not, are these cases taking place. 
 The evidence speaks for itself. The question is, will humanity heed the advice given 
 by the ETs?</p>
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #280 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title"><a href="https://youtu.be/6TBn8rcJ6jQ" target="_blank" 
-          rel="noopener noreferrer">EPISODE #280.<br>
-          UFOS IN YOUR<br>
-          HOMETOWN:<br>
-          EPISODE THIRTEEN</a></h2>
-        <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Aug 1, 2025</h5>
-          <p class="tallFirstLetter">Welcome to “UFOs in Your Hometown Episode Thirteen,” the 
-            continuing investigative series which proves that UFOs are being seen everywhere 
-            on this planet. This series was born from a challenge: name any town, city or 
-            location on Earth, and I will find a UFO encounter there. And so far, 100% of the 
-            locations provided have a history of UFO encounters.</p>
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #280 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title"><a href="https://youtu.be/6TBn8rcJ6jQ" target="_blank" 
+rel="noopener noreferrer">EPISODE #280.<br>
+UFOS IN YOUR<br>
+HOMETOWN:<br>
+EPISODE THIRTEEN</a></h2>
+<article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h5>Aug 1, 2025</h5>
+<p class="tallFirstLetter">Welcome to “UFOs in Your Hometown Episode Thirteen,” the 
+  continuing investigative series which proves that UFOs are being seen everywhere 
+  on this planet. This series was born from a challenge: name any town, city or 
+  location on Earth, and I will find a UFO encounter there. And so far, 100% of the 
+  locations provided have a history of UFO encounters.</p>
 
 <p>Today we explore five new locations, each provided by you, the viewers. 
 These locations include Pittsburgh, Pennsylvania; Pittsburg, California; Attleboro, 
@@ -385,18 +385,18 @@ believed. And when one considers that the vast majority of people do not report 
 encounters, the actual number of cases must be mindbogglingly huge. It appears that the 
 extraterrestrials are conducting a vigorous and well-orchestrated publicity campaign to 
 announce their presence.</p>
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #279 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title"><a href="https://youtu.be/_EyP2gq4rd8" target="_blank" 
-          rel="noopener noreferrer">EPISODE #279.<br>
-          MISSING TIME WITH<br>
-          ALIENS: TWELVE<br>
-          ASTONISHING CASES<br>
-          </a></h2>
-        <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Jul 25, 2025</h5>
-          <p class="tallFirstLetter">One controversial aspect of extraterrestrial encounters is the phenomenon known as missing time. People who have a close encounter suddenly find that minutes or even hours have passed that they cannot account for. Research has shown that cases of missing time are likely unremembered onboard experiences. This feature is very common and very confusing and scary for the witness. This video presents twelve amazing cases of missing time in connection with a face-to-face encounter with humanoids.</p>
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #279 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title"><a href="https://youtu.be/_EyP2gq4rd8" target="_blank" 
+rel="noopener noreferrer">EPISODE #279.<br>
+MISSING TIME WITH<br>
+ALIENS: TWELVE<br>
+ASTONISHING CASES<br>
+</a></h2>
+<article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h5>Jul 25, 2025</h5>
+<p class="tallFirstLetter">One controversial aspect of extraterrestrial encounters is the phenomenon known as missing time. People who have a close encounter suddenly find that minutes or even hours have passed that they cannot account for. Research has shown that cases of missing time are likely unremembered onboard experiences. This feature is very common and very confusing and scary for the witness. This video presents twelve amazing cases of missing time in connection with a face-to-face encounter with humanoids.</p>
 
 <p><b>A SENSE OF COMPLETE PEACE</b>. One <b>summer day in 1942</b>, two children from Surrey, England, were taking a walk and became overcome with a feeling of utter peace. Two handsome men in strange clothes approached and proceeded to impart prophecies of future events. The children lost consciousness. They ran home to discover that they had been missing for 24 hours.</p>
 
@@ -418,24 +418,24 @@ announce their presence.</p>
 
 <p><b>A PRESENCE IN MY ROOM</b>. On the <b>night of August 17, 1994</b>, a lady was woken by a bright light entering the bedroom of her home in Alabama. Four gray ETs entered and floated her out of bed, down the hall and to the front door. Elaine gripped the wall, but promptly passed out. When she woke up, it was morning.</p>
 
-          <p><b>IT GOT FRIGHTENING</b>. On the <b>night of October 5, 1995</b>, a couple and their son were sleeping in their camper at Red Canyon Campgrounds in the Manzano Mountains of New Mexico. The wife was woken by a bright light. She woke her husband, and both saw three strange humanoids outside. Suddenly it was morning. They forget the entire event until several years later.</p>
+<p><b>IT GOT FRIGHTENING</b>. On the <b>night of October 5, 1995</b>, a couple and their son were sleeping in their camper at Red Canyon Campgrounds in the Manzano Mountains of New Mexico. The wife was woken by a bright light. She woke her husband, and both saw three strange humanoids outside. Suddenly it was morning. They forget the entire event until several years later.</p>
 
-          <p><b>I FLOATED UP OUT OF BED</b>. On the night of <b>October 1, 2017</b>, Chuck of Vienna, Virginia was awakened by a  light in the hallway. The door opened and blue-skinned hooded beings came in, removed his CPAP mask and floated him out of bed and out of his room. He passed out. His next memory was being floated back into bed by the same creatures.</p>
+<p><b>I FLOATED UP OUT OF BED</b>. On the night of <b>October 1, 2017</b>, Chuck of Vienna, Virginia was awakened by a  light in the hallway. The door opened and blue-skinned hooded beings came in, removed his CPAP mask and floated him out of bed and out of his room. He passed out. His next memory was being floated back into bed by the same creatures.</p>
 
-          <p>These cases come from all over the world, each showing this peculiar amnesia effect that is present in so many cases. The question remains, why? Are the ETs doing this, or does the human mind suppress these events?</p>
-          <p>PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/</p>
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #278 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title"><a href="" target="_blank" 
-          rel="noopener noreferrer"><br>EPISODE #278. THE<br><br>
-          GRAY ALIEN BOY</a></h2>
-        <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Jul 18, 2025</h5>
+<p>These cases come from all over the world, each showing this peculiar amnesia effect that is present in so many cases. The question remains, why? Are the ETs doing this, or does the human mind suppress these events?</p>
+<p>PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/</p>
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #278 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title"><a href="" target="_blank" 
+rel="noopener noreferrer"><br>EPISODE #278. THE<br><br>
+GRAY ALIEN BOY</a></h2>
+<article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h5>Jul 18, 2025</h5>
 
-          <p class="tallFirstLetter">This is the true story of Janet and her lifelong experiences with gray extraterrestrials. Her contacts started around age nine. But it was an incredibly unusual encounter at age 10 that changed her life forever. Along with her UFO/ET experiences, which include instances of missing time, added time, and at least three onboard encounters, Janet, like most contactees, has also experienced many paranormal events such as ghost encounters, angels, a near-death experience, premonitions, mediumship and more high strangeness.</p>
+<p class="tallFirstLetter">This is the true story of Janet and her lifelong experiences with gray extraterrestrials. Her contacts started around age nine. But it was an incredibly unusual encounter at age 10 that changed her life forever. Along with her UFO/ET experiences, which include instances of missing time, added time, and at least three onboard encounters, Janet, like most contactees, has also experienced many paranormal events such as ghost encounters, angels, a near-death experience, premonitions, mediumship and more high strangeness.</p>
 
-          <p>In <b>1969</b>, ten-year-old Janet rode her bike with some friends along a suburban street in Tarzana, California. Looking up, they saw a strange craft hover over some trees at the top of a steep driveway. They raced up to get a closer look, but the craft was gone. They spent the next hour pushing their bikes up the driveway and racing down, then decided to go home. Janet headed up the driveway one more time so she could race down and pass her friends. But reaching the top of the driveway, she saw a strange boy emerge from the trees, shakily riding his bike . He wore a red shirt and jeans. As he approached, she saw he had a large bald head, dark wrap-around eyes, a tiny nose and mouth, gray skin and only four fingers on each hand. Her mind raced to figure out what she was seeing. Was he a deformed child? But when the boy reached out his hand and touched her shoulder, and spoke in her mind, “Do not be afraid,” Janet realized that this boy could not be human. Terror filled her. She couldn’t move. Suddenly, the boy was gone. Janet raced home in fear and told her friends about the “monster boy.” They did not believe her, nor did the adults she told. They asked her where she had been for the last two hours. Janet wondered, how did it get so late? Janet didn’t think of UFOs or aliens. She just knew that she had encountered something very strange and scary.</p>
+<p>In <b>1969</b>, ten-year-old Janet rode her bike with some friends along a suburban street in Tarzana, California. Looking up, they saw a strange craft hover over some trees at the top of a steep driveway. They raced up to get a closer look, but the craft was gone. They spent the next hour pushing their bikes up the driveway and racing down, then decided to go home. Janet headed up the driveway one more time so she could race down and pass her friends. But reaching the top of the driveway, she saw a strange boy emerge from the trees, shakily riding his bike . He wore a red shirt and jeans. As he approached, she saw he had a large bald head, dark wrap-around eyes, a tiny nose and mouth, gray skin and only four fingers on each hand. Her mind raced to figure out what she was seeing. Was he a deformed child? But when the boy reached out his hand and touched her shoulder, and spoke in her mind, “Do not be afraid,” Janet realized that this boy could not be human. Terror filled her. She couldn’t move. Suddenly, the boy was gone. Janet raced home in fear and told her friends about the “monster boy.” They did not believe her, nor did the adults she told. They asked her where she had been for the last two hours. Janet wondered, how did it get so late? Janet didn’t think of UFOs or aliens. She just knew that she had encountered something very strange and scary.</p>
 
 <p>Janet’s mind went back to other recent odd events. One year earlier, she had seen a strange black figure looking at her while she played with her friend. One night, she was woken by a brilliant blue light filling her room. She got up to investigate, and that’s all she could remember. Little did Janet know, more strange events were coming.</p>
 
@@ -445,32 +445,32 @@ announce their presence.</p>
 
 <p>She became pregnant and had a child. Her marriage didn’t work out, so she separated and moved back home. Sadly, her mom’s health was failing rapidly, and Janet found herself overwhelmed with caring for her infant daughter and her ailing mother. It was then that she had a dramatic angelic encounter.</p>
 
-          <p>As time passed, many other strange events occurred. In <b>2005</b>, she had a scary UFO encounter while driving through Victorville, CA and ended up arriving home hours earlier than she should have. She heard strange beeping tones in her head. She found an odd metallic foreign body lodged in her cheek. Then, watching TV, she saw images of gray aliens and realized with a shock that they looked just like the monster boy she saw as a kid. She went under hypnosis and recalled that she was apparently taken onboard and saw more grays who gave her a message she has yet to recall.</p>
-          <p>Moving to Texas in <b>2016</b>, she had a dream she was taken onboard a UFO and examined by gray ETs. When she woke up, she found a strange substance on her neck which proved that the experience was not a dream. She soon had another event where she recalled being on a craft and seeing a gray.</p>
-          <p>More paranormal events followed. She had telepathic conversations with the grays who helped her with her health issues. She had OBEs, premonitions, mediumship abilities and more. A DNA search revealed shocking things about her ancestry. Today Janet remains in telepathic communication with the grays, and is still searching for answers about her strange life. To read more about Janet's experiences (and many others) check out my book, "Humanoids and High Strangeness. Now available.</p>
-          <p>PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/</p>
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #277 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title"><a href="https://youtu.be/_EyP2gq4rd8" target="_blank" 
-          rel="noopener noreferrer">EPISODE #277. ONBOARD<br>
-          AN EXTRATERRESTRIAL<br>
-          CRAFT: SEVEN<br>
-          FIRSTHAND CASES</a></h2>
-        <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Jul 11, 2025</h5>
+<p>As time passed, many other strange events occurred. In <b>2005</b>, she had a scary UFO encounter while driving through Victorville, CA and ended up arriving home hours earlier than she should have. She heard strange beeping tones in her head. She found an odd metallic foreign body lodged in her cheek. Then, watching TV, she saw images of gray aliens and realized with a shock that they looked just like the monster boy she saw as a kid. She went under hypnosis and recalled that she was apparently taken onboard and saw more grays who gave her a message she has yet to recall.</p>
+<p>Moving to Texas in <b>2016</b>, she had a dream she was taken onboard a UFO and examined by gray ETs. When she woke up, she found a strange substance on her neck which proved that the experience was not a dream. She soon had another event where she recalled being on a craft and seeing a gray.</p>
+<p>More paranormal events followed. She had telepathic conversations with the grays who helped her with her health issues. She had OBEs, premonitions, mediumship abilities and more. A DNA search revealed shocking things about her ancestry. Today Janet remains in telepathic communication with the grays, and is still searching for answers about her strange life. To read more about Janet's experiences (and many others) check out my book, "Humanoids and High Strangeness. Now available.</p>
+<p>PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/</p>
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #277 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title"><a href="https://youtu.be/_EyP2gq4rd8" target="_blank" 
+rel="noopener noreferrer">EPISODE #277. ONBOARD<br>
+AN EXTRATERRESTRIAL<br>
+CRAFT: SEVEN<br>
+FIRSTHAND CASES</a></h2>
+<article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h5>Jul 11, 2025</h5>
 
-          <p class="tallFirstLetter">The onboard UFO experience is the cutting edge of UFO 
-            research. It is the closest and most extensive of all encounters and holds the 
-            greatest potential to assist both contactees and researchers to better understand
-            extraterrestrial contact. With tens of thousands of documented cases (and indications 
-            that they number in the millions) it behooves all humanity to take these accounts 
-            seriously. They have been occurring for over a hundred years, if not longer, come 
-            from all over the world, and are supported by a wide variety of evidence. This 
-            video presents ten extensive onboard encounters. In each of these cases, the 
-            witnesses were not only taken onboard; they were able to hold conversations with 
-            the ETs. Each of these cases provides fascinating and profound insights into what 
-            it’s like to have direct contact with extraterrestrials.</p>
+<p class="tallFirstLetter">The onboard UFO experience is the cutting edge of UFO 
+  research. It is the closest and most extensive of all encounters and holds the 
+  greatest potential to assist both contactees and researchers to better understand
+  extraterrestrial contact. With tens of thousands of documented cases (and indications 
+  that they number in the millions) it behooves all humanity to take these accounts 
+  seriously. They have been occurring for over a hundred years, if not longer, come 
+  from all over the world, and are supported by a wide variety of evidence. This 
+  video presents ten extensive onboard encounters. In each of these cases, the 
+  witnesses were not only taken onboard; they were able to hold conversations with 
+  the ETs. Each of these cases provides fascinating and profound insights into what 
+  it’s like to have direct contact with extraterrestrials.</p>
 
 <p><b>THE DISAPPEARANCE OF ANNI LATTU</b>. In <b>early 1917</b>, the residents of the small village of 
 Jyrinvaara, Finland were puzzled by the disappearance of Anni Lattu, who lived in the 
@@ -531,25 +531,25 @@ and having face-to-face contact with ETs, those who have had this experience don
 the luxury of disbelief. They not only carry the weight of knowing their experiences are 
 true but dealing with a society that refuses to accept the reality of ET contact. 
 Thankfully things are changing for the better.</p>
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #276 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title"><a href="https://youtu.be/7TNSZi3qgaI" target="_blank" 
-          rel="noopener noreferrer">EPISODE #276. IT WAS<br>
-          NOT HUMAN: SEVEN<br>
-          SHOCKING HUMANOID<br>
-          ENCOUNTERS</a></h2>
-        <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Jul 4, 2025</h5>
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #276 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title"><a href="https://youtu.be/7TNSZi3qgaI" target="_blank" 
+rel="noopener noreferrer">EPISODE #276. IT WAS<br>
+NOT HUMAN: SEVEN<br>
+SHOCKING HUMANOID<br>
+ENCOUNTERS</a></h2>
+<article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h5>Jul 4, 2025</h5>
 
-          <p class="tallFirstLetter">One of the most interesting aspects of the UFO phenomenon are 
-            humanoid encounters, and there are a lot of them. People across the world report a wide 
-            variety of humanoids: grays, reptilian creatures, human-looking figures, short humanoids 
-            and more. While most cases go unreported, there is now a worldwide database of many 
-            thousands of encounters, many supported by multiple eyewitnesses, medical effects, animal 
-            reactions, electromagnetic disturbances, landing traces and more. In this video we explore 
-            seven shocking humanoid encounters. In each case the witnesses were thrust into the unknown 
-            and confronted with something beyond their imagination.</p>
+<p class="tallFirstLetter">One of the most interesting aspects of the UFO phenomenon are 
+  humanoid encounters, and there are a lot of them. People across the world report a wide 
+  variety of humanoids: grays, reptilian creatures, human-looking figures, short humanoids 
+  and more. While most cases go unreported, there is now a worldwide database of many 
+  thousands of encounters, many supported by multiple eyewitnesses, medical effects, animal 
+  reactions, electromagnetic disturbances, landing traces and more. In this video we explore 
+  seven shocking humanoid encounters. In each case the witnesses were thrust into the unknown 
+  and confronted with something beyond their imagination.</p>
 
 <p><b>THE LOVELAND HUMANOIDS</b>. At <b>3:30 am on May 25, 1955</b>, Robert Hunnicutt was driving home 
 when he noticed three odd-looking figures standing by the road in Branch Hill, Ohio. He 
@@ -581,36 +581,36 @@ intruders wrestled Daildo to the ground. Subduing him, they quickly walked off a
 entered a large metallic craft landed on the ground a short distance away. It rose up, 
 zigzagged and darted away at high speed.</p>
 
-          <p><b>IT SCARED THE HELL OUT OF ME</b>. On the night of <b>July 19, 1972</b>, a young man was playing 
-          basketball in the barn next to his home in Pioneer, Michigan when he noticed an intense 
-          ball of swirling light near him. He watched in shock as the light suddenly elongated and 
-          out stepped a gray alien. The witness felt a strange pressure in his head as the being 
-          tried to communicate with him telepathically. He ran off and told his mother. Later 
-          that night, they both saw a UFO while driving, and later, the boy would have a very 
-          close-up encounter with a UFO.</p>
+<p><b>IT SCARED THE HELL OUT OF ME</b>. On the night of <b>July 19, 1972</b>, a young man was playing 
+basketball in the barn next to his home in Pioneer, Michigan when he noticed an intense 
+ball of swirling light near him. He watched in shock as the light suddenly elongated and 
+out stepped a gray alien. The witness felt a strange pressure in his head as the being 
+tried to communicate with him telepathically. He ran off and told his mother. Later 
+that night, they both saw a UFO while driving, and later, the boy would have a very 
+close-up encounter with a UFO.</p>
 
-          <p><b>THIS CREATURE WAS NOT HUMAN</b>. For the past few nights, “Sarah,” had noticed 
-          unusual lights near her home in rural Clovis, California. On the morning of <b>November 
-          10, 1986</b>, she decided to hike out to the area with her dog to investigate. Suddenly 
-          an intense fear overwhelmed her for no apparent reason. Her dog was mysteriously gone. 
-          Turning around, she saw a short gray alien staring at her. It lifted its hand and waved 
-          at her. Sarah ran home and realized she was missing two hours of time. She forgot the 
-          event until one year later, when she woke up to find a gray alien in her bedroom.</p>
+<p><b>THIS CREATURE WAS NOT HUMAN</b>. For the past few nights, “Sarah,” had noticed 
+unusual lights near her home in rural Clovis, California. On the morning of <b>November 
+10, 1986</b>, she decided to hike out to the area with her dog to investigate. Suddenly 
+an intense fear overwhelmed her for no apparent reason. Her dog was mysteriously gone. 
+Turning around, she saw a short gray alien staring at her. It lifted its hand and waved 
+at her. Sarah ran home and realized she was missing two hours of time. She forgot the 
+event until one year later, when she woke up to find a gray alien in her bedroom.</p>
 
-          <p><b>AN ALIEN BESIDE MY BED</b>. In the middle of the night on <b>August 25, 2022</b>, 
-          Natalie woke up in her bedroom to see a shadowy figure with a huge head standing by her 
-          bed, touching her knee. It sent a message telling her not to be afraid. With a shock, 
-          Natalie realized it was an alien. The figure disappeared. Following the encounter, 
-          Natalie discovered that she was cured of her chronic insomnia. But following this 
-          incident, she began to wake up with her clothes on wrong and strange marks on her body. 
-          Soon she had another encounter.</p>
+<p><b>AN ALIEN BESIDE MY BED</b>. In the middle of the night on <b>August 25, 2022</b>, 
+Natalie woke up in her bedroom to see a shadowy figure with a huge head standing by her 
+bed, touching her knee. It sent a message telling her not to be afraid. With a shock, 
+Natalie realized it was an alien. The figure disappeared. Following the encounter, 
+Natalie discovered that she was cured of her chronic insomnia. But following this 
+incident, she began to wake up with her clothes on wrong and strange marks on her body. 
+Soon she had another encounter.</p>
 
-          <p>These seven humanoid encounters provide a tantalizing glimpse into what it’s like 
-          to have direct contact with extraterrestrials. And yet they are just the tip of the 
-          iceberg. The truth about ET contact has been covered up for too long. It’s time for 
-          all humanity to know that there is other life in the universe. And they find humanity 
-          of great interest.</p>
-        </article>
+<p>These seven humanoid encounters provide a tantalizing glimpse into what it’s like 
+to have direct contact with extraterrestrials. And yet they are just the tip of the 
+iceberg. The truth about ET contact has been covered up for too long. It’s time for 
+all humanity to know that there is other life in the universe. And they find humanity 
+of great interest.</p>
+</article>
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/TnGr33HOAaM" target="_blank" rel="noopener noreferrer">EPISODE #275. 
@@ -765,7 +765,8 @@ by the ETs?</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/6TBn8rcJ6jQ" target="_blank" rel="noopener noreferrer">EPISODE #273. 
 UFOS IN YOUR HOMETOWN: EPISIDE THIRTEEN</a>.</h3>
-<h5>LINK: https://youtu.be/6TBn8rcJ6jQ</h5>                                                             <h5>August 1, 2025</h5>
+<h5>LINK: https://youtu.be/6TBn8rcJ6jQ</h5>
+<h5>August 1, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>Welcome to “UFOs in Your Hometown Episode Thirteen,” the continuing investigative series 
 which proves that UFOs are being seen everywhere on this planet. This series was born 
@@ -916,7 +917,8 @@ Thankfully things are changing for the better.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/7TNSZi3qgaI" target="_blank" rel="noopener noreferrer">EPISODE #271. 
 IT WAS NOT HUMAN: SEVEN SHOCKING HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/7TNSZi3qgaI</h5>                                                             <h5>July 4, 2025</h5>
+<h5>LINK: https://youtu.be/7TNSZi3qgaI</h5>
+<h5>July 4, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>24,368 views  Jul 4, 2025</h6>
 <p>One of the most interesting aspects of the UFO phenomenon are humanoid encounters, and 
@@ -989,7 +991,8 @@ know that there is other life in the universe. And they find humanity of great i
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://www.youtube.com/watch?v=WgXIQheRGSk" target="_blank" rel="noopener noreferrer">EPISODE #270: 
 TEN TRULY BIZARRE HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://www.youtube.com/watch?v=WgXIQheRGSk</h5>                                              <h5>June 6, 2025</h5>
+<h5>LINK: https://www.youtube.com/watch?v=WgXIQheRGSk</h5>
+<h5>June 6, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>27,620 views  Jun 6, 2025</h6>
 <p>There can be no doubt that the UFO phenomenon is real. Documented reports of UFOs number 
@@ -1068,7 +1071,8 @@ evidence points towards UFOs being craft piloted by extraterrestrials.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://www.youtube.com/watch?v=SiE1G9Ku9YQ" target="_blank" rel="noopener noreferrer">EPISODE #269. 
 HAVE NO FEAR: SEVEN ASTOUNDING ONBOARD UFO Encounters</a>.</h3>
-<h5>LINK: https://www.youtube.com/watch?v=SiE1G9Ku9YQ</h5>                                              <h5>May 30, 2025</h5>
+<h5>LINK: https://www.youtube.com/watch?v=SiE1G9Ku9YQ</h5>
+<h5>May 30, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>Of all types of UFO encounters, the most extensive and profound are cases where people 
 are taken onboard a craft and interact with extraterrestrials face-to-face. Thousands of 
@@ -1142,7 +1146,8 @@ that we are being visited by a wide variety of beings from beyond Earth.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/6TBn8rcJ6jQ"target="_blank" rel="noopener noreferrer">EPISODE #2xx. 
 UFOS IN YOUR HOMETOWN: EPISODE TWELVE</a>.</h3>
-<h5>LINK: https://youtu.be/6TBn8rcJ6jQ</h5>                                                             <h5>June 27, 2025</h5>
+<h5>LINK: https://youtu.be/6TBn8rcJ6jQ</h5>
+<h5>June 27, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>Welcome to “UFOs in Your Hometown: Episode Twelve,” the ongoing UFO investigative series 
 exploring a wide variety of locations on Earth, proving that every town and city on this 
@@ -1218,7 +1223,8 @@ of all, it means that we are not alone, and UFOs are real!</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/QcooG_RCb4M" target="_blank" rel="noopener noreferrer">EPISODE #2xx. 
 UFOS IN YOUR HOMETOWN: EPISODE ELEVEN</a>.</h3>
-<h5>LINK: https://youtu.be/QcooG_RCb4M</h5>                                                             <h5>May 23, 2025</h5>
+<h5>LINK: https://youtu.be/QcooG_RCb4M</h5>
+<h5>May 23, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>19,898 views  May 23, 2025</h6>
 <p>Welcome to Episode Eleven of the ongoing series: UFOs in Your Hometown. This series was 
@@ -1288,13 +1294,14 @@ The ETs have done their part to disclose. The rest is up to us.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #269 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="">EPISODE #269</a>.</h3>
-<h5>LINK:</h5>                                                                                          <h5>May 16, 2025</h5>
+<h5>LINK:</h5>
+<h5>May 16, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/g6as_XUXO-g"target="_blank" rel="noopener noreferrer">EPISODE #268. 
 FIVE INCREDIBLE ONBOARD UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/g6as_XUXO-g</h5>                                                             <h5>May 9, 2025</h5>
+<h5>LINK: https://youtu.be/g6as_XUXO-g</h5> <h5>May 9, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>26,354 May 9, 2025</h6>
 <p>Being taken onboard a UFO! It is the ultimate type of UFO encounter, the most extensive, 
@@ -1366,7 +1373,7 @@ believe it may number in the millions.</p>
 ​<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Px6FhCzaAx8" target="_blank" rel="noopener noreferrer">EPISODE #267. 
 NOT HUMAN: TWELVE VERY WEIRD HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/Px6FhCzaAx8</h5>                                                             <h5>May 2, 2025</h5>
+<h5>LINK: https://youtu.be/Px6FhCzaAx8</h5> <h5>May 2, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>25,858 views  May 2, 2025</h6>
 One of the interesting things about encounters with strange beings is that they are 
@@ -1453,7 +1460,8 @@ PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/kgCSWrY9DrA" target="_blank" rel="noopener noreferrer">EPISODE #266. 
 UFOS IN YOUR HOMETOWN: EPISODE TEN</a>.</h5>
-<h5>LINK: https://youtu.be/kgCSWrY9DrA</h5>                                                             <h5>April 25, 2025</h5>
+<h5>LINK: https://youtu.be/kgCSWrY9DrA</h5>
+<h5>April 25, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>Welcome to Episode Ten of UFOs in Your Hometown. The challenge continues: name any 
 town or city in the world, and I will find a UFO encounter there! This includes sighting, 
@@ -1524,7 +1532,8 @@ to us!</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/fMphYLQySzI" target="_blank" rel="noopener noreferrer">EPISODE: #XXX: 
 THE SPACESHIP HOUSE</a>.</h3>
-<h5>LINK: https://youtu.be/fMphYLQySzI</h5>                                                             <h5>April 18, 2025</h5>
+<h5>LINK: https://youtu.be/fMphYLQySzI</h5>
+<h5>April 18, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>Joe Gardner (an artist from Huntington, West Virginia) was five years old when he had 
 his first strange encounter. It was 1974 and he and his mother stood in the parking lot 
@@ -1597,7 +1606,8 @@ if perhaps they weren’t ETs at all, but more akin to Djinns.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/XrhxuCzYRuE" target="_blank" rel="noopener noreferrer">EPISODE #264. 
 EXAMINED BY ALIENS: SEVEN SHOCKING ONBOARD UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/XrhxuCzYRuE</h5>                                                             <h5>April 11, 2025</h5>
+<h5>LINK: https://youtu.be/XrhxuCzYRuE</h5>
+<h5>April 11, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>The general public has no idea how common humanoid encounters are. There are not hundreds 
 of cases, but many thousands, perhaps more than that. Cases go back more than 100 years 
@@ -1680,7 +1690,7 @@ humanity will become aware that we are not alone in this universe.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/FIWvuJtAqaE" target="_blank" rel="noopener noreferrer">EPISODE #263. 
 VERY STRANGE: TWELVE ENCOUNTERS WITH EXTRATERRESTRIAL HUMANOIDS</a>.</h3>
-<h5>LINK: https://youtu.be/FIWvuJtAqaE</h5>                                                             <h5>April 4, 2025</h5>
+<h5>LINK: https://youtu.be/FIWvuJtAqaE</h5> <h5>April 4, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>The general public has no idea how common humanoid encounters are. There are not 
 hundreds of cases, but many thousands, perhaps more than that. Cases go back more than 
@@ -1750,7 +1760,7 @@ down at him were three humanoids.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/GSlGs6yh2Fg" target="_blank" rel="noopener noreferrer">EPISODE #262. 
 UFOS IN YOUR HOMETOWN: EPISODE NINE</a>.</h3>
-<h5>LINK: https://youtu.be/GSlGs6yh2Fg</h5>                                                             <h5>March 28, 2025</h5>
+<h5>LINK: https://youtu.be/GSlGs6yh2Fg</h5> <h5>March 28, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>Welcome to Episode Nine of UFOs in Your Hometown. Name any town or city on this 
 planet, and you will find a history of UFOs. So far I have examined almost 100 
@@ -1831,7 +1841,7 @@ we are being visited.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/dm4tX8Z0bow" target="_blank" rel="noopener noreferrer">EPISODE #261. 
 DO NOT BE AFRAID: EIGHT EXTRAORDINARY ONBOARD EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/dm4tX8Z0bow</h5>                                                             <h5>March 21, 2025</h5>
+<h5>LINK: https://youtu.be/dm4tX8Z0bow</h5> <h5>March 21, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>The most extensive UFO encounter is being taken onboard an extraterrestrial craft. 
 This is the cutting edge of UFO research. These cases  hold the potential to answer the 
@@ -1909,7 +1919,7 @@ It has been happening for a long time.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/6hEgoSfheuo" target="_blank" rel="noopener noreferrer">EPISODE #260. 
 MY MOTHER THE MANTIS: THE TRUE EXTRATERRESTRIAL CONTACT STORY OF SONDRA X</a>.</h3>
-<h5>LINK: https://youtu.be/6hEgoSfheuo</h5>                                                             <h5>March 14, 2025</h5>
+<h5>LINK: https://youtu.be/6hEgoSfheuo</h5> <h5>March 14, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>A teacher from Virginia, Sondra came from a military family and has lived in many 
 locations on the planet. She was born in 1940, and like many ET contactees, unusual 
@@ -1974,7 +1984,7 @@ Encounters.” Now available!</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/GjgecsdVhwk" target="_blank" rel="noopener noreferrer">EPISODE #259. 
 UNEARTHLY: TWELVE VERY WEIRD EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/GjgecsdVhwk</h5>                                                             <h5>March 7, 2025</h5>
+<h5>LINK: https://youtu.be/GjgecsdVhwk</h5> <h5>March 7, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>There is nothing quite like a face-to-face encounter with a humanoid creature. An 
 experience like this almost always has a profound effect on the witness, challenging them 
@@ -2057,7 +2067,7 @@ walking among us on this planet.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/tBxl3dv38-s" target="_blank" rel="noopener noreferrer">EPISODE #258. 
 UFOS IN ANTARCTICA: TWELVE TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/tBxl3dv38-s</h5>                                                             <h5>February 28, 2025</h5>
+<h5>LINK: https://youtu.be/tBxl3dv38-s</h5> <h5>February 28, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>It’s the coldest, windiest, driest, highest and most remote place on Earth. Its 
 average temperature is 50-70 degrees below zero Fahrenheit. It has no permanent 
@@ -2105,7 +2115,7 @@ never released.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Aj5WHbLlqOY" target="_blank" rel="noopener noreferrer">EPISODE #257. 
 UFOS IN THE ARCTIC: 25 TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/Aj5WHbLlqOY</h5>                                                             <h5>February 21, 2025</h5>
+<h5>LINK: https://youtu.be/Aj5WHbLlqOY</h5> <h5>February 21, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>The Arctic has always been a place of mystery and wonder. The magical Northern Lights, 
 a rich wildlife of polar bears, seals, foxes and more, surviving in one of the most 
@@ -2209,7 +2219,7 @@ uninhabited, most activity likely goes unobserved by human eyes.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/qWuYjGGaixg" target="_blank" rel="noopener noreferrer">EPISODE #256. 
 ALIENS HEALED ME IN MY HOSPITAL ROOM</a>.</h3>
-<h5>LINK: https://youtu.be/qWuYjGGaixg</h5>                                                             <h5>February 14, 2025</h5>
+<h5>LINK: https://youtu.be/qWuYjGGaixg</h5> <h5>February 14, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>16,921 views  Feb 14, 2025</h6>
 <p>Healing is a major part of the extraterrestrial agenda. There are more than 300 cases 
@@ -2295,7 +2305,7 @@ available!</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/vWKV2vmoxTU" target="_blank" rel="noopener noreferrer">EPISODE #255. 
 I COULDN’T TALK ABOUT IT: TEN INCREDIBLE HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/vWKV2vmoxTU</h5>                                                             <h5>February 7, 2025</h5>
+<h5>LINK: https://youtu.be/vWKV2vmoxTU</h5> <h5>February 7, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>36,085 views  Feb 7, 2025</h6>
 <p>For many people, a humanoid encounter is one of the most shocking and incredible 
@@ -2379,7 +2389,7 @@ to conclude that we are being visited by extraterrestrials.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/xNBQyJjFYBQ" target="_blank" rel="noopener noreferrer">EPISODE #254. 
 UFOS IN YOUR HOMETOWN: EPISODE EIGHT</a>.</h3>
-<h5>LINK: https://youtu.be/xNBQyJjFYBQ</h5>                                                             <h5>January 31, 2025</h5>
+<h5>LINK: https://youtu.be/xNBQyJjFYBQ</h5> <h5>January 31, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>15,893 views  Jan 31, 2025</h6>
 <p>UFOs are being seen all over this planet. To prove this fact, I put out a challenge: 
@@ -2418,7 +2428,7 @@ visit Albion.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/S4m5yLsM6TY" target="_blank" rel="noopener noreferrer">EPISODE #253. 
 THE ALIEN IN MY BED: THE UFO &amp; ET CONTACT STORY OF MIKE W</a>.</h3>
-<h5>LINK: https://youtu.be/S4m5yLsM6TY</h5>                                                             <h5>January 24, 2025</h5>
+<h5>LINK: https://youtu.be/S4m5yLsM6TY</h5> <h5>January 24, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>15,601 views  Jan 24, 2025</h6>
 <p>People across the world are reporting direct contact with UFOs and extraterrestrials. 
@@ -2492,7 +2502,7 @@ Twenty True UFO Encounters , now available. LINK: https://amzn.to/3CaANiI.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/UhMPwnz8K9g" target="_blank" rel="noopener noreferrer">EPISODE #252. 
 ONBOARD AN EXTRATERRESTRIAL CRAFT: TEN SPECTACULAR CASES</a>.</h3>
-<h5>LINK: https://youtu.be/UhMPwnz8K9g</h5>                                                             <h5>January 17, 2025</h5>
+<h5>LINK: https://youtu.be/UhMPwnz8K9g</h5> <h5>January 17, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>31,560 views  Jan 17, 2025</h6>
 <p>For more than 100 years, people across the world have been taken onboard extraterrestrial craft. Many of the cases have commonalities that corroborate each other down to minute details. But they also have unique high strangeness aspects that have much to teach us. This video presents ten spectacular onboard UFO cases involving face-to-face interactions with a variety of ETs. Cases like these are the cutting edge of UFO research and have the potential to answer the many questions surrounding alien contact.</p>
@@ -2521,7 +2531,7 @@ ONBOARD AN EXTRATERRESTRIAL CRAFT: TEN SPECTACULAR CASES</a>.</h3>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/3r40K3Bk4Cc" target="_blank" rel="noopener noreferrer">EPISODE #251. 
 TEN EXTREME EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/3r40K3Bk4Cc</h5>                                                             </h5>January 10, 2025</h5>
+<h5>LINK: https://youtu.be/3r40K3Bk4Cc</h5> </h5>January 10, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>27,798 views  Jan 10, 2025</h6>
 <p>The cutting edge of the UFO phenomenon are cases involving direct, firsthand, face-to-face contact with extraterrestrial humanoids. Unlike simple sightings, humanoid encounters allow us to closely interact with the UFO occupants themselves. Here are ten cases of extreme contact, cases of contact that are so close, so extensive, they cannot be denied or explained away. These are the kinds of cases that answer the many questions surrounding ET contact, such as who they are, where they come from and why they are here.</p>
@@ -2550,7 +2560,7 @@ TEN EXTREME EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/qoSMUhcgLJ0" target="_blank" rel="noopener noreferrer">EPISODE #250. 
 UFOS IN YOUR HOMETOWN: EPISODE SEVEN</a>.</h3>
-<h5>LINK: https://youtu.be/qoSMUhcgLJ0</h5>                                                             <h5>January 3, 2025</h5>
+<h5>LINK: https://youtu.be/qoSMUhcgLJ0</h5> <h5>January 3, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>15,425 views  Jan 3, 2025</h6>
 <p>Now introducing UFOs In Your Hometown: Episode Seven. This ongoing series began with a challenge: name any town or city, and I bet I can find a UFO case there. The response has been tremendous. More than 700 locations were received. And so far, I have found UFO cases in every town and city I have investigated. Sightings, landings, humanoids, and onboard experiences – all are represented. And supporting them is a wide variety of evidence: multiple eyewitness testimonies, photos and videos, landing traces, medical effects, animal reactions, electromagnetic disturbances and more. Today we explore seven new locations, supplied by you, the viewers. These locations include Folsom, California; Napier, New Zealand; Bountiful, Utah; Hickory, North Carolina; Evansville, Indiana and Kalispell, Montana. Have UFOs been seen in your hometown? The answer is almost certainly, yes!</p>
@@ -2573,7 +2583,7 @@ UFOS IN YOUR HOMETOWN: EPISODE SEVEN</a>.</h3>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Q5Jt-SdgXDc" target="_blank" rel="noopener noreferrer">EPISODE #249. 
 SEVEN INCREDIBLE ONBOARD UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/Q5Jt-SdgXDc</h5>                                                             <h5>December 27, 2024</h5>
+<h5>LINK: https://youtu.be/Q5Jt-SdgXDc</h5> <h5>December 27, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>40,942 views  Dec 27, 2024</h6>
 <p>There are many different types of UFO encounters: sightings, landings, face-to-face encounters with humanoids and more. But the most extensive of all UFO encounters is an onboard experience, being taken onboard an extraterrestrial craft. Thousands of people accross the world have reported this experience. Cases reach back more than 100 years. They involve a wide variety of humanoids and have both striking similarities and unique differences. Here are seven firsthand accounts of people who claim to have been taken onboard an ET craft.</p>
@@ -2596,7 +2606,7 @@ SEVEN INCREDIBLE ONBOARD UFO ENCOUNTERS</a>.</h3>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/1WLbo_L2rNk" target="_blank" rel="noopener noreferrer">EPISDOE #248. 
 UFO ENTITIES: TEN TRUE EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/1WLbo_L2rNk</h5>                                                             <h5>December 20, 2024</h5>
+<h5>LINK: https://youtu.be/1WLbo_L2rNk</h5> <h5>December 20, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>34,655 views  Dec 20, 2024</h6>
 Many questions remain regarding the nature and origin of UFO entities, which is why continuing research and documentation is so important. In this video I present ten little-known cases from across the world, from the 1940s to the 2010s. Many different types of humanoids are represented, gray ETs, short little beings, human-looking ETs, very tall figures and more. Many involve multiple witnesses and various forms of evidence. These ten cases provide a tantalizing glimpse into the very heart of the UFO phenomenon: face-to-face contact with extraterrestrials.
@@ -2625,7 +2635,7 @@ These ten cases show how truly strange and bizarre contact with UFO entities can
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ivsD3gZccyI" target="_blank" rel="noopener noreferrer">EPISODE #247. 
 THE LITTLE PEOPLE: THE HIGH STRANGENESS ET CONTACT STORY OF KELLI ANDERSON</a>.</h3>
-<h5>LINK: https://youtu.be/ivsD3gZccyI</h5>                                                             <h5>December 13, 2024</h5>
+<h5>LINK: https://youtu.be/ivsD3gZccyI</h5> <h5>December 13, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>26,222 views  Dec 13, 2024</h6>
 This video presents the high strangeness ET contacts of Kelli Anderson (pseudonym) from southern California. Her story involves a wide variety of paranormal entities and events, including ghosts, extraterrestrials, UFOs and missing time, psychic and paranormal events, OBEs, nature spirits, precognition, orb visitations, weird owl stories, an apparent miracle and more.
@@ -2648,7 +2658,7 @@ To explore more about Kelli’s amazing extraterrestrial and paranormal experien
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ikuyytP-ZKg" target="_blank" rel="noopener noreferrer">EPISODE #246. 
 UFOS AND THE AMERICAN SITCOM</a>.</h3>
-<h5>LINK: https://youtu.be/ikuyytP-ZKg</h5>                                                             <h5>December 6, 2024</h5>
+<h5>LINK: https://youtu.be/ikuyytP-ZKg</h5> <h5>December 6, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>7,700 views  Dec 6, 2024</h6>
 UFOs appear in virtually all forms of media. Advertising, video-games, feature films, literature, radio, podcasts, social media platforms on the internet, and especially television. Countless documentaries, dramas, and reality TV shows have explored every facet of this subject. One form of television program that has prominently featured UFOs is the situation comedy.
@@ -2662,7 +2672,7 @@ https://prestondennett.weebly.com/
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/2nA5OYF5fyM" target="_blank" rel="noopener noreferrer">EPISODE #245. 
 SHOCKING EXTRATERRESTRIAL ENCOUNTERS: TEN TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/2nA5OYF5fyM</h5>                                                             <h5>November 29, 2024</h5>
+<h5>LINK: https://youtu.be/2nA5OYF5fyM</h5> <h5>November 29, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>31,251 views  Nov 29, 2024</h6>
 It’s one of the most shocking and surprising experiences a person can have: a face-to-face encounter with an extraterrestrial humanoid. It almost always has a profound impact on a witness, forever changing the way they think about the Universe. This video presents ten shocking alien encounters from across the planet, each providing important insights into the nature of extraterrestrial contact.
@@ -2691,7 +2701,7 @@ These ten cases show the dazzling variety of humanoids that our visiting our pla
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/D83pblWXPt4" target="_blank" rel="noopener noreferrer">EPISODE #244. 
 WEIRD! WEIRD! WEIRD! TEN TRULY STRANGE UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/D83pblWXPt4</h5>                                                             <h5>November 22, 2024</h5>
+<h5>LINK: https://youtu.be/D83pblWXPt4</h5> <h5>November 22, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>36,426 views  Nov 22, 2024</h6>
 UFO encounters are known for high strangeness. These eleven close encounters of the second kind all involve cases which affected the environment or the witnesses, in very unusual ways. These cases come from all over the world, and show how truly bizarre a close encounter can be. It appears that high strangeness might be an intentional feature which encourages witnesses to consider new paradigms and explore new ways of thinking.
@@ -2722,7 +2732,7 @@ These high strangeness cases make it clear that there is still much we don’t u
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/YUbVSNSIu40" target="_blank" rel="noopener noreferrer">EPISODE #243. 
 UFOS IN YOUR HOMETOWN: EPISODE SIX</a>.</h3>
-<h5>LINK: https://youtu.be/YUbVSNSIu40</h5>                                                             <h5>November 15, 2024</h5>
+<h5>LINK: https://youtu.be/YUbVSNSIu40</h5> <h5>November 15, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>24,011 views  Nov 15, 2024</h6>
 The challenge continues! Name any town or city, and the chances are almost 100% that a UFO encounter has occurred there. In early 2024, I put out this challenge. So far, there have been cases in every single location. Episode six presents ten new locations, each with a history of encounters. These locations include Benson, Arizona; Greensboro, North Carolina; Edwardsburg, Michigan; Bedfordshire, UK; Chicoutimi, Canada; Dallas-Fort Worth, Texas; Asheville, North Carolina; Skagway/Juneau, Alaska and Bradenton, Florida. Sightings, landings, humanoids, and onboard experiences, many supported by evidence such as photos, radar-returns, landing traces, physiological effects, animal reactions, electromagnetic disturbances, and more! The truth can no longer be denied: UFOs are real!
@@ -2749,7 +2759,7 @@ These ten locations, provide by you the viewers, show once again that UFOs are u
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/1qK7p8bUn3I" target="_blank" rel="noopener noreferrer">EPISODE #242. 
 MEETING THE EXTRATERRESTRIALS: TEN TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/1qK7p8bUn3I</h5>                                                             <h5>November 8, 2024</h5>
+<h5>LINK: https://youtu.be/1qK7p8bUn3I</h5> <h5>November 8, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>47,448 views  Nov 8, 2024</h6>
 Thousands of people have had the experience, if not millions: a face-to-face meeting with extraterrestrials. Cases come from all over the world, and they share profound commonalities and differences. It appears that the humanoid form is the universal template. And yet, many cases have rare or unique elements of high strangeness that defy comprehension. This article/video presents ten cases of this kind. These cases have much to teach us about the UFO phenomenon and these strange visitors to our planet.
@@ -2778,7 +2788,7 @@ Ten cases, each providing more evidence of the extraterrestrial presence on our 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/EN9sFHclJeI" target="_blank" rel="noopener noreferrer">EPISODE #241. 
 THE ONBOARD UFO EXPERIENCE: SIX SHOCKING CASES</a>.</h3>
-<h5>LINK: https://youtu.be/EN9sFHclJeI</h5>                                                             <h5>November 1, 2024</h5>
+<h5>LINK: https://youtu.be/EN9sFHclJeI</h5> <h5>November 1, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>72,300 views  Nov 1, 2024</h6>
 It has been called the ultimate UFO encounter, the closest of all encounters: an onboard UFO experience. There are thousands of well-documented cases, and some researchers believe they may number in the millions. These cases of direct contact with ETs involve extensive interactions and contain more information about the extraterrestrials than any other kind of encounter. Here are six shocking cases from across the world: Australia, Canada, France and three from the United States. The UFO phenomenon is so much more than just simple sightings of unexplained lights in the sky. It’s about meeting people from other worlds.
@@ -2799,7 +2809,7 @@ Six shocking onboard UFO encounters, each providing profound insights into the n
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/HfySCeMWDT8" target="_blank" rel="noopener noreferrer">EPISODE #240. 
 BEYOND BELIEF: TEN INCREDIBLE EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/HfySCeMWDT8</h5>                                                             <h5>October 25, 2024</h5>
+<h5>LINK: https://youtu.be/HfySCeMWDT8</h5> <h5>October 25, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>48,736 views  Oct 25, 2024  #111</h6>
 While there are still those who remain skeptical of UFOs and extraterrestrials, there are many who not only believe, they KNOW. They have moved beyond belief to actual experiential knowledge. A firsthand encounter with extraterrestrials changes the way a person views the universe. They know beyond doubt that we are not alone in this universe. And a lot of people have had this kind of experience. This video presents ten firsthand accounts of people who have met humanoids face-to-face. These cases come from all over the world. They show that we are not the only people in this universe. We are one of many!
@@ -2828,7 +2838,7 @@ These ten cases provide just a brief glimpse into the nature of contact with UFO
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Hq5RdDuqThQ" target="_blank" rel="noopener noreferrer">EPISODE #239. 
 UFOS IN YOUR HOMETOWN: EPISODE FIVE</a>.</h3>
-<h5>LINK: https://youtu.be/Hq5RdDuqThQ</h5>                                                             <h5>October 18, 2024</h5>
+<h5>LINK: https://youtu.be/Hq5RdDuqThQ</h5> <h5>October 18, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>21,286 views  Oct 18, 2024</h6>
 UFOs are ubiquitous! They are seen everywhere on our planet. Every town, every city, everywhere! In Part Five of this ongoing you the viewers have provided nine new locations to investigate and find UFO cases. And once again, research shows that UFOs have left no place behind. Eugene, Oregon----Homewood, Illinois----Niagara Falls, New York & Ontario Canada----Glenwood, MN----Helena, MT----Tucson, Arizona----Monterey, CA---Rotherham, UK: all of them have been visited by extraterrestrials. That includes sightings, landings, humanoids, and onboard experiences, with many cases supported by evidence including photos, radar-returns, landing traces, medical effects, electromagnetic disturbances, animal reactions and more. We are not alone!
@@ -2851,7 +2861,7 @@ The cases speak for themselves. All over the world UFOs are being seen. UFO acti
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/1uPTeE4ZwxQ" target="_blank" rel="noopener noreferrer">EPISODE #238. 
 FROM THE STARS: TWELVE ASTOUNDING EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/1uPTeE4ZwxQ</h5>                                                             <h5>October 11, 2024</h5>
+<h5>LINK: https://youtu.be/1uPTeE4ZwxQ</h5> <h5>October 11, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>49,580 views  Oct 11, 2024</h6>
 While there are still many questions surrounding the origin of UFOs and their occupants, the most popular theory is that they are from the stars, in other words: extraterrestrial. This video presents twelve cases from across the world involving a wide variety of ETs. These reports are supported by a wide variety of evidence: photos, medical effects, landing traces, animal reactions, electromagnetic disturbances and more. It’s time for this subject to be taken seriously by everyone on this planet.
@@ -2884,7 +2894,7 @@ These 12 cases alone make it undeniable that we are being visited by extraterres
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/15-KbtSEjxE" target="_blank" rel="noopener noreferrer">EPISODE #237. 
 SO THAT HAPPENED! EIGHT INCREDIBLY WEIRD UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/15-KbtSEjxE</h5>                                                             <h5>October 4, 2024</h5>
+<h5>LINK: https://youtu.be/15-KbtSEjxE</h5> <h5>October 4, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>39,934 views  Oct 4, 2024</h6>
 Some UFO encounters are so incredibly weird, that after it occurs people can hardly believe that it actually happened! This episode presents eight cases from across the world of truly high strangeness, each involving close encounters of the second kind, in which the environment is affected in some way. Many of these cases have multiple witnesses, and virtually all of them involve some form of evidence: radar confirmation, photographs, landing traces, physiological effects, animal reactions, electromagnetic disturbances. These are the kinds of cases that simply cannot be denied.
@@ -2909,7 +2919,7 @@ These eight case, all close encounters of the second kind, show that UFOs can af
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/pL5GYo7TIfc" target="_blank" rel="noopener noreferrer">EPISODE #236. 
 UNKNOWN HUMANOIDS: TEN CLOSE ENCOUNTERS OF THE THIRD KIND</a>.</h3>
-<h5>LINK: https://youtu.be/pL5GYo7TIfc</h5>                                                             <h5>September 27, 2024</h5>
+<h5>LINK: https://youtu.be/pL5GYo7TIfc</h5> <h5>September 27, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>48,715 views  Sep 27, 2024</h6>
 A close encounter of third kind: meetings with humanoids. This happens more often than most people think. There are thousands upon thousands of cases on record, coming from all over the world. This episode presents ten cases of extraterrestrial humanoid encounters you probably haven’t heard before. Short and tall humanoids, human-looking ETs, robotic beings, grays…and more. Each case reveals remarkable insights into the nature of UFO contact, what they are doing, and why they are here.
@@ -2938,7 +2948,7 @@ Ten more cases showing once more that we are not alone in the Universe. It’s t
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ApdJMteplYQ" target="_blank" rel="noopener noreferrer">EPISODE #235. 
 UFOS IN YOUR HOMETOWN: EPISODE FOUR</a>.</h3>
-<h5>LINK: https://youtu.be/ApdJMteplYQ</h5>                                                             <h5>September 20, 2024</h5>
+<h5>LINK: https://youtu.be/ApdJMteplYQ</h5> <h5>September 20, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>28,876 views  Sep 20, 2024</h6>
 Welcome to Episode Four of my ongoing series of “UFOS IN YOUR HOMETOWN.” I have put out a challenge to anyone interested in this subject: name any location, such as your hometown, and I bet I can find a UFO encounter there. Hundreds of people responded. I am working my way down the list of locations. In this episode I investigate eight places: Fort Wayne, IN----Greenock, Scotland----Warsaw, Poland----New Paltz, NY----St Charles, MO----Boston, MA----van horn, TX----Grand Junction, CO. And guess what, there are cases in each of these areas! Sightings, landings, humanoids, onboard encounters…supported by eyewitness testimonies, photos, radar-returns, landing traces, medical effects and more. Has your hometown been visited? The answer is probably YES!
@@ -2963,9 +2973,11 @@ It appears that every location on Earth has a long and rich history of UFO encou
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/s0iz0uTUdQk" target="_blank" rel="noopener noreferrer">EPISODE #234. 
 I WENT ONBOARD AN EXTRATERRESTRIAL CRAFT: SIX SCARY TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/s0iz0uTUdQk</h5>                                                             <h5>September 13, 2024</h5>
+
+<h5>LINK: https://youtu.be/s0iz0uTUdQk</h5> <h5>September 13, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>141,307 views  Sep 13, 2024</h6>
+
 An onboard UFO encounter is the most extensive of all UFO cases, and there are a lot of them. According to the Roper Polling organization, as many as one in fifty people show the markers of being UFO contactees. An onboard experience is far more common than most people know, and the fact is, most people remain silent about their encounters. This video presents six incredible accounts from across the world of people who have been onboard an extraterrestrial craft. These cases are not only fascinating, they have a lot to teach us about the ET agenda.
 
 CONTACT IN CALGARY. At 5:45 pm on November 16, 1967, fourteen-year-old David Seewaldt was walking to his home in Calgary, Alberta, Canada. It should have been a three-minute walk. But suddenly a craft covered with colored lights appeared overhead and struck him with a beam of light. Running home, he realized he was missing forty minutes of time. Then, six months later, he had a dream where he remembered what happened during the missing time: he was taken onboard. Later, under hypnosis, he recalled all the details, including being pulled onboard and being examined by reptilian-like entities.
@@ -2984,9 +2996,11 @@ These six cases show what it’s like to be taken onboard a craft and examined b
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/QcfhUnuJNbE" target="_blank" rel="noopener noreferrer">EPISODE #233. 
 VERY CLOSE ENCOUNTERS WITH HUMANOIDS: TEN SHOCKING TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/QcfhUnuJNbE</h5>                                                             <h5>September 6, 2024</h5>
+
+<h5>LINK: https://youtu.be/QcfhUnuJNbE</h5> <h5>September 6, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>65,450 views  Sep 6, 2024</h6>
+
 Seeing a UFO is an incredible experience. But far more shocking is having a very close encounter with a humanoid extraterrestrial. When someone has very close face-to-face contact, there is no chance of misperception. It is an undeniable experience that instantly changes a person’s worldview. This video presents ten shocking cases of people who have had direct contact with UFO occupants. The cases span from 1923 to 2012, come from across the planet, and involve a wide variety of humanoids. These cases are supported by multiple eyewitness testimonies, radar returns, photographs, landing traces and more.
 
 UFO LANDS FOR REPAIRS. One summer morning in June 1923, ten-year-old Norman Wilson Massie went outside his home in Mount Erie, Illinois to check on the family’s horses. To his shock, he came upon a landed UFO with five little blond men, each about four feet tall. They rushed back and forth, apparently repairing their craft. After five minutes, the craft flew away. Norman told his family, but nobody else for many years.
@@ -3013,9 +3027,11 @@ So many cases of humanoid encounters! These ten cases may be shocking, but they 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/cLVWMVkyxJY" target="_blank" rel="noopener noreferrer">EPISODE #232. 
 VISITORS TO EARTH: TEN INCREDIBLE HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/cLVWMVkyxJY</h5>                                                             <h5>August 30, 2024</h5>
+
+<h5>LINK: https://youtu.be/cLVWMVkyxJY</h5> <h5>August 30, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>48,843 views  Aug 30, 2024</h6>
+
 Despite what skeptics may claim, or any denials from our own govts, the thousands of firsthand cases of close encounters with humanoids speak for themselves: we are being visited by extraterrestrials. These visitors to Earth have been coming for a very long time. This video presents ten incredible humanoid encounters from many locations including France, Italy, Poland, Spain, Indonesia, Australia, Canada, Argentina, and the United States. Evidence such as landing traces, medical effects, animal reactions, electromagnetic disturbances and radar returns prove that these visitors to Earth are very real indeed.
 
 THE ALIEN IN THE BEAM OF LIGHT. At 6:35 am on April 3, 1948, driver Giuseppe Lanciano waited for the arrival of a train at San Martino, Italy. Suddenly his attention was drawn to a disc-shaped object, glowing orange, which zoomed silently overhead. He was joined by another witness and both watched as a beam came out of the bottom, carrying a short robotic-looking humanoid.
@@ -3042,9 +3058,11 @@ Ten humanoid encounters, each adding to the catalog of thousands of similar case
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/h5343qnNLkA" target="_blank" rel="noopener noreferrer">EPISODE #231. 
 UFOS IN YOUR HOMETOWN: EPISODE THREE</a>.</h3>
-<h5>LINK: https://youtu.be/h5343qnNLkA</h5>                                                             <h5>August 23, 2024</h5>
+
+<h5>LINK: https://youtu.be/h5343qnNLkA</h5> <h5>August 23, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>23,209 views  Aug 23, 2024</h6>
+
 Has every location on our planet been visited by UFOs? The answer appears to be a resounding: yes! I put out a challenge to anyone interested in this subject: name a town or city anywhere on this planet, and I will find a UFO case there. Hundreds of people have responded, and so far, every place I have investigated has a history of UFOs and extraterrestrials. In Part Three of this series, “UFOs in Your Hometown,” we continue the search for UFOs across planet Earth, covering nine different locations, including Ealing, London (UK,); Frankfort, IN; Warrenton, MO; Santa Clarita, CA; Milwaukee, WI; Roseville, CA; Show Low, AZ; Littleton, MA and Bastrop, TX. These cases include the full range of UFO activity: sighting, landings, humanoids, onboard encounters, even a possible UFO crash.
 
 EALING, LONDON, UK. Way back in 1845, numerous people reported seeing a humanoid wearing skintight overalls and a transparent helmet leaping over walls far faster than a human. There’s also the 1978 sighting of a classic flying saucer that the witness felt was meant for him to see. Or the gentleman who saw a boomerang-shaped craft during a lunar eclipse in 2015. And more!
@@ -3069,9 +3087,11 @@ These are just some of the many amazing encounters that have occurred in these n
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ITBbj6T_iv0" target="_blank" rel="noopener noreferrer">EPISODE #230. 
 ASTOUNDING; TEN TRUE HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/ITBbj6T_iv0</h5>                                                             <h5>August 16, 2024</h5>
+
+<h5>LINK: https://youtu.be/ITBbj6T_iv0</h5> <h5>August 16, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>43,633 views  Aug 16, 2024</h6>
+
 Few experiences are as astounding as a direct face-to-face encounter with an extraterrestrial humanoid from another world. And yet, the number of cases is far greater than most people think. They have been reported for well over a hundred years and probably into antiquity. Cases come from all over the world. This video presents ten little known cases, each one adding to our knowledge of ET contact. There are far too many cases to be explained away as hoaxes, hallucinations, or misperceptions.
 
 THE ETS AND THE SAUCER. On the afternoon of May 5, 1954, eight-year-old Arnaldo Ribeiro de Freitas was goat-herding near his home in Fregim, Portugal when an odd sound alerted him to two UFOs hovering nearby. One flew off, but the other remained, and Arnaldo could see two big-headed humanoids sitting inside it. And one was looking right at him! After it departed, it left weird landing traces on the ground.
@@ -3098,9 +3118,11 @@ As hard as it might be for some people to believe, the growing number of cases i
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/xdA0e3it6x8" target="_blank" rel="noopener noreferrer">EPISODE #229. 
 BEWILDERED: TEN HUMANOIDS ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/xdA0e3it6x8</h5>                                                             <h5>August 9, 2024</h5>
+
+<h5>LINK: https://youtu.be/xdA0e3it6x8</h5> <h5>August 9, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>46,547 views  Aug 9, 2024</h6>
+
 A close encounter with a UFO, and especially humanoids, challenges a person on multiple levels: physically, emotionally, mentally, and spiritually. Almost without exception witnesses are left stunned, surprised, bewildered. The ten cases presented in this video come from across the world and involve a wide variety of humanoids. They contain a wide variety of evidence. And each case shows how the witnesses are deeply and profoundly affected to a degree that their lives are never the same.
 
 BLACK HOLE ALIENS. On August 26,1974, Jean Marie Bigorne stepped outside his home in Feignies, France and saw a black hole in the gray night sky. As it started to descend, he rushed inside, got his wife, and together they watched it split into two half-circles. The right side disappeared, but the left side suddenly revealed two robotic-looking humanoids. The witnesses became entranced and watched it for 45 minutes until going inside. They never saw it leave.
@@ -3127,9 +3149,11 @@ These ten cases show how incredibly strange a UFO/humanoid encounter can be, and
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_VPPmPzGbO4" target="_blank" rel="noopener noreferrer">EPISODE #228. 
 ANYONE, ANYWHERE, ANYTIME: TEN HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/_VPPmPzGbO4</h5>                                                             <h5>August 2, 2024</h5>
+
+<h5>LINK: https://youtu.be/_VPPmPzGbO4</h5> <h5>August 2, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>89,340 views  Aug 2, 2024</h6>
+
 Humanoid encounters are far more numerous than you might think. Cases come from across the world and have been occurring for a very long time. It can happen to anyone, anywhere, anytime! These cases make it clear that we still have much to learn about the Universe we live in. This video presents ten cases of people who have had face-to-face encounters with extraterrestrials of many different kinds.
 
 THE LITTLE MAN IN THE UFO. One night in December 1951, the Coley family of Red Springs, NC were amazed to see a UFO hovering near their home. More amazing, they could see a humanoid figure inside. This was just the beginning. On August 6, 1952, James J. Allen saw a craft land next to his home in nearby Lumberton. A short humanoid figure emerged, quickly returned into the craft which took off. In 1975 a huge wave of sightings occurred, and was observed by dozens of police officers. Along with it came several more humanoid encounters.
@@ -3156,9 +3180,11 @@ These ten cases show that a UFO and humanoid encounter can happen to anyone, any
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/3v3S97WDd64" target="_blank" rel="noopener noreferrer">EPISODE #227. 
 UFOS IN YOUR HOMETOWN: PART TWO</a>.</h3>
-<h5>LINK: https://youtu.be/3v3S97WDd64</h5>                                                             <h5>July 26, 2024</h5>
+
+<h5>LINK: https://youtu.be/3v3S97WDd64</h5> <h5>July 26, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>30,631 views  Jul 26, 2024</h6>
+
 Ask and ye shall receive! I recently put out a challenge on my YouTube channel, name any location on Earth, such as your hometown, and I bet I can find a UFO encounter that occurred there! I received more than 150 responses. Challenge accepted! And guess what? I was right! So far, I have been successful in locating UFO cases in every location provided. UFOs are seen everywhere. Pick a location and the chances are it has a long history of UFO encounters. This video is Episode Two of an ongoing series I call “UFOS IN YOUR HOMETOWN.” For this episode, by special request from you, the viewers, I cover the locations: Locust Grove, Oklahoma; McMinnville, Oregon; India (yes, the country!); Berkshire Mountains, Massachusetts; Sacramento, California and Nova Scotia, Canada. The encounters in these locations include sightings, landings, humanoids, and onboard encounters. The evidence supporting these cases includes multiple eyewitness testimonies, photographs, radar-returns, landing traces, animal reactions, physiological effects, electromagnetic disturbances and more. Have UFOs visited your hometown? Likely, the answer is yes!
 
 LOCUST GROVE, OKLAHOMA. This is a very small rural town with a population of less than 1400 people, and yet, there is a UFO case involving multiple sightings of strange orbs along with strange animal reactions.
@@ -3177,9 +3203,11 @@ Six specific locations – all with a history of UFO encounters. As should be ob
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_nrka0VJMms" target="_blank" rel="noopener noreferrer">EPISODE #226. 
 FROM BEYOND EARTH: TEN HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/_nrka0VJMms</h5>                                                             <h5>July 19, 2024</h5>
+
+<h5>LINK: https://youtu.be/_nrka0VJMms</h5> <h5>July 19, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>62,949 views  Jul 19, 2024</h6>
+
 When it comes to extraterrestrials, the humanoid form seems to be the universal template. The vast majority of reports involve some kind of bipedal humanoid. And there are sooo many! These accounts come from across the planet, and have been occurring for a very long time. The cases have astounding similarities that point towards the veracity of these accounts, and they are also supported by a wide variety of evidence. This video presents ten cases of face-to-face encounters with humanoids. There are too many cases to ignore, deny or explain away. The evidence speaks for itself. There is life beyond Earth.
 
 ET CONTACTS DEAF-MUTE MAN. One evening in 1950, 13-year-old William Ortiz (who was deaf) saw a gray-type ET outside his home in Floridablanca, Colombia. Moments later, he saw a landed craft and several other figures. The ET closest to him then communicated telepathically and used sign-language. Afterwards, William’s hearing was temporarily restored. It was to be the first of three amazing encounters.
@@ -3206,9 +3234,11 @@ These ten cases contain many important insights into the nature of UFO contact. 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Lcmue1wnMoM" target="_blank" rel="noopener noreferrer">EPISODE #225. 
 THE ULTIMATE UFO ENCOUNTER: SIX ONBOARD UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/Lcmue1wnMoM</h5>                                                             <h5>July 12, 2024</h5>
+
+<h5>LINK: https://youtu.be/Lcmue1wnMoM</h5> <h5>July 12, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>73,103 views  Jul 12, 2024</h6>
+
 There are many different kinds of UFO encounters, but the ultimate experience is being taken onboard a craft and meeting ETs face-to-face. And it happens more often than you might think. In 1991, the Roper Poll Survey found that as many as 1 in 50 people may be UFO contactees, which means that millions of people are having this kind of encounter! This episode presents just a small sample of six cases from around the world. These cases involve both single and multiple witnesses and contain some very compelling evidence such as physiological effects, healings, implants and more. Even more importantly, they answer some of the many questions surrounding this subject.
 
 THE CASE OF BETTY STEWART DAGENAIS. In 1925, when Betty Stewart Dagenais of Ontario Canada was only five years old, she was taken onboard a craft and examined by gray ETs. A few months later it happened again. As an adult she had three more encounters. These were primarily recalled under hypnosis, and all she could remember was being physically examined and apparently given an alien implant. This turned out to be true, because later her implant was surgically removed by doctors here on Earth, and it turned out to have some amazing properties that defy conventional explanations.
@@ -3227,9 +3257,11 @@ These six cases are just a tiny portion of the actual number of cases of this ki
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/-xuPD9cG4rI" target="_blank" rel="noopener noreferrer">EPISODE #224. 
 ALIENS TRIED TO ABDUCT MY DOG: THE JOHN TRASCO STORY</a>.</h3>
-<h5>LINK: https://youtu.be/-xuPD9cG4rI</h5>                                                             <h5>July 7, 2024</h5>
+
+<h5>LINK: https://youtu.be/-xuPD9cG4rI</h5> <h5>July 7, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>9,800 views  Jul 7, 2024</h6>
+
 Around 6:00 p.m., on November 6, 1957, John Trasco and his wife Ellen were in their home in Everittstown, New Jersey. John had just returned from his job at the local paper mill. He stepped out to feed their dog, King, a six-year-old, charcoal-colored, half-blind, bad-tempered, Belgian police dog, who they kept tied to the side of the house.
 
 Shortly after John stepped outside, Mrs. Trasco heard King barking furiously. She looked outside and saw a strange reflection in the yard. Staring at it, she was amazed to see it was a glowing egg-shaped object, about nine to twelve feet long, hovering, and bobbing up and down. Meanwhile, John also saw the craft, and approaching him from the direction of the craft was a strange humanoid figure.
@@ -3242,9 +3274,11 @@ So began one of the strangest UFO encounters in history. In this episode, you ca
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/zubKBEuOOrM" target="_blank" rel="noopener noreferrer">EPISODE #223. 
 ALIENS ABDUCTED MY DOG</a>.</h3>
-<h5>LINK: https://youtu.be/zubKBEuOOrM</h5>                                                             <h5>July 5, 2024</h5>
+
+<h5>LINK: https://youtu.be/zubKBEuOOrM</h5> <h5>July 5, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>23,365 views  Jul 5, 2024</h6>
+
 We all love our fur babies, and dogs are the most popular pet of all. They have been man’s best friend for countless millennia. What many people don’t know, however, is that ETs also show a great interest in canines. There has never been a study of dog-UFO cases until now! This video presents more than two dozen cases in which dogs have been directly and extensively involved with UFOs and extraterrestrials. These cases reach back to the 1940s up to the present day, and they provide some profound insights into extraterrestrials and their agenda on this planet.
 
 These cases come from across the planet, New Zealand, Australia, Russia, Ukraine, England, Wales, Ireland, Spain, Canada, Mexico, and more, including all over the United States. A wide variety of ETs show interest in a wide variety of dogs. The cases include dogs being taken onboard and examined, and even in some cases healed. In some cases, the dogs are taken by themselves. In others, people are taken onboard with their own dogs. 
@@ -3256,9 +3290,11 @@ With so many encounters like these, the truth cannot be denied. ETs are showing 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Ng-O1vql7iY" target="_blank" rel="noopener noreferrer">EPISODE #222. 
 UFOS IN YOUR HOMETOWN: BY SPECIAL REQUEST</a>.</h3>
-<h5>LINK: https://youtu.be/Ng-O1vql7iY</h5>                                                             <h5>June 28, 2024</h5>
+
+<h5>LINK: https://youtu.be/Ng-O1vql7iY</h5> <h5>June 28, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>30,293 views  Jun 28, 2024</h6>
+
 UFOs are seen all over our planet. It appears that virtually every location on Earth has a long and rich history of UFO encounters. But is this true? Recently a put out a challenge: name a location that you would like to know if UFOs have visited such as your hometown. The response was huge: many people asked if I could find any UFO cases in their hometown. So, by special request, this episode presents ten locations from across the United States (and a few outside of it,) and the history of UFO encounters that have occurred there. This includes sightings, landings, face-to-face encounters with humanoids and of course, onboard encounters. Compelling evidence supports many of these cases including multiple eyewitness testimonies, photographs, radar-returns, landing traces, physiological effects, animal reactions, electromagnetic disturbances and more.
 
 WENATCHEE, WASHINGTON. This history of UFOs in Wenatchee reaches back to at least 1907 when a strange airship was seen by multiple citizens. Following this, many other encounters occurred, including star-like objects, multi-colored UFOs, cone-shaped objects, shiny silver triangular-shaped objects, craft turning at right angles, and even a large object directly over downtown Wenatchee.
@@ -3285,9 +3321,11 @@ These are just a small sample of the actual number of the documented cases comin
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/CKtz-9dA9A0" target="_blank" rel="noopener noreferrer">EPISODE #221. 
 THEY ARE HERE: TEN CLOSE ENCOUNTERS WITH EXTRATERRESTRIALS</a>.</h3>
-<h5>LINK: https://youtu.be/CKtz-9dA9A0</h5>                                                             <h5>June 21, 2024</h5>
+
+<h5>LINK: https://youtu.be/CKtz-9dA9A0</h5> <h5>June 21, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>56,640 views  Jun 21, 2024</h6>
+
 The time for skepticism is over. There are too many cases to ignore, too much evidence to deny. This video presents ten true cases of firsthand extraterrestrial encounters from across the globe, each providing important information and profound insights into the UFO phenomenon. Many have multiple witnesses and compelling evidence in the form of landing traces, electromagnetic disturbances, animal reactions and physiological effects. It’s time for all humanity to accept the truth of the ET presence on Earth.
 
 THE UFO GOBLINS. On the morning of March 15, 1943, sisters “C,” (10) and Angela (6) were grazing the family goat by their home in the small town of Montecreste, Italy. Suddenly a “great roar” overhead caught their attention and they saw a saucer-shaped craft land nearby. Two figures in white jumpsuits exited and talked in a weird language. Knowing nothing of UFOs and ETs, the girls thought they saw goblins.
@@ -3314,9 +3352,11 @@ These ten cases are a tiny portion of the actual number of cases, each of which 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/qHun029FgFA" target="_blank" rel="noopener noreferrer">EPISODE #220. 
 FACE TO FACE: TEN VERY CLOSE ENCOUNTERS WITH EXTRATERRESTRIALS</a>.</h3>
-<h5>LINK: https://youtu.be/qHun029FgFA</h5>                                                             <h5>June 14, 2024</h5>
+
+<h5>LINK: https://youtu.be/qHun029FgFA</h5> <h5>June 14, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>88,299 views  Jun 14, 2024</h6>
+
 While governments across the world now admit to the validity UFOs, they still refuse to discuss firsthand contact cases. The heart of the UFO phenomenon is not the craft, but the UFO occupants themselves. The evidence shows clearly that UFOs are craft, piloted by living beings. The thousands of humanoid cases can no longer be denied, ignored, or explained away. This video presents ten cases of very close encounters with humanoids of all kinds. They span more than 100 years, come from across the world, and many contain compelling evidence to support them.
 
 THE SMILING EXTRATERRESTRIAL. One morning in the Summer of 1915, Bjarne Westvand (age 6) was playing outside his home in Jakobsbakken, Norway when a craft landed, and out stepped two three-foot-tall figures with large heads, long hair, gray skin. One walked right up to him then turned around and departed. It was an experience he kept secret for 65 years.
@@ -3343,9 +3383,11 @@ Ten cases, each offering a glimpse into what it’s like to have a face-to-face 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/HefLEAs1mFI" target="_blank" rel="noopener noreferrer">EPISODE #219. 
 ASTONISHING: TEN CASES OF EXTRATERRESTRIAL CONTACT</a>.</h3>
-<h5>LINK: https://youtu.be/HefLEAs1mFI</h5>                                                             <h5>June 7, 2024</h5>
+
+<h5>LINK: https://youtu.be/HefLEAs1mFI</h5> <h5>June 7, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>92,043 views  Jun 7, 2024</h6>
+
 A face-to-face encounter with an extraterrestrial humanoid – it’s one of the most astonishing experiences a person can have. And it’s happening to a lot of people. It’s been happening all over the world for a very long time. While governments across the world are admitting that UFOs are real, they refuse to talk about firsthand contact cases. The question is why? Is it because humanoid encounters represent the forefront of UFO research and have volumes to teach us about this subject? This video presents ten astonishing cases of direct contact with humanoids. These include multiple witness cases with a wide variety of supporting evidence. Time for truth!
 
 A SHOCKING EXPERIENCE. It was 10am one summer morning in 1948 when Ernst-August R. was minding his sheep in a rural area of Hemer, Germany. Suddenly his sheep scattered as a large saucer-shaped craft landed next to him. Ernst reached out and touched it. He was immediately shocked and passed out. Upon awakening, he was surrounded by strange humanoids.
@@ -3372,9 +3414,11 @@ These ten amazing humanoid encounters show how very strange face-to-face contact
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/AGWKmPYFz6c" target="_blank" rel="noopener noreferrer">EPISODE #218. 
 NOT ALONE: TEN SUPER-STRANGE ALIEN ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/AGWKmPYFz6c</h5>                                                             <h5>May 31, 2024</h5>
+
+<h5>LINK: https://youtu.be/AGWKmPYFz6c</h5> <h5>May 31, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>78,830 views  May 31, 2024</h6>
+
 With nearly a million reported and documented UFO encounters, it is clear that we are not alone in this universe. ETs are visiting our planet, and people all over the world are encountering humanoids of many different kinds. This video presents ten super-strange cases of humanoid encounters, many with multiple witnesses and compelling evidence. Face-to-face contact with extraterrestrials provide important insights into the UFO phenomenon and answer many of the questions surrounding this subject.
 
 POLICE OFFICERS SEE LANDED UFO AND HUMANOIDS. At 1am one evening in January 1956, French gendarmes (Henri Barboule and Msr Simon) were in Barre-des-Cevennes, France, when they heard a deafening roar. Looking up, they saw a flying saucer pass overhead and land a short distance away. As the craft released a probe, four humanoids exited the craft. Both officers were paralyzed with fear.
@@ -3401,9 +3445,11 @@ Ten super-strange alien encounters from all over the world! And there are so man
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/55KdbyIVK00" target="_blank" rel="noopener noreferrer">EPISODE #217. 
 MEETING THE ALIENS: FIVE ONBOARD UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/55KdbyIVK00</h5>                                                             <h5>May 24, 2024</h5>
+
+<h5>LINK: https://youtu.be/55KdbyIVK00</h5> <h5>May 24, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>71,058 views  May 24, 2024</h6>
+
 Can you imagine being taken onboard a craft and meeting extraterrestrials face-to-face? It is perhaps the ultimate encounter. This video presents five astonishing cases of people taken onboard an ET craft. While each of these cases does involve a single witness, every one of them was recalled consciously without hypnosis. And every one of them includes compelling evidence pointing to the reality of the encounter. They come from all over the world, and provide a close-up look at what it’s like to meet aliens face-to-face. They also answer many of the questions surrounding ET contact and their agenda on planet Earth.
 
 THE CASE OF WARABE AMANAKA. It was a summer evening in 1926 when 2-year-old Warabe Amanaka heard a telepathic voice calling him outside. Venturing outside his home in Matsuyama, Japan, he was greeted by a tall, blond-haired human-looking figure who promised to meet him again. Over the next three years, the man (who Warabe called Uncle) appeared several times. Then on Aug 2, 1930, Warabe (age 5) heard the familiar telepathic voice and met Uncle again. This time, Warabe was taken onboard a craft, and given a ride around the planet, viewing whales in the ocean, elephants in Africa and the Great Pyramids of Egypt. After being dropped back home, the ETs promised to visit him again. During one of his visits, the ETs gave Warabe a strange metal box. It’s one of Japan’s strangest cases on record.
@@ -3420,9 +3466,11 @@ These 5 cases show that people all over the world are being taken onboard UFOs a
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/TYocXlD19Jk" target="_blank" rel="noopener noreferrer">EPISODE #216. 
 TWELVE AMAZING UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/TYocXlD19Jk</h5>                                                             <h5>May 17, 2024</h5>
+
+<h5>LINK: https://youtu.be/TYocXlD19Jk</h5> <h5>May 17, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>69,577 views  May 17, 2024</h6>
+
 So many humanoids! Encounters with humanoids and extraterrestrials are far more common than most people believe. Cases come from across the world and have been occurring for a long time. And in almost all cases people describe humanoid figures. In fact, the humanoid form appears to be universal. This video presents twelve amazing humanoid encounters from 1940 to 2009. Some are single-witness cases, but most have multiple witnesses, and a few have compelling physical evidence in support of their case. There are now enough documented cases to conclude that we are not alone on planet Earth. We are being visited.
 
 SOLDIERS OR ALIENS. In July of 1940, a 15-year-old boy from Kongens Tisded, Denmark was going to water his cattle when he came upon three figures wearing jumpsuits and helmets. To his shock, they approached a landed disc-shaped craft which took off silently. He thought they might be German soldiers, but later realized he may have encountered ETs.
@@ -3453,9 +3501,11 @@ These twelve cases are just a small sample of the huge number of documented acco
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/bS_7JqPxEv4" target="_blank" rel="noopener noreferrer">EPISODE #215. 
 TRULY INCREDIBLE: TWELVE WEIRD HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/bS_7JqPxEv4</h5>                                                             <h5>May 10, 2024</h5>
+
+<h5>LINK: https://youtu.be/bS_7JqPxEv4</h5> <h5>May 10, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>56,756 views  May 10, 2024</h6>
+
 So many cases of humanoids! The general public has no real idea just how many people are having these experiences. This video presents twelve incredible cases of humanoid encounters from across the planet, from the 1950s to the 2020s. Robotic entities, human-looking ETs, little green men, grays, and more. And of course, compelling evidence: multiple eyewitness testimonies, landing traces, medical effects, and more. Truth is coming out!
 
 BACKYARD ALIENS. Around 9pm on December 15, 1956, Marie Carow stepped into her backyard in Conashaugh, PA. She was hoping to see deer, but instead observed two four-foot-tall helmeted figures staring at her. She called her husband, but he refused to come outside. Later, she found out her neighbors saw a UFO at the same time.
@@ -3486,9 +3536,11 @@ These twelve incredible humanoid encounter cases make it very clear that people 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/c_QaAdJmVaM" target="_blank" rel="noopener noreferrer">EPISODE #214. 
 TEN STARTLING CASES OF HUMANOIDS AND ALIENS</a>.</h3>
-<h5>LINK: https://youtu.be/c_QaAdJmVaM</h5>                                                             <h5>May 3, 2024</h5>
+
+<h5>LINK: https://youtu.be/c_QaAdJmVaM</h5> <h5>May 3, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>83,609 views  May 3, 2024</h6>
+
 Humanoid and alien encounters! They are perhaps the most fascinating aspect of ufology, and have so much to teach us about the ET agenda. This video presents ten cases from all over the world involving a wide variety of extraterrestrials. There are human-looking ETs, little dwarfs, frog-like beings, flying humanoids and more. Many involve multiple witnesses and startling physical evidence such as landing traces, medical effects, animal reactions and electromagnetic disturbances. There are too many cases to ignore, deny or explain away. Something very profound is happening here.
 
 TEN LITTLE ALIENS. One evening in January 1931, cattle-herder Helge Eriksson was walking to his home in Eslov, Sweden when he saw a crowd of ten little men coming towards him. They were only about four feet tall, with oversized heads and long beards. They wore one piece robes with hoods and seemed to float across the ground. They paid no attention to Helge and moved up to a brilliant light source and were gone.
@@ -3515,9 +3567,11 @@ Ten cases, from across the planet, all involving a wide variety of humanoids and
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/VyoikIl8qKs" target="_blank" rel="noopener noreferrer">EPISODE #213. 
 FIVE REALLY WEIRD EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/VyoikIl8qKs</h5>                                                             <h5>April 26, 2024</h5>
+
+<h5>LINK: https://youtu.be/VyoikIl8qKs</h5> <h5>April 26, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>131,560 views  Apr 26, 2024</h6>
+
 UFO contact is known for high strangeness. When people encounter ETs face-to-face, or are 
 taken onboard, things can go from strange to truly bizarre. This video presents five cases 
 from across the world, which contain incredibly odd and unique elements of high 
@@ -3589,9 +3643,11 @@ evidence speaks for itself. We are not alone!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/53Emmv7ZHoU" target="_blank" rel="noopener noreferrer">EPISODE #212. 
 STRANGE HUMANOIDS AROUND THE WORLD: TEN EYEWITNESS ACCOUNTS</a>.</h3>
-<h5>LINK: https://youtu.be/53Emmv7ZHoU</h5>                                                             <h5>April 19, 2024</h5>
+
+<h5>LINK: https://youtu.be/53Emmv7ZHoU</h5> <h5>April 19, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>102,948 views  Apr 19, 2024</h6>
+
 There are many different kinds of strange humanoids being reported by people all over the world, and it’s been happening for a long time. It’s definitely not just grays! In fact, the variety of ET types is far more numerous than most people realize. This video presents ten cases from across the world, spanning five decades, from the 1950s to the 1990s. Many involve multiple witnesses and different forms of evidence. But most fascinating are all the amazing kinds of ETs.
 
 BROWN-SKINNED MIDGET ETS. One afternoon in the Fall of 1957, a 15-year-old boy was working in the fields south of the small town of Ejstrupholm, Denmark when a metallic craft landed just 100 feet away. To his utter shock, two 3-foot-tall brown-skinned ETs wearing transparent helmets emerged. After a few minutes, they returned to the craft, which took off. The witness was so amazed, he told almost nobody.
@@ -3618,9 +3674,11 @@ These ten cases provide a small sample of the huge number of cases taking place 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Y6gcstxbaDo" target="_blank" rel="noopener noreferrer">EPISODE #211. 
 FIVE FASCINATING ONBOARD UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/Y6gcstxbaDo</h5>                                                             <h5>April 12, 2024</h5>
+
+<h5>LINK: https://youtu.be/Y6gcstxbaDo</h5> <h5>April 12, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>93,806 views  Apr 12, 2024</h6>
+
 UFO sightings, landings and face-to-face encounters with extraterrestrials are all undeniably interesting. But perhaps the most extraordinary of all UFO encounters are cases where people have been taken onboard a craft. These cases leave little room for misperception or denial. They represent the cutting edge of UFO research, and make it very clear that we are not alone. This video presents five extensive onboard UFO encounters from across the world. Three of these cases involve multiple witnesses. All of them have physical evidence. But most important, these five cases show what it’s like to have an onboard UFO encounter and interact directly with ETs.
 
 THE ONBOARD ENCOUNTER OF PROFESSOR JOAO DE FREITAS GUIMARAES. On the night of July 16, 1956, Joao de Freitas Guimaraes was taking a walk along the beach in San Sebastiao, Brazil. Sitting down to rest, he was shocked to see a craft emerge from the ocean, fly towards him, and land on the beach. Two human-looking figures wearing jumpsuits emerged and invited him onboard the craft. Inside, Joao was amazed to see how advanced the craft was. Looking out a porthole, he saw the craft zoom into outer space. The ETs warned him about humanity’s savage nature and use of atomic weapons. They promised to meet him again and returned him to the beach. At first Joao kept his experience a secret, but word leaked out to the press and Joao’s story was published widely in newspapers. And soon he would have another encounter.
@@ -3637,9 +3695,11 @@ These five cases are just the tip of the iceberg. Many researchers believe these
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/P_BKYS32Iok" target="_blank" rel="noopener noreferrer">EPISODE #210. 
 TEN TRULY STRANGE UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/P_BKYS32Iok</h5>                                                             <h5>April 5, 2024</h5>
+
+<h5>LINK: https://youtu.be/P_BKYS32Iok</h5> <h5>April 5, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>84,352 views  Apr 5, 2024</h6>
+
 It’s one of the strangest and most fantastic experiences a person can have: a face-to-face encounter with an actual ET. And yet it happens more often than you might think. This video presents ten cases in which people have experienced humanoid encounters. These include all different types of humanoids, from short three-foot-tall childlike ETs, to beings almost fifteen feet tall. These cases come from all over the world. Many of these cases are supported by multiple firsthand eyewitness testimony and a wide variety of physical evidence. Are you ready for contact? Because as these cases show, it can happen when you least expect it.
 
 THE ALIENS IN THE FOREST. It was 7am one morning in the Summer of 1956 as MME L took a walk near her home in Vitry-les-Nogent. She was entering the Marsois Forest, right next to the famous Dolmen Pierre Alot when she saw what she thought were two children. But as she approached, she realized they wore jumpsuits and helmets. They were not human!
@@ -3666,9 +3726,11 @@ The time for skepticism, ridicule and disbelief is over. How many cases will it 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/wUzW51WbFrU" target="_blank" rel="noopener noreferrer">EPISODE #209. 
 ET CONTACT: TEN HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/wUzW51WbFrU</h5>                                                             <h5>March 29, 2024</h5>
+
+<h5>LINK: https://youtu.be/wUzW51WbFrU</h5> <h5>March 29, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>39,617 views  Mar 29, 2024</h6>
+
 With so many people stepping forward to share their experiences of extraterrestrial contact, it’s clear that these encounters are far more common than previously believed. It’s difficult to say exactly how common contact is, but some researchers believe it numbers in the millions. This video presents ten cases of contact with humanoid ETs of various kinds, coming from all over the world, from the 1930s through the 1990s. Most of these cases involve extensive interactions with the ETs, including conversations. And of course, physical evidence of many kinds. As these cases show, ET contact is very real.
 
 IT SEEMED LIKE THEY WERE OLD FRIENDS. One night in 1938, Malcolm B Perry was walking to his home in Somerville, Massachusetts when an odd airborne object caught his eye. It was blimp-shaped with several portholes. Looking down at him through one of the portholes was a humanoid. Malcolm was overcome with a feeling of friendship, and as the craft zoomed off, a sense of loss swept over him.
@@ -3695,9 +3757,11 @@ These ten cases are just a brief glimpse into the huge number of encounters that
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/rknpLADiWkk" target="_blank" rel="noopener noreferrer">EPISODE #208. 
 ALIEN VISITATIONS: TEN CASES FROM AROUND THE WORLD</a>.</h3>
-<h5>LINK: https://youtu.be/rknpLADiWkk</h5>                                                             <h5>March 22, 2024</h5>
+
+<h5>LINK: https://youtu.be/rknpLADiWkk</h5> <h5>March 22, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>26,213 views  Mar 22, 2024</h6>
+
 UFOs are real! The UFO subject is now enjoying a resurgence in popularity. Governments across the world are now admitting the validity of the UFO phenomenon, and more and more people are now stepping forward to share their own encounters. This video presents ten cases of alien visitations from across the world, seven of which involve face-to-face contact with humanoids of all different kinds. Landing traces, physiological effects, unusual electromagnetic disturbances, and most cases with multiple witnesses – the truth can no longer be denied. We are not alone!
 
 A CLOSEUP ENCOUNTER WITH HUMANOIDS. On November 16, 1952, 40-year-old farmer, Nello Ferreri stepped into the fields near his home in Castelfranco, Italy to relieve himself. Suddenly a circle of light appeared on the ground around him, and looking up, he saw a flying saucer hovering just overhead. Looking down at him were three strange humanoids wearing rubber suits.
@@ -3724,9 +3788,11 @@ These ten cases from across the planet, spanning several decades, show the incre
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/dlPLMwWQxDQ" target="_blank" rel="noopener noreferrer">EPISODE #207. 
 PETER AND THE UFOS: A TRUE STORY OF CONTACT</a>.</h3>
-<h5>LINK: https://youtu.be/dlPLMwWQxDQ</h5>                                                             <h5>March 15, 2024</h5>
+
+<h5>LINK: https://youtu.be/dlPLMwWQxDQ</h5> <h5>March 15, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>22,107 views  Mar 15, 2024</h6>
+
 It was 1968, and 13-year-old Carter Welles walked to school with his best friend, Jackson Groves near his home in Toronto, Ontario, Canada. Jackson had just experienced a spontaneous out-of-body experience, and both boys were amazed by the event. Together they vowed to learn how to achieve astral projection. For the next two years they read everything they could find on the subject and meditated daily, but were unable to get out-of-body. Then one evening, Jackson walked home along a remote country highway outside of Toronto when a truckdriver offered him a ride. Jackson accepted. The driver introduced himself as Peter and said, “Well, Jackson, how’s it going with the astral travelling?”
 
 Jackson was shocked because he did not know this man, and Jackson had told nobody but Carter about their attempts to have OBEs. Jackson asked Peter how he knew his name and about the OBEs, and the man just smiled and said, “Oh, you know, we’ve been keeping an eye on you guys.”
@@ -3755,9 +3821,11 @@ If you would like to hear the whole story about Peter and the UFOs, check out th
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/qbJSnybGong" target="_blank" rel="noopener noreferrer">EPISODE #206. 
 WHEN ASTRONOMERS SEE UFOS</a>.</h3>
-<h5>LINK: https://youtu.be/qbJSnybGong</h5>                                                             <h5>March 8, 2024</h5>
+
+<h5>LINK: https://youtu.be/qbJSnybGong</h5> <h5>March 8, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>12,316 views  Mar 9, 2024</h6>
+
 There is a misconception in the field of ufology that no astronomers have seen UFOs. But the truth is exactly the opposite. In fact, there is a long list of high-profile astronomers who have had incredible UFO sightings. In 1952, Blue Book astronomy expert, J. Allen Hynek held a conference with astronomers. “Over forty astronomers were interviewed,” he said, “of which five had made sightings of one sort or another. This is a higher percentage than among the populace at large.” Researcher Alejandro Rojas, writes “Often people will ask me, ‘If there are so many UFOs, why aren’t astronomers seeing them?’ They are! In fact, astronomers have been some of the most influential advocates for the serious study of UFOs.” This video presents more than a dozen cases of astronomers who have seen UFOs.
 
 In March of 1676, Edmund Halley (the discover of Halley’s comet) observed a “vast body apparently bigger than the moon,” which he estimates was 40 miles high, moving in excess of 9000 mph. He had other sightings of unexplained lights in the sky and on the moon, and on March 6, 1716, saw a strange UFO which remained in the sky for 2 full hours.
@@ -3790,9 +3858,11 @@ If you’d like to learn more about UFOs and astronomers, check out my new book,
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/oIKbK7rv8EI" target="_blank" rel="noopener noreferrer">EPISODE #205. 
 TEN UNUSUAL EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/oIKbK7rv8EI</h5>                                                             <h5>March 1, 2024</h5>
+
+<h5>LINK: https://youtu.be/oIKbK7rv8EI</h5> <h5>March 1, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>22,344 views  Mar 1, 2024</h6>
+
 UFO encounters are by their very nature, unusual, but some cases are weirder than others. This is especially true with close-up encounters with humanoids. UFO contact is so much more than just being picked up and examined. UFOs and ETs interact with people in many strange ways. This video presents ten cases from all over the world involving humanoid encounters with high strangeness. Cases from the 1950s to the 2000s. Cases with compelling physical evidence. Cases that have much to teach us about the ET agenda.
 
 IF THERE ARE ANY MORE WARS. On Aug 30, 1955, 21-year-old David Ankenbrandt drove near his home in Mulberry Corners, Ohio when a UFO landed nearby. Going to investigate, he was confronted by a human-looking ET who had an urgent mission for David. When David explained that he was unable to perform this mission, the ETs insisted. Two days later, they returned.
@@ -3819,9 +3889,11 @@ These ten cases reveal UFOs and ETs that behave in very unusual ways. And yet, t
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/G9HiW0c5JgA" target="_blank" rel="noopener noreferrer">EPISODE #204. 
 TEN TRUE HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/G9HiW0c5JgA</h5>            <h5>(bearded)</h5>                               <h5>February 23, 2024</h5>
+
+<h5>LINK: https://youtu.be/G9HiW0c5JgA</h5>  <h5>(bearded)</h5> <h5>February 23, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>28,268 views  Feb 23, 2024</h6>
+
 Perhaps the most fascinating aspect of the UFO phenomenon is when people have direct face-to-face contact with humanoids. Sightings are undeniably interesting and add to our knowledge of the subject. But humanoid encounters are so close-up that they allow little chance for misperception. They also contain a lot more information. There are far more cases than most people realize. This video presents ten cases from across the world involving direct contact with humanoids of all kinds.
 
 THE HUMAN ETS. On the morning of Jul 20, 1965, milkman Ramon Eduardo Pereyra was making deliveries in Quilmes, Argentina when he saw a strange craft land nearby. He exited his vehicle and hiked to the location. To his shock, he came upon a small craft with a man inside. Suddenly another man approached, ignored Ramon, entered the craft, which promptly took off.
@@ -3848,9 +3920,11 @@ These ten cases represent just a tiny fraction of the actual number of humanoid 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/tLbLFJuSgaY" target="_blank" rel="noopener noreferrer">EPISODE #203 
 A CENTURY OF HUMANOIDS: TWELVE TRUE ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/tLbLFJuSgaY</h5>                                                             <h5>February 16, 2024</h5>
+
+<h5>LINK: https://youtu.be/tLbLFJuSgaY</h5> <h5>February 16, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>29,143 views  Feb 16, 2024</h6>
+
 ETs have been visiting humans for a very long time. Cases reach back hundreds of years and come from all over the world. Here is a collection of twelve accounts of humanoids of all different kinds from 1922 to 2023. Most of the cases involve multiple witnesses. Several involve physical evidence. The truth can no longer be denied. Earth appears to be just one countless inhabited planets in our universe. The evidence speaks for itself.
 
 TWENTY ALIENS. In the summer of 1922, Irma Hinz and her boyfriend William O’Brien were walking home from a movie in Detroit, MI when they saw a disc-shaped object descend to treetop level and hover over a nearby tree. Staring down at them through a series of portholes were at least twenty bald figures with close-set eyes.
@@ -3881,9 +3955,11 @@ These cases are just a tiny sample of the huge number of humanoid cases on recor
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/K5kcAQQYrlU" target="_blank" rel="noopener noreferrer">EPISODE #202. 
 EXTRATERRESTRIAL MEETINGS: FIVE TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/K5kcAQQYrlU</h5>                                                             <h5>February 9, 2024</h5>
+
+<h5>LINK: https://youtu.be/K5kcAQQYrlU</h5> <h5>February 9, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>33,287 views  Feb 9, 2024</h6>
+
 Face-to-face meetings with extraterrestrials onboard a UFO! There’s no experience quite like it. It’s the ultimate UFO encounter. An onboard experience takes a person right into the very heart of the UFO phenomenon, answering many of the questions surrounding this subject. And there are so many cases! This video presents five strange and fascinating accounts of people who were taken onboard an ET craft and met extraterrestrials face-to-face. Want to know the ET agenda on our planet? The answers are here!
 
 LORD MOUNTBATTEN’S BRICKLAYER. On Feb 23, 1956, Frederick S Briggs, a former Army officer, was riding his bike on the estate of Lord Mountbatten of Burma in Romsey, England when he saw a flying saucer hovering overhead. He found himself unable to move as a platform holding a human-looking figure descended from the bottom of the craft. Upon reaching the ground, the ET apparently saw Frederick, and the platform retracted back into the craft, which flew off. But the next day, the ET was back. And this time, Frederick had a face-to-face meeting, and was taken onboard the craft. Frederick says the craft took him on a trip around the world before returning him to the Mountbatten’s estate. It was an encounter he would keep secret for a long time.
@@ -3900,9 +3976,11 @@ These five amazing onboard UFO encounters reveal the many ET agendas, such as st
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/srKIwmkxGZ0" target="_blank" rel="noopener noreferrer">EPISODE #201. 
 IN THE PRESENCE OF EXTRATERRESTRIALS: TEN TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/srKIwmkxGZ0</h5>                                                             <h5>February 2, 2024</h5>
+
+<h5>LINK: https://youtu.be/srKIwmkxGZ0</h5> <h5>February 2, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>34,821 views  Feb 2, 2024</h6>
+
 In the presence of extraterrestrials! There is no experience quite like it. Seeing a UFO is interesting, but having a face-to-face interaction with an ET brings things to a whole new level. And it happens more often than you might think. This video presents ten extensive encounters in which people have been in the presence of ETs. These cases come from all over the world, involve a wide variety of witnesses and span six decades. Many have multiple witnesses and physical evidence.
 
 A UFO LIKE A SILVER BULLET. One day in Aug 1956, a young boy, “CS,” played football with his friends in Badajoz, Spain. Suddenly a loud roar filled the sky, and looking up, they saw a silver, bullet-shaped object zoom towards them at fantastic acceleration, slow down, and then stop. And inside they saw two figures. About 30 people ran forward, gesturing for the UFO to land. The ETs waved back, but then flew away.
@@ -3929,9 +4007,11 @@ These ten fascinating cases show that there are many types of ETs visiting our p
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/m4hESDDIm5o" target="_blank" rel="noopener noreferrer">EPISODE #200. 
 CLOSE ENCOUNTERS OF THE FOURTH KIND: FIVE TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/m4hESDDIm5o</h5>                                                             <h5>January 26, 2024</h5>
+
+<h5>LINK: https://youtu.be/m4hESDDIm5o</h5> <h5>January 26, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>46,934 views  Jan 26, 2024</h6>
+
 It represents the heart of the UFO phenomenon and is the most extensive and interesting of all encounters: close encounters of the fourth kind, cases of people who have been taken onboard a craft. Experiencers like these are far more common than most people realize. They occur all over the world, and can happen to anyone, anywhere, anytime. Cases like these contain the most information about the many different types of extraterrestrials visiting our planet, and answer the many questions surrounding this subject. This video presents five little-known cases of close encounters of the fourth kind, each of which provides a tantalizing glimpse into the high strangeness of UFO contact.
 
 “I THOUGHT I WAS DEAD.” On the night of May 15, 1951, “John,” an army officer was walking to his home north of Salzburg, Austria when a strange man wearing a glass helmet approached him. John found himself paralyzed as the man strapped an odd device to John’s chest and floated him into a craft landed nearby. Suddenly, the craft zoomed upwards. John was shocked to watch the Earth recede into the distance. Moments later, a beautiful landscape appeared before him, filled with lush red fields, blue canals, and tall spires. The craft landed at a saucer-port, the being exited, and John saw many other craft around him, some with other humans inside. Moments later, the ET returned. They took off and John was returned to Earth. For decades he told no one. But growing older, he finally decided it was time to talk.
@@ -3948,9 +4028,11 @@ These five close encounters of the fourth kind provide a small cross-section of 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/kamv9uX0qAI" target="_blank" rel="noopener noreferrer">EPISODE #199. 
 WEIRD WATER UFO ENCOUNTERS: TWELVE TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/kamv9uX0qAI</h5>                                                             <h5>January 19, 2024</h5>
+
+<h5>LINK: https://youtu.be/kamv9uX0qAI</h5> <h5>January 19, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>21,006 views  Jan 19, 2024</h6>
+
 It’s a pattern that researchers have recognized long ago: UFOs seem to be attracted to water. Lakes, rivers, oceans…there are many cases where UFOs are seen diving into the water, coming out of it, floating on the surface, and affecting the water in unusual ways. Cases reach back decades and come from all over the world. Some accounts involve UFOs sucking up the water itself! This video presents twelve weird water UFO cases, each of which provides profound insights into UFOs and their strange connection to water.
 
 USO WITH HUMANOIDS. One day in Aug 1914 as William Kiehl and other witnesses saw an odd object floating in Georgian Bay at Lake Ontario, Canada. Shaped like a bell-jar, he saw two humanoids holding a hose, sucking water from the bay. On top of the object were 3 other figures. The UFO departed so quickly that one of the little men clung to the outside of the craft.
@@ -3981,9 +4063,11 @@ These twelve cases only skim the surface of the huge number of cases involving U
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/e8R1j4N_760" target="_blank" rel="noopener noreferrer">EPISODE #198. 
 EXTRAORDINARY HUMANOIDS: TEN TRUE ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/e8R1j4N_760</h5>                                                             <h5>January 12, 2024</h5>
+
+<h5>LINK: https://youtu.be/e8R1j4N_760</h5> <h5>January 12, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>36,205 views  Jan 12, 2024</h6>
+
 Encounters with extraordinary humanoids have occurred across the planet for a long time. They involve all different types of extraterrestrials who interact with a variety of witnesses in strange and unique ways. These cases are among the most fascinating of all UFO encounters. They are not simple sightings, nor are they cases that rely on hypnotic regression. The evidence to support these encounters is more extensive than many people realize with landing traces, electromagnetic disturbances, animal reactions, medical effects and more. But most important, they provide a fascinating glimpse into what lies beyond planet Earth.
 
 SMACKED BY AN ALIEN. On Jul 2, 1953, 14-year-old Maximo Munoz Hernaiz was guarding the cows on his family ranch in Villares Del Saz, Spain, when a UFO landed behind him. Three short men came out and spoke to him in a strange language. Then one of the ETs reached out and smacked him on the cheek. The ETs returned to the craft, which took off. Later, strange landing traces were found.
@@ -4010,9 +4094,11 @@ These ten cases have much to teach us about extraterrestrial contact. They show 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_eNykzlYabw" target="_blank" rel="noopener noreferrer">EPISODE #197. 
 UNDENIABLE: FIVE TRUE UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/_eNykzlYabw</h5>                                                             <h5>January 5, 2024</h5>
+
+<h5>LINK: https://youtu.be/_eNykzlYabw</h5> <h5>January 5, 2024</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>24,016 views  Jan 5, 2024  #11677</h6>
+
 While there are those who are skeptical that UFOs exist, the truth is that the evidence for extraterrestrials is undeniable. Landing traces, electromagnetic disturbances, animal reactions, physiological effects…the list goes on. And when cases like these have multiple eyewitness testimonies, the evidence cannot be ignored or explained away. This video presents five exceptional cases with undeniable evidence.
 
 UFO LANDING AT SOUTH HILL, VIRGINIA. On the evening of April 21, 1967, Clifton Crowder was driving along Ferrell Road to his home in South Hill, Virginia when he noticed a shiny silver craft landed on the street in front of him. As he flicked on his high-beams, the craft belched a stream of flames and took off like a bullet straight up. The craft was gone, but left behind was a huge burn-mark on the road, and four evenly spaced holes gouged into the macadam surface. He went straight to the police and reported the incident. Unknown to him, dozens of people in the area were reporting UFOs flying around at treetop level, including police officers and firemen. UFO researchers converged on the case and declared it genuine. Project Blue Book was contacted and they were unable to identify the craft and labeled it unexplained, Case#11677.
@@ -4029,9 +4115,11 @@ These five cases provide compelling, if not conclusive, evidence of UFO reality.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/uCPDKe240OM" target="_blank" rel="noopener noreferrer">EPISODE #196. 
 EXTRATERRESTRIAL RENDEZVOUS: FIVE AMAZING ONBOARD UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/uCPDKe240OM</h5>                                                             <h5>December 29, 2023</h5>
+
+<h5>LINK: https://youtu.be/uCPDKe240OM</h5> <h5>December 29, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>41,843 views  Dec 29, 2023</h6>
+
 Onboard a UFO! It’s the closest of all UFO encounters. It’s the most extensive, and perhaps the most interesting. It also contains the most information. In cases like these, the witness is not just seeing a UFO, they are inside it, surrounded entirely by the UFO phenomenon. Onboard UFO encounters allow little room for misperception. This video present five amazing onboard UFO experiences. In each of these cases, the witnesses were not only taken inside a UFO, they had long interactive conversations with the ETs themselves. These five cases come from all over the world, span four decades and involve a wide variety of humanoids and compelling physical evidence.
 
 A MESSAGE TO HUMANITY. On the night of Apr 10, 1962, Mario Zuccala was walking to his home in San Casciano, Italy when he felt a blast of air behind him. Turning around he saw a 32-foot-wide flying saucer land nearby. Out stepped two short humanoid figures covered from head to toe in shiny metallic suits. They grabbed Mario and pulled him onboard the craft. Inside, he saw nothing but bright light. The ETs told him that they have a message for all humanity, which they will give to him later. Mario later had further encounters, but never revealed what the ETs told him.
@@ -4048,9 +4136,11 @@ These five cases are just a tiny fraction of the actual number of onboard encoun
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/DWlSoYELCpE" target="_blank" rel="noopener noreferrer">EPISODE #195. 
 REALLY STRANGE UFO ENCOUNTERS: TWELVE TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/DWlSoYELCpE</h5>                                                             <h5>December 22, 2023</h5>
+
+<h5>LINK: https://youtu.be/DWlSoYELCpE</h5> <h5>December 22, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>34,099 views  Dec 22, 2023</h6>
+
 Each UFO case, whether a simple sighting or an onboard UFO encounter, adds to our knowledge of the UFO phenomenon and provides another piece to solving the UFO mystery. One of the most fascinating aspects of UFOs is that they behave in weird ways. This video presents 12 very strange encounters that show the high strangeness of ET contact. The cases come from all over the world and provide strong evidence of UFO reality.
 
 “IT SEEMED TO KNOW EXACTLY WHAT IT WANTED TO DO.” Aug 20, 1955 was a windy day as two men stood on the dock of Kenora Bay in Ontario, Canada. Suddenly, a saucer zoomed over the water, seeming to study the men. But then it moved to the nearby hospital, and seemed to inspect that, before suddenly darting away.
@@ -4081,9 +4171,11 @@ These twelve cases show how any encounter can provide profound insights into UFO
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/P2rRaXxHbbk" target="_blank" rel="noopener noreferrer">EPISODE #194. 
 AMAZING ALIEN ENCOUNTERS: TEN TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/P2rRaXxHbbk</h5>                                                             <h5>December 15, 2023</h5>
+
+<h5>LINK: https://youtu.be/P2rRaXxHbbk</h5> <h5>December 15, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>19,556 views  Dec 15, 2023</h6>
+
 It’s one of the most mindboggling experiences a person can have: a face-to-face encounter with an extraterrestrial. And yet thousands (if not millions) of people have had this experience. And yet, it is still not fully accepted by mainstream society. Thankfully times are changing as governments across the world begin to acknowledge the ET presence. And yet, they are still discussing only UFO sightings and ignoring the cases of direct contact. This video presents ten amazing cases of landings and humanoid encounters of all kinds. Cases from across the planet, spanning many decades, involving multiple witnesses and a variety of evidence.
 
 A PEACE THAT PASSES ALL UNDERSTANDING. One day in Aug 1944, Mrs. E.M. Church had a day off from her nursing duties at Cashmere Sanatorium in Christchurch, New Zealand. She was hiking in the area when she came upon a landed craft and three odd-looking humanoids. She hoped to speak with them and get a ride! But as she approached, they fled into their craft. The aftereffects were as amazing as the encounter itself.
@@ -4110,9 +4202,11 @@ These ten cases provide a tantalizing and intriguing glimpse into the subject of
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_O9MFxki5jw" target="_blank" rel="noopener noreferrer">EPISODE #193. 
 THE HUMANOIDS: TWELVE TRUE CASES OF FACE-TO-FACE CONTACT WITH HUMANOIDS</a>.</h3>
-<h5>LINK: https://youtu.be/_O9MFxki5jw</h5>                                                             <h5>December 8, 2023</h5>
+
+<h5>LINK: https://youtu.be/_O9MFxki5jw</h5> <h5>December 8, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>24,477 views  Dec 8, 2023</h6>
+
 Each UFO encounter has something new to teach us about the UFO phenomenon, and this is especially true with cases of face-to-face contact with humanoids. The twelve cases presented here span many decades and come from across the planet, and yet they show both remarkable commonalities and intriguing unique aspects. So many independent witnesses, so many different kinds of extraterrestrials, so much evidence! And most importantly, so many cases! The truth can no longer be denied!
 
 THE ETS ON THE PLATFORM. On Jul 25, 1938, during a civil war in Guadalajara, Spain, two military officers observed a disc-shaped object descend nearby. To their shock, a platform with two humanoids extended from the craft. Not knowing about UFOs, the men first thought it was a secret Russian military craft. Before long, they would change their minds.
@@ -4143,9 +4237,11 @@ These 12 humanoid encounters show how bizarre UFO encounters can be, and that we
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/sjzF2NmWmvA" target="_blank" rel="noopener noreferrer">EPISODE #192. 
 THE EXPERIENCERS: FIVE CASES OF ONBOARD UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/sjzF2NmWmvA</h5>                                                             <h5>December 1, 2023</h5>
+
+<h5>LINK: https://youtu.be/sjzF2NmWmvA</h5> <h5>December 1, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>25,685 views  Dec 1, 2023</h6>
+
 Onboard UFO Encounters! These cases are the heart of the UFO phenomenon. Almost everything we know about ET contact comes from the people who have been inside UFOs. These are the most extensive and interesting of all UFO encounters. This video presents five fascinating firsthand cases involving people from across the world who have been onboard a UFO and interacted with aliens.
 
 MUST HAVE WATER! One evening in the Spring of 1951, an anonymous engineer, HM, drove near the Drakenstein Mountain in Paarl, South Africa when a man flagged his car down. “Have you any water?” he asked. HM said no, but agreed to drive the man to a nearby stream and get some water. The man then asked HM to drive back up the road. To HM’s shock, they came upon a landed flying saucer. The man invited HM inside the craft, where he saw four other men. The man said that they needed water to cure an injured companion. They agreed to answer any questions HM might have. HM asked how the ETs power their craft. He asked where they came from, and they pointed to the stars, but refused to be more specific. HM was ushered off the craft. Returning the next day, he was amazed to find weird landing traces.
@@ -4162,9 +4258,11 @@ These five cases provide a vivid portrayal of what it’s like to be taken onboa
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/JnzT1UraX10" target="_blank" rel="noopener noreferrer">EPISODE #191. 
 ENCOUNTERS WITH UFO OCCUPANTS: TEN TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/JnzT1UraX10</h5>                                                             <h5>November 24, 2023</h5>
+
+<h5>LINK: https://youtu.be/JnzT1UraX10</h5> <h5>November 24, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>47,401 views  Nov 24, 2023</h6>
+
 There's nothing quite like a face-to-face encounter with an extraterrestrial. UFO sightings are interesting, but  these UFOs have occupants inside them, humanoids of all different kinds. This video presents ten extraordinary little-known cases of people who have had close encounters with UFO occupants. These cases span many decades and come from all over the world. They provide compelling evidence of UFO/ET reality. They show what it’s like to have contact with ETs, and also answer many of the questions surrounding the UFO phenomenon.
 
 THE SAUCER IN THE CELERY FIELD. In Oct of 1928, an 80-year-old lady was checking her celery field of her farm in northern WI and came upon a landed craft. To her shock, she saw several small figures exit the craft and run into the woods. Intrigued, she approached the craft and ventured inside. She was amazed to see little seats, a bunch of food-wafers, but very little equipment. Then officials came and took the craft away.
@@ -4191,9 +4289,11 @@ These ten cases provide a cross-section of cases involving direct, firsthand, fa
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/0jzF2UkmLTc" target="_blank" rel="noopener noreferrer">EPISODE #190. 
 15 UFO CASES THAT MAKE YOU GO…HMMM…</a></h3>
-<h5>LINK: https://youtu.be/0jzF2UkmLTc</h5>                                                             <h5>November 17, 2023</h5>
+
+<h5>LINK: https://youtu.be/0jzF2UkmLTc</h5> <h5>November 17, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>22,324 views  Nov 17, 2023</h6>
+
 The UFO phenomenon is one of the most persistent and perplexing mysteries of modern times. While it has become increasingly evident that we are dealing with extraterrestrials, there are still many questions surrounding UFO activity on our planet. Cases of face-to-face contact with ETs remain the heart of the UFO phenomenon, but UFO sightings are far more numerous. This video presents 15 unusual and provocative sightings from across the planet, each of which raises important questions and provides profound insights.
 
 THE MINIATURE UFO. One day in 1932 in Nambour, Australia, a young boy was playing with his friends when he came upon a landed craft only one foot wide. Standing next to it, he felt strange sensations in his body. He retreated from the object, which promptly took off. That night, blisters formed on his hands.
@@ -4230,9 +4330,11 @@ These 15 cases show how even a simple sighting can raise more questions than the
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ms8oNRBfS_M" target="_blank" rel="noopener noreferrer">EPISODE #189. 
 LANDINGS, HUMANOIDS AND ONBOARD ENCOUNTERS: TEN TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/ms8oNRBfS_M</h5>                                                             <h5>November 10, 2023</h5>
+
+<h5>LINK: https://youtu.be/ms8oNRBfS_M</h5> <h5>November 10, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>27,232 views  Nov 10, 2023</h6>
+
 When UFOs land and people have face-to-face encounters with humanoids or are taken onboard a craft, we find ourselves at the very heart of the UFO phenomenon. While sightings are undeniably fascinating, the answers to the many questions surrounding this subject lie with direct contact. These kinds of cases contain the most data and show us exactly what it’s like to have close interaction with extraterrestrials. This video presents ten cases coming from across the globe, spanning several decades, and involving many different types of humanoids. These cases provide the kind of evidence that cannot be ignored or explained away, including landing traces, electromagnetic disturbances, medical effects, animal reactions and more.
 
 ITALY’S FIRST HUMANOID? On Aug 14, 1947, Luigi Rapuzzi Johannis was hiking in the mountains near Raveo, Italy when he came upon a landed saucer-shaped craft. Standing next to it were two of the strangest figures he had ever seen. Attempting to communicate, he found himself being struck by a beam of light and unable to move. The ETs approached him, then retreated into their craft and departed.
@@ -4259,9 +4361,11 @@ These ten cases provide only a brief glimpse into the many thousands of ET conta
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/PJsFy2skRFo" target="_blank" rel="noopener noreferrer">EPISODE #188. 
 INCREDIBLY ODD: TEN VERY STRANGE ENCOUNTERS WITH UFOS AND HUMANOIDS</a>.</h3>
-<h5>LINK: https://youtu.be/PJsFy2skRFo</h5>                                                             <h5>November 3, 2023</h5>
+
+<h5>LINK: https://youtu.be/PJsFy2skRFo</h5> <h5>November 3, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>34,914 views  Nov 3, 2023</h6>
+
 UFO Encounters can be very weird, but some are incredibly odd. Some contain extremely high levels of strangeness with unique or rarely seen features. These are the kinds of cases that provide important insights into the nature of the UFO phenomenon. This video presents ten exceptionally odd cases, reaching back to the 1930s up to the present day. They come from all over the world. And they provide undeniable evidence for the reality of the extraterrestrial visitations.
 
 SOMETHING NOT OF THIS EARTH. In 1933, a young man was driving late at night near Cherryville, PA and saw a strange purple light out in a field. Approaching, he was amazed to come upon some type of weird craft. And the door was open. Peering inside, he saw bizarre, unrecognizable equipment. He had never heard of UFOs, and it wasn’t until years later that he realized that the object was probably an alien craft.
@@ -4289,9 +4393,11 @@ These ten cases provide a fascinating glimpse into the high strangeness that see
 <h3><a href="https://youtu.be/p6vM5DeAhXU" target="_blank" rel="noopener noreferrer">EPISODE #187. 
 EXCEPTIONAL EXTRATERRESTRIAL ENCOUNTERS: 
 TEN TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/p6vM5DeAhXU</h5>                                                             <h5>October 27, 2023</h5>
+
+<h5>LINK: https://youtu.be/p6vM5DeAhXU</h5> <h5>October 27, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>33,262 views  Oct 27, 2023</h6>
+
 Almost all UFO encounters are interesting, but some are exceptionally interesting. This is especially true with cases involving landed UFOs and extensive interactions with humanoids. This video presents ten exceptionally strange cases with bizarre or unique aspects. These ten cases (coming from across the world) contain powerful evidence for the reality of the alien presence on our planet, including landing traces, medical effects, electromagnetic disturbances, animal reactions and more.
 
 “IT’S NOT HUMAN!” Around 8:00 pm on Aug 23, 1967, two 15-year-olds (Erik & Inga) were walking near their home in Kolmarden, Sweden, and saw a glowing red craft in the sky, then land near them. Feeling like they were being watched, they fled. Moments later, they came face-to-face with a weird humanoid. It held an odd device in its hand and pointed it at them. The children ran in fear. Afterwards, landing traces were found.
@@ -4319,9 +4425,11 @@ When a person has an extensive face-to-face encounter with an extraterrestrial, 
 <h3><a href="https://youtu.be/svMFTEgkID0" target="_blank" rel="noopener noreferrer">EPISODE #186. 
 ALIENS, ALIENS, ALIENS! 100 YEARS OF HUMANOIDS: 
 THIRTEEN TRUE UFO CASES</a>.</h3>
-<h5>LINK: https://youtu.be/svMFTEgkID0</h5>                                                             <h5>October 20, 2023</h5>
+
+<h5>LINK: https://youtu.be/svMFTEgkID0</h5> <h5>October 20, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>23,786 views  Oct 20, 2023</h6>
+
 Aliens, aliens, aliens! People have been encountering humanoids for a very long time. In fact, there are strong indications that UFOs and extraterrestrials have been visiting Earth since recorded history. Only in the past century, however, has this subject been recognized, documented, and studied. This video presents 13 firsthand cases of face-to-face encounters with extraterrestrials. These cases span more than 100 years, starting in the 1920s, all the way up through the 2020s. They come from all over the world. They feature a wide variety of humanoids. And many contain multiple witnesses and compelling physical evidence, including landing traces, animal reactions, electromagnetic disturbances, physiological effects and more.
 
 UNDER THE PROTECTION OF ALIENS. In Aug 1923, Jacques B Bley (age 12) suffered from obesity, until he was visited by ETs in his home in Barcelona, Spain. Feeding him a mysterious substance, they healed Jacques and changed the course of his life forever.
@@ -4354,10 +4462,13 @@ These thirteen cases provide a mere glimpse into the huge number of extraterrest
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/WYjSO_yX5VE" target="_blank" rel="noopener noreferrer">EPISODE #185. 
 MORE STRANGE HUMANOIDS: 15 TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/WYjSO_yX5VE</h5>                                                             <h5>October 13, 2023</h5>
+
+<h5>LINK: https://youtu.be/WYjSO_yX5VE</h5> <h5>October 13, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>32,344 views  Oct 13, 2023</h6>
-We are not alone in the universe! In fact, the evidence shows that Earth is being visited by a wide variety of humanoids. There are too many cases to ignore. Here are fifteen accounts where people have had face-to-face encounters with extraterrestrial humanoids. From the 1930s to the 2010s, these cases come from all over the world. They involve multiple eyewitnesses and are supported by compelling evidence such as photographs, landing traces, electromagnetic disturbances, animal reactions and physiological effects. These cases have volumes to teach us about the UFO phenomenon and the ET agenda on our planet.
+
+We are not alone in the universe! In fact, the evidence shows that Earth is being visited by a wide variety of humanoids. There are too many cases to ignore. Here are fifteen accounts where people have had face-to-face encounters with extraterrestrial humanoids. From the 1930s to the 2010s, these cases come from all over the world. They involve multiple eyewitnesses and are supported by compelling evidence such as photographs, landing traces, electromagnetic disturbances, animal reactions and physiological effects. These cases have volumes to teach us about the UFO phenomenon and the ET agenda 
+on our planet.
  
 THE ALASKA ALIEN PHOTOGRAPH. In the early 1930s, an anonymous man was hiking through the forest in Alaska and saw a strange humanoid figure. As the figure fled into the woods, the man chased it and managed to snap a very intriguing photograph.
 
@@ -4393,9 +4504,11 @@ Skeptics can no longer claim that there is no evidence. UFOs are real, and extra
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/esqDGlMC7aM" target="_blank" rel="noopener noreferrer">EPISODE #184. 
 TEN TRULY STRANGE UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/esqDGlMC7aM</h5>                                                             <h5>October 6, 2023</h5>
+
+<h5>LINK: https://youtu.be/esqDGlMC7aM</h5> <h5>October 6, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>22,613 views  Oct 6, 2023</h6>
+
 So many UFO encounters! Each case adds to our knowledge of UFO activity and the ET presence on our planet. This video presents ten unique UFO stories from all over the world. Sightings, landings, face-to-face encounters with  humanoids, and even one account of a little-known UFO crash. These cases provide compelling evidence for the reality of the phenomenon. How many documented cases will it take before humanity accepts the fact that we are not alone?
 
 BRITAIN’S EARLIEST HUMANOID? In the summer of 1901, Frank (age 10) was walking near his home in Bournbrook in West Midlands, England when he saw what looked like a metal hut sitting in a field. Out stepped two short humanoids wearing gray jumpsuits and helmets with antennae. One of the figures gestured for Frank to keep back. With no idea of UFOs or ETs, it would be years before Frank understood what happened.
@@ -4422,9 +4535,11 @@ These ten truly strange UFO encounters are just a tiny sample of the huge number
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/eb7K6C8Y1i8" target="_blank" rel="noopener noreferrer">EPISODE #183. 
 IF YOU CALL THEM, THEY WILL COME: THREE TRUE CE5 CASES WITH HUMANOIDS</a>.</h3>
-<h5>LINK: https://youtu.be/eb7K6C8Y1i8</h5>                                                             <h5>September 29, 2023</h5>
+
+<h5>LINK: https://youtu.be/eb7K6C8Y1i8</h5> <h5>September 29, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>17,260 views  Sep 29, 2023</h6>
+
 There are many different kinds of UFO encounters. Sightings, landings, face-to-face encounters, onboard experiences, and more. Cases can be broken down into categories such as close encounters of the first, second, third and fourth kind. Then there are close encounters of the fifth kind, or human-initiated encounters. This unique category can contain all the other types of encounters, but is differentiated from them because the encounters themselves are the result of humans reaching out to ETs. Cases like these are important because they show that humans can develop an interactive relationship with the UFO phenomenon and the ETs. This video presents three extensive true cases of CE-5 contact that go beyond simple sightings and resulted in actual face-to-face contact with extraterrestrials.
 
 SOMETHING NOT OF THIS EARTH. In Jun of 1996, Jeneva Sterling drove to a remote location in the mountains of Santa Clarita, CA to seek answers about the many issues in her life. Depressed, she screamed out to the skies, “Why is life so crappy?! Why am I here?!” At that moment, a brilliant light appeared behind and moved towards her. Soon it was close enough to see it wasn’t any conventional craft. In fact, it was almost totally silent. Then it hovered directly overhead and beamed her with light. Thinking she was about to be abducted, Jeneva collapsed to the ground and trembled with fear. The beam retracted, but the strange light stayed overhead, making a low buzzing noise. Jeneva had never been so scared in her life, but soon her fear began to pass, and the object moved closer. Jeneva began to speak to it. Before long, her fear left and she realized that the UFO was not going to hurt her. In fact, the whole experience became deeply moving and spiritually transformative. The object remained there all night long, communing with Jeneva and totally lifting her out of her depression. When sunrise came, the UFO zoomed off. Jeneva, however, was forever changed. She became interested in UFOs and remote viewing, and began having vivid dreams of being onboard a UFO. And then, one day, the UFO returned.
@@ -4437,9 +4552,11 @@ These three cases all qualify as close encounters of the 5th kind. In each case,
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_1EFgknj5Uk" target="_blank" rel="noopener noreferrer">EPISODE #182. 
 TAKEN ONBOARD A UFO: FIVE TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/_1EFgknj5Uk</h5>                                                             <h5>September 22, 2023</h5>
+
+<h5>LINK: https://youtu.be/_1EFgknj5Uk</h5> <h5>September 22, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>22,290 views  Sep 22, 2023</h6>
+
 It is perhaps the ultimate UFO encounter: being taken onboard a UFO. Unlike sightings, landings and face-to-face encounters, witnesses find themselves in a totally alien environment. The floor, the walls, the ceiling – everything around them is extraterrestrial, including the beings themselves. An onboard experience is the most extensive of all UFO encounters. They contain more data than any other encounter (except for perhaps a UFO crash/retrieval,) and often involve significant interaction and communication between the experiencer and the ETs themselves. These are the cases that have volumes to teach us about extraterrestrial contact. Here are five cases of onboard experiences. These cases provide significant evidence pointing towards the reality of UFOs and the ETs.
 
 THE ONBOARD UFO EXPERIENCE OF JOYCE UPDIKE. In Aug 1967, Joyce Updike was cleaning her home in Platte, NB, late at night when the room filled with light. What seemed like moments later, she woke up in bed, only to find that hours had passed. Afterward, her husband found a circle of burned grass outside. Joyce had sore eyes, and some of her hair began to fall out. She became interested in UFOs, ancient civilizations, past-lives, and more. She began to have telepathy and poltergeist activity. Years later, she heard about UFOs and missing time, and realized that this is what she had experienced. Going under hypnosis, she recalled a long onboard encounter with human-like ETs who examined her and gave her messages about the future of Earth.
@@ -4456,9 +4573,11 @@ These five cases reveal many of the strange procedures that occur when people ar
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/5h_y7EHVXvw" target="_blank" rel="noopener noreferrer">EPISODE #181. 
 I SAW AN ALIEN: TEN TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/5h_y7EHVXvw</h5>                                                             <h5>September 15, 2023</h5>
+
+<h5>LINK: https://youtu.be/5h_y7EHVXvw</h5> <h5>September 15, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>15,711 views  Sep 15, 2023</h6>
+
 What is it like to see an alien, to have a face-to-face encounter with an actual extraterrestrial? An experience like this often affects the witnesses on multiple levels, challenging them mentally, physically, emotionally, and spiritually. It is a superlative experience that leaves them changed forever. Here are ten cases coming from across the world, spanning five decades, involving close-up encounters with strange humanoids. These cases provide profound insights into the nature of ET contact. They also contain compelling evidence of UFO reality.
 
 THE QUIZZICAL ALIEN. May 1957, Frances Sticler was working on her farm in Milford, PA when she heard a loud whirring sound and sees a bowl-shaped craft approach and hover a mere 15 feet over her barn. The craft tilted towards her and to her amazement, she saw a humanoid looking down at her with a strange expression on his face.
@@ -4485,9 +4604,11 @@ These ten cases are only a small sampling of the huge number of humanoid encount
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/l0J7zroZ6Rk" target="_blank" rel="noopener noreferrer">EPISODE #180. 
 THE FRENCH UFO WAVE OF 1954: THE HUMANOIDS</a>.</h3>
-<h5>LINK: https://youtu.be/l0J7zroZ6Rk</h5>                                                             <h5>September 8, 2023</h5>
+
+<h5>LINK: https://youtu.be/l0J7zroZ6Rk</h5> <h5>September 8, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>22,027 views  Sep 8, 2023</h6>
+
 Nothing like it had ever happened before. And it would never happen again. The French UFO wave of 1954 was unprecedented. Starting in early September of 1954, hundreds, if not thousands of UFO encounters swept across the country of France with incredible fury. For the next two months, encounters occurred daily, often multiple accounts each day. These were not just sightings, but landings and face-to-face encounters with humanoids of all kinds. Witnesses included people from all walks of life: farmers, teachers, housewives, business-owners, government officials, children, even entire families. As the activity mounted, so did the fear. People were afraid to go outside at night. Others began to arm themselves for protection, sometimes attacking neighbors or passersby thinking they were “Martians!” Skeptics and debunkers became overwhelmed, unable to explain away the experiences. The press went wild, unable to keep up with the huge onslaught of cases. Day after day, people reported UFOs flying overhead, landing next to their homes, blocking the roads. The sightings are incredible enough. But most interesting are the cases involving humanoids.
 
 This video presents a day-by-day accounting of more than fifty humanoid encounters in the months of September and October 1954 alone. ETs coming out of their craft, collecting plants and animals, approaching terrified citizens, and in some cases communicating with them in various ways. The cases provide nearly the entire gamut of physical evidence with many producing landing traces, animal reactions, weird medical effects, electromagnetic disturbances and more.
@@ -4498,9 +4619,11 @@ An examination and analysis of these cases reveals some remarkable insights. One
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/hfQFlNBJ4cA" target="_blank" rel="noopener noreferrer">EPISODE #179. 
 TEN INCREDIBLE HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/hfQFlNBJ4cA</h5>                                                             <h5>September 1, 2023</h5>
+
+<h5>LINK: https://youtu.be/hfQFlNBJ4cA</h5> <h5>September 1, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>23,047 views  Sep 1, 2023</h6>
+
 There’s nothing quite like a face-to-face encounter with a humanoid. These cases are the heart of the UFO phenomenon. They are the cases that teach us the most about extraterrestrial contact. They’re also the most interesting. This video presents ten cases that span five decades and come from all over the world. They present nearly the entire range of UFO evidence, including multiple eyewitness testimony, medical effects, animal reactions, electromagnetic interference, landing traces and more. They show how many different ET-types there are, and answer many of the questions surrounding the UFO phenomenon: who the ETs are, where do they come from, and why are they visiting our planet?
 
 “THEY WERE VERY GOOD-LOOKING.” One summer evening in 1946, Vida Goldsworthy and her sister were walking their dog in downtown Johannesburg, South Africa when they saw a huge craft hovering above a nearby hotel. To their amazement, two tall ETs came out and looked down at them. Vida was impressed by how beautiful they were. It was one of South Africa’s first recorded humanoid encounters.
@@ -4527,9 +4650,11 @@ These ten cases reveal the startling complexity of the UFO phenomenon and provid
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/CAV-B8iMiKA" target="_blank" rel="noopener noreferrer">EPISODE #178. 
 ELF OR ALIEN? TEN TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/CAV-B8iMiKA</h5>                                                             <h5>August 25, 2023</h5>
+
+<h5>LINK: https://youtu.be/CAV-B8iMiKA</h5> <h5>August 25, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>11,019 views  Aug 25, 2023</h6>
+
 One puzzling enigma of the UFO phenomenon is the huge variation of reported humanoids. Grays, Mantids, Tall Whites, Nordics, Blue Beings…the list is endless. Complicating this is the fact that cultures across the world report many supernatural entities. Fairies, elves, gnomes…little people of all kinds. Could some of these little people be aliens? Or vice-versa, could some of the aliens be little people? There doesn’t appear to be any easy answer. But the fact remains, there are many reports like this, and it's still going on today! This video presents ten cases of people who have encountered little people which might be either an elf or alien!
 
 AN ELF IN BRANTE, FINLAND. In 1885, a lady was picking berries in the forest near her home in when she saw a large circular object landed on a small hill. Standing nearby was an elf-like creature holding an axe. The woman fled the area. She returned later with some other people, but the object and the elf were gone.
@@ -4557,9 +4682,11 @@ These encounters with little people of all kinds challenge what we think we know
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/AOgZBQn8CVU" target="_blank" rel="noopener noreferrer">EPISODE #177. 
 UFOS &amp; WEIRD ANIMAL STORIES</a>.</h3>
-<h5>LINK: https://youtu.be/AOgZBQn8CVU</h5>                                                             <h5>August 18, 2023</h5>
+
+<h5>LINK: https://youtu.be/AOgZBQn8CVU</h5> <h5>August 18, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>7,469 views  Aug 18, 2023</h6>
+
 There are all kinds of UFO encounters: sightings, landings, onboard experiences and more. Then there are the cases involving animals. In fact, one of the categories of UFO evidence involves animal reactions, and there are many examples. Much rarer are cases where weird things happen to animals. This video presents eight cases in which weird things happen to animals during UFO encounter. These cases involve the entire range of UFO encounters and a wide variety of animals. These cases span six decades, involve many witnesses, and come from all over the world. And all of them are just a bit weird!
 
 THE FLOATING HORSE. On Oct 16, 1954, Guy Puyfourcat led his mare to his home in Cier-de-Riviere, France. His horse got spooked and glanced to the right. Guy saw three figures dart into the bushes. He then heard a shrieking sound as a small, gray, saucer-shaped craft rose 150 feet, then moved toward him and stopped briefly, at which point his horse levitated 9 feet into the air. The craft darted away, and his horse dropped, temporarily paralyzed. After 10 minutes, it got up, sweaty and trembling.
@@ -4582,17 +4709,22 @@ These cases reveal an alien agenda that includes a strong interest in animals of
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/U384EsT0Vkc" target="_blank" rel="noopener noreferrer">EPISODE #176. 
 THE LIGHT GATE WELCOMES EARL GRAY</a>.</h3>
-<h5>LINK: https://youtu.be/U384EsT0Vkc</h5>                                                             <h5>August 14, 2023</h5>
+
+<h5>LINK: https://youtu.be/U384EsT0Vkc</h5> <h5>August 14, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>2,756 views  Aug 14, 2023</h6>  
+
 <h6>The Light Gate Podcast with Preston Dennett & Dolly Safran</h6>
+
 Monday night live, “The Light Gate” welcomes, Earl Grey, (aka: Earl Grey Anderson.) He is a UFO experiencer, a MUFON field investigator and the MUFON State Director of Southern California, and a MUFON STAR team member. MUFON is the Mutual UFO Network, the world’s largest citizen UFO study group. He’s also a singer/songwriter and a guitarist, and a retired (but still licensed) Vocational Nurse. Earl has been researching the UFO phenomenon for many years, and has investigated nearly 1000 cases for MUFON, and is a sought-after presenter and speaker. He has been a guest on numerous podcasts, and radio shows, and television shows, including “Unidentified with Demi Lovato,” “I Want To Believe,” “MUFON and UFOs: The Proof is Out There,” and “Ancient Aliens.” He has spoken at Aliencon and MUFON Symposiums and hosted the experiencer workshop at the 2022 MUFON Symposium in Denver, Colorado. Earl is one of very few fulltime ufologists. Earl feels that the Experiencer Phenomenon is the beating heart of Ufology.  As Earl says, “If we wish to understand this phenomenon, we need to listen to those who have had face to face encounters.” He lives with his wife Lisa, and two cats, in Los Angeles, California. 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/EtM9o9K5A2s" target="_blank" rel="noopener noreferrer">EPISODE #175. 
 FIVE AMAZING HUMANOID ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/EtM9o9K5A2s</h5>                                                             <h5>August 11, 2023</h5>
+
+<h5>LINK: https://youtu.be/EtM9o9K5A2s</h5> <h5>August 11, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>16,216 views  Aug 11, 2023</h6>
+
 The UFO phenomenon is one of the most persistent and perplexing mysteries of modern times. But is it still fair to call it a mystery? Or do we know what UFOs are? Sightings can be misidentified. But when someone experiences a landed UFO and humanoids, the chances of misperception are negligible. These cases make it very clear that we are dealing with humanoids, people like us, but from beyond Earth. These are the cases which teach us the most about the UFO phenomenon, how it manifests, where ETs come from, why they are here, and their agenda on this planet. These five cases, spanning many decades, and coming from across the planet, answer many of the questions surrounding this subject, and show just how amazing and transformative UFO contact can be.
 
 TURKEY’S FIRST UFO CONTACTEE. In December of 1948, Behcet Ocal was only 15 years old when he became a UFO contactee. He was shepherding sheep near his home in Nigde, Turkey, and a glowing UFO dropped down and landed next to him. Out stepped three unusual humanoids, two males and a female, who told him not to be afraid, and that they would be contacting him in the future. One of them reached out and touched his shoulder, causing him to pass out. In the days and weeks that followed, Behcet was visited many times and given profound information about the nature of the universe. 
@@ -4609,9 +4741,11 @@ So many people all over the world having extensive encounters with ETs. The cove
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/n4l1CsD9tlw" target="_blank" rel="noopener noreferrer">EPISODE #174. 
 FIVE FANTASTIC FACE-TO-FACE ENCOUNTERS WITH EXTRATERRESTRIALS</a>.</h3>
-<h5>LINK: https://youtu.be/n4l1CsD9tlw</h5>                                                             <h5>August 4, 2023</h5>
+
+<h5>LINK: https://youtu.be/n4l1CsD9tlw</h5> <h5>August 4, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>21,942 views  Aug 4, 2023</h6>
+
 Among the most fascinating and extensive cases of UFO contact are landings and 
 face-to-face encounters with humanoids. These accounts have volumes to teach us 
 about the ETs, who they are, why they are here, and their agenda on our planet. 
@@ -4632,9 +4766,11 @@ These five cases show how UFO encounters can be both strikingly similar and incr
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/u0hjYl7hkzI" target="_blank" rel="noopener noreferrer">EPISODE #173. 
 SO WEIRD! TEN TRUE UFO CASES OF EXTREME HIGH STRANGENESS</a>.</h3>
-<h5>LINK: https://youtu.be/u0hjYl7hkzI</h5>                                                             <h5>July 28, 2023</h5>
+
+<h5>LINK: https://youtu.be/u0hjYl7hkzI</h5> <h5>July 28, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>39,082 views  Jul 28, 2023</h6>
+
 UFO encounters are known for high strangeness. Sightings, landings, face-to-face encounters, onboard experiences – all often contain bizarre aspects that defy explanation. The question is, why? Is this an intentional act on the part of the ETs to encourage us to seek new answers? Here are 10 weird UFO cases of extreme high strangeness that might help answer these questions.
 
 WEIRD EFFECTS FROM A UFO. In Nov 1953, Trygve Jansen and Gudrun Buflod drove along the Mossevei Road by Gjresjoen Lake in Norway. Suddenly a UFO dropped from the sky, swooped at their car and blocked their path on the road. After a short stand-off, the object flew away. The weirdness wasn't over. The UFO affected the watch Trygve wore, the car he was driving, and caused strange physiological changes in both witnesses.
@@ -4661,9 +4797,11 @@ These encounters all contain unique and bizarre elements of high strangeness and
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/GvH5ghq4KIc" target="_blank" rel="noopener noreferrer">EPISODE #172. 
 “A UFO LANDED RIGHT NEXT TO ME!”: TWELVE TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/GvH5ghq4KIc</h5>                                                             <h5>July 21, 2023</h5>
+
+<h5>LINK: https://youtu.be/GvH5ghq4KIc</h5> <h5>July 21, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>14,635 views  Jul 21, 2023</h6>
+
 One of the rarest kinds of UFO encounters is when a craft lands on the ground. But the fact is, there are thousands of cases on record like this. They reach back decades up to the present day. They come from all over the world. Many have multiple witnesses and a wide variety of physical evidence including animal reactions, landing traces, EM disturbances, medical effects and more. These cases make it clear that UFOs are technological advanced machines. Here are a dozen cases of this kind which show just how strange and fascinating the UFO phenomenon can be.
 
 APR 7, 1950, AMARILLO, TX: When David Lightfoot (age 12) and his cousin Charles Lightfoot (age 9) went fishing by their home, they saw an odd object zoom overhead, circle around, and then land next to them. It was only a few feet wide. David ran up to the craft and touched it as it took off. Afterward, his arms and face were red and covered with welts.
@@ -4694,9 +4832,11 @@ These cases show that UFOs are physical machines utilizing an advanced technolog
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/2qrGRXxkG7g" target="_blank" rel="noopener noreferrer">EPISODE #171. 
 I SAW AN ALIEN THROUGH THE WINDOW OF A UFO: 14 TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/2qrGRXxkG7g</h5>                                                             <h5>July 14, 2023</h5>
+
+<h5>LINK: https://youtu.be/2qrGRXxkG7g</h5> <h5>July 14, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>17,853 views  Jul 14, 2023</h6>
+
 This is a strange category, but there are many cases where people encounter a craft that is so close, they can see the humanoids inside of it! It’s a unique category that is more than just a UFO sighting, but not quite an onboard experience. Yet, they are equally fascinating and often involve very high strangeness. With multiple witnesses and lots of physical evidence, these cases represent an important contribution to our understanding of the UFO phenomenon.
 
 1952, SEAT PLEASANT, MD: It was a hot summer night, when Suzanne Knight heard a strange buzzing noise. Looking outside, she saw a glowing object descend. She thought it might be a crashing plane, but then the object stopped and through one of the windows, she saw a strange figure.
@@ -4731,10 +4871,13 @@ These 14 cases span six decades and come from across the planet. They provide so
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/WBDL80KsUW8" target="_blank" rel="noopener noreferrer">EPISODE #170. 
 THE LIGHT GATE WELCOMES DR. IRENA MCCAMMON SCOTT</a>.</h3>
-<h5>LINK: https://youtu.be/WBDL80KsUW8</h5>                                                             <h5>July 10, 2023</h5>
+
+<h5>LINK: https://youtu.be/WBDL80KsUW8</h5> <h5>July 10, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>2,392 views  Jul 10, 2023</h6>
+
 <h6>The Light Gate Podcast with Preston Dennett & Dolly Safran</h6>
+
 <h6>Tonight, The Light Gate welcomes scientist, pioneering UFO researcher, and author, Dr. Irena McCammon Scott PhD.</h6>
 
 Her resume is amazing. She has been in the UFO field for many years. She received her Ph.D. from the University of Missouri College of Veterinary Medicine, did post-doctoral research at Cornell University, and has had a professorship at St. Bonaventure University. Her MS was from the University of Nevada, her BS from Ohio State University in astronomy and biology, and she has done research and teaching at The Ohio State University College of Medicine, and the University of Nevada. The Defense Intelligence Agency (DIA) employed her in Ph.D. level (GS-11) research in satellite photography including in the Air Order of Battle section of its Photographic Interpretation Office, which involved aircraft identification with above top-secret Sensitive Compartmented Information (SCI), clearances. She was employed as a Physical Scientist/Cartographer in the DMA Aerospace Center (now the National Geospatial-Intelligence Agency) using satellite photography, and she worked at Battelle Memorial Institute. She has been sent for work-related purposes to Wright-Patterson Air Force Base and has been in the secured areas including the Blue Room (NASIC) building.
@@ -4748,15 +4891,18 @@ She has done numerous podcasts such as Coast to Coast and Shirley MacLaine’s I
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/G0arF6Tz05o" target="_blank" rel="noopener noreferrer">EPISODE #169. 
 WHEN UFOS LAND AND HUMANOIDS COME OUT</a>.</h3>
-<h5>LINK: https://youtu.be/G0arF6Tz05o</h5>                                                             <h5>Not available</h5>
+
+<h5>LINK: https://youtu.be/G0arF6Tz05o</h5> <h5>Not available</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>not available</h6>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/aPMjZJDOfis" target="_blank" rel="noopener noreferrer">EPISODE #168. 
 SAVED BY ALIENS! TWELVE BENEVOLENT ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/aPMjZJDOfis</h5>                                                             <h5>June 30, 2023</h5>
+
+<h5>LINK: https://youtu.be/aPMjZJDOfis</h5> <h5>June 30, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>134,854 views  Jun 30, 2023</h6>
+
 Saved by aliens! Helped, healed, rescued, there are many cases on record where ETs have intervened to help those in need. While a close encounter can be scary, it can also be a Godsend to those who are in trouble. This video presents a dozen cases in which UFOs and extraterrestrials showed up just in time. These include sightings, face-to-face encounters, landings and onboard UFO experiences. The cases reach back decades. They come from all over the world and have occurred to many all kinds of people. With all the fear and confusion surrounding ET contact, these cases are profoundly important and show that some ETs do have our best interests in mind.
 
 SEP 27, 1959: COOS BAY, OR. Leo Bartsch had been suffering from an undiagnosed problem with his arm, causing pain and numbness. Then, in the middle of the night, he found himself floating above his bed, and sensed that a UFO was over his house. Moments later, he was lowered to his bed, and realized to his delight, that his arm was healed!
@@ -4787,9 +4933,11 @@ These cases reveal a friendly side to the ETs that is often overlooked and ignor
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/0Tx7x7MseF4" target="_blank" rel="noopener noreferrer">EPISODE #167. 
 “I WAS INSIDE A UFO!” TEN STRANGE TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/0Tx7x7MseF4</h5>                                                             <h5>June 23, 2023</h5>
+
+<h5>LINK: https://youtu.be/0Tx7x7MseF4</h5> <h5>June 23, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>47,143 views  Jun 23, 2023</h6>
+
 There are many different types of UFO encounters: sightings, landings, face-to-face encounters, and of course, onboard UFO encounters. Of the many kinds of UFO encounters, cases of people going inside UFOs are among the most fascinating. These accounts contain the most information and tell us the most about extraterrestrials and their agenda on this planet.
 
 A wide variety of events occur inside UFOs. While there are patterns, each case seems to contain new and unique details. There are many different types of extraterrestrials. And there are thousands (or perhaps millions) of these cases occurring across the world. Yet still there are more questions than answers.
@@ -4812,9 +4960,11 @@ Practically everything we know about UFOs and extraterrestrials comes from the f
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/nSBo7DaMCf8" target="_blank" rel="noopener noreferrer">EPISODE #166. 
 BEAMED BY A UFO: TEN TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/nSBo7DaMCf8</h5>                                                             <h5>June 16, 2023</h5>
+
+<h5>LINK: https://youtu.be/nSBo7DaMCf8</h5> <h5>June 16, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>21,082 views  Jun 16, 2023</h6>
+
 UFOs are known for sending brilliant beams of light onto the ground, onto vehicles, and especially onto people. These beams come in many different colors. They can be wide or narrow. And they exhibit many properties that far exceed the capabilities of normal light beams. They heal wounds, cause burns, levitate, paralyze, pull people through solid objects, and much more. They make it very clear that our own understanding of the electromagnetic spectrum remains woefully incomplete.
 
 Why are UFOs sending down these beams of light? How do they produce these amazing effects? What is it like to be “beamed by a UFO?” This video presents ten firsthand accounts, spanning decades and coming from across the planet. They vividly recount people’s experiences of being struck by a UFO beam of light and answer many of the questions surrounding this unique aspect of UFO behavior.
@@ -4843,9 +4993,11 @@ These cases show how powerful these beams of light can be. They show that the ET
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/OgYr2rAfHFc" target="_blank" rel="noopener noreferrer">EPISODE #165. 
 WEIRD EFFECTS FROM UFOS</a>.</h3>
-<h5>LINK: https://youtu.be/OgYr2rAfHFc</h5>                                                             <h5>June 9, 2023</h5>
+
+<h5>LINK: https://youtu.be/OgYr2rAfHFc</h5> <h5>June 9, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>10,843 views  Jun 9, 2023</h6>
+
 UFOs can have many weird effects. They provoke strange alterations in plants. They cause bizarre electromagnetic disturbances in machines. They create a wide variety of landing traces. They make animals behave in weird and unusual ways. They affect people physically, emotionally, mentally and spiritually. When UFOs show up, almost anything can happen. This video presents a dozen cases spanning four decades and occurring to all kinds of people from all over the world.
  
 Apr 24, 1954: Buyere, France. Two lumberjacks, Roger Mougeolle and Gilbert Doridant see three huge metallic UFOs. One of them lands in a field. Gilbert runs away in fear, but Roger walks up and taps it with his axe. He then raises his axe and strikes it. He is promptly thrown to the ground and temporarily paralyzed.
@@ -4876,9 +5028,11 @@ These cases reveal some important insights into the nature of the UFO phenomenon
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/AbWRmR0FNU0" target="_blank" rel="noopener noreferrer">EPISODE #164. 
 EXTRAORDINARY EXTRATERRESTRIAL ENCOUNTERS: TEN TRUE CASES OF LANDINGS AND HUMANOIDS</a>.</h3>
-<h5>LINK: https://youtu.be/AbWRmR0FNU0</h5>                                                             <h5>June 2, 2023</h5>
+
+<h5>LINK: https://youtu.be/AbWRmR0FNU0</h5> <h5>June 2, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>37,970 views  Jun 2, 2023</h6>
+
 All types of UFO encounters are important and add to our knowledge of this very complex subject. Among the most extraordinary are cases of UFO landings and face-to-face meetings with extraterrestrials. Sightings don’t contain very much data, and the onboard UFO experience often has the issues of missing time, hypnotically-recalled memories, not to mention the fear and trauma that often comes with it. Cases involving landings and humanoids, however, belong to a unique category of encounters that allows witnesses to experience the phenomenon directly and without the issues of missing time.
 
 Here are ten extraordinary cases of alien meetings from across the planet. They reach back into the 1950s and continue up to the 1980s. Most involve multiple witnesses. Many involve compelling physical evidence such as animal reactions, medical effects, electromagnetic disturbances and even landing traces. Most remarkable is the huge variety of humanoids seen, short and tall, skinny and wide, with variations in appearance, clothing and the craft they fly. Each case also contains unique elements in the way the ETs behave. Together they have much to tell us about the nature and origin of the UFO phenomenon and the extraterrestrial agenda on our planet.
@@ -4908,19 +5062,24 @@ As extraordinary and bizarre as these cases may appear, they are all true, fully
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/oJnOtyTOZN0" target="_blank" rel="noopener noreferrer">EPISODE #163. 
 THE LIGHT GATE WITH PRESTON DENNETT & DOLLY SAFRAN: EPISODE 5: BRIGITTE BARCLAY</a>.</h3>
-<h5>LINK: https://youtu.be/oJnOtyTOZN0</h5>                                                             <h5>May 26, 2023
+
+<h5>LINK: https://youtu.be/oJnOtyTOZN0</h5> <h5>May 26, 2023
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,798 views  Premiered May 29, 2023</h6>
+
 <h6>The Light Gate Podcast with Preston Dennett & Dolly Safran</h6>
+
 In this amazing episode, Brigitte will share her many amazing encounters with UFOs and extraterrestrials. As a young girl she had an experience with a landed craft and occupants near her home in England. This was followed by sightings of a strange figure in her back garden. Moving to the United States, Brigitte had an incredible close-up encounter while driving on the 405 freeway in Los Angeles. This was followed by more visitations in Topanga Canyon, including picking up a mysterious hitchhiker who might very well have been an ET. We will talk about her amazing visit to Area 51 with a television crew, where they call got arrested. Also covered are her experiences with going under hypnosis to recover missing time memories. And so much more, including healings, amazing psychic events, some magical synchronicities, miraculous animal encounters and so much more!
 
 Brigitte Barclay (formerly Bridget Grant) is one of the UK’s most high-profile UFO witnesses and contactees. She has worked with many of the world’s leading researchers of the alien abduction phenomenon including the late Budd Hopkins, Dolores Cannon and the late Harvard psychology professor, John Mack MD. She has also collaborated extensively with former Ministry of Defense UFO expert, Nick Pope, who has described her case as one of the most interesting and compelling that he has ever come across. Brigitte Barclay has lived and worked in both the UK and the US. Her story has been featured in national daily newspapers including The Sun and the Daily Mail, as well as in a variety of TV shows and documentaries (including This Morning (ITV), BBC BBC3, History Channel, SyFy Channel, National Geographic and many more.) Brigitte was also asked to advise on various programs and TV shows including, Fact or Faked on Syfy channel.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ePSTfxDXR-A" target="_blank" rel="noopener noreferrer">EPISODE #162. 
 ETS LOVE ALFALFA! – SIGHTINGS, LANDINGS, HUMANOIDS: 20 TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/ePSTfxDXR-A</h5>                                                             <h5>May 26, 2023</h5>
+
+<h5>LINK: https://youtu.be/ePSTfxDXR-A</h5> <h5>May 26, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>9,576 views  May 26, 2023</h6>
+
 There are many strange patterns to UFO activity, and one of them appears to be a connection to the food crop, alfalfa. There are dozens of cases in which UFOs are seen over alfalfa fields. These are not only low-level sightings, but landings and humanoid encounters. They have been occurring since the modern age of UFOs and continue today.
 
 The question is why? What is it about alfalfa that is attracting so many UFOs? This video presents a chronology of cases from all over the world. Most of these cases involve physical evidence such as animal reactions, physiological effects, electromagnetic disturbances, and most often: landing traces. These cases not only provide outstanding evidence of UFO reality, they provide some startling insights into ET behavior.
@@ -4963,9 +5122,11 @@ As these cases (and many others) show, ETs are attracted to alfalfa. Could it be
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/fYfxyUHY-Ug" target="_blank" rel="noopener noreferrer">EPISODE #161. 
 MORE CELEBRITY UFO ENCOUNTERS: THE LIST IS GROWING!</a>.</h3>
-<h5>LINK: https://youtu.be/fYfxyUHY-Ug</h5>                                                             <h5>May 19, 2023</h5>
+
+<h5>LINK: https://youtu.be/fYfxyUHY-Ug</h5> <h5>May 19, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>5,828 views  May 19, 2023</h6>
+
 People from all levels of society encounter UFOs, and that includes the rich and famous. In fact, there is a very long list of celebrities who have come forward revealing their own dramatic UFO encounters. Actors, musicians, sports stars -- there are now about 100 cases of celebrity UFO encounters, and the list is growing fast. Here are some new ones that you may not have heard of.
 
 JOHNNY CASH: In Feb 1981, world-famous musician Johnny Cash was in Jamaica when he had a dramatic UFO encounter. It was a clear night, and he was outside with a group of people. Suddenly a bright streaking light caught his eye. He first thought it was a shooting star. But then he saw it was oval in shape, purple in color, and was making a strange noise. As Johnny says, “It was unearthly.”
@@ -4994,9 +5155,11 @@ As can be seen, the UFO occupants visit all kinds of people on our planet, regar
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/MN-i-ujJMQ8" target="_blank" rel="noopener noreferrer">EPISODE #160. 
 PHANTASMAGORICAL! TWELVE WEIRD & FREAKY UFO CASES</a>.</h3>
-<h5>LINK: https://youtu.be/MN-i-ujJMQ8</h5>                                                             <h5>May 12, 2023</h5>
+
+<h5>LINK: https://youtu.be/MN-i-ujJMQ8</h5> <h5>May 12, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>40,973 views  May 12, 2023</h6>
+
 If there is one word that sums up the UFO experience, it’s “phantasmagorical.” Whether a sighting, a landing, a face-to-face encounter, an onboard experience, or even a UFO crash/retrieval -- all of them contain levels of weirdness and high strangeness that are a consistent feature of UFO cases. The variety of UFO experiences are truly astonishing. They can be funny, bizarre, scary, traumatizing, enlightening, healing and more.
 
 This video presents twelve cases which show just how truly weird and freaky the UFO experience can be. These cases come from across the United States and the world. Most involve multiple witnesses and varying kinds of physical evidence such as landing traces, animal reactions, physiological effects, electromagnetic disturbances and more. Each provides another piece of the puzzle towards solving the UFO mystery.
@@ -5029,9 +5192,11 @@ As these cases show, just when you think you’ve heard everything about UFOs, a
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/WE33RZvI2jI" target="_blank" rel="noopener noreferrer">EPISODE #159. 
 “I WAS TAKEN ONBOARD A UFO!” TEN ASTONISHING TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/WE33RZvI2jI</h5>                                                             <h5>May 5, 2023</h5>
+
+<h5>LINK: https://youtu.be/WE33RZvI2jI</h5> <h5>May 5, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>32,738 views  May 5, 2023</h6>
+
 There is no experience quite like an onboard UFO encounter. A simple sighting is undeniably interesting, but often they can be misperceived and misinterpreted. Even UFO landings and face-to-face encounters tell us nothing about what it’s like inside a craft. Onboard UFO encounters are so close-up that it’s virtually impossible to misperceive the experience. Witnesses are not only touching the UFO, they are breathing the air inside it, smelling the odors, hearing the sounds, and communicating directly with the extraterrestrials. It is cases like these where we learn the most about ETs, who they are, where they come from, why they are here and their agenda on our planet.
 
 Cases of people being taken onboard are far more numerous than most people realize. In fact, many researchers believe that millions of people are having these experiences. They’ve been taking place for many years and occur all over the world.
@@ -5062,9 +5227,11 @@ Ten cases, from all across the planet, each providing profound insights into the
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/TL70AASWKgI" target="_blank" rel="noopener noreferrer">EPISODE #158. 
 UFO LANDINGS & HUMANOIDS: SEVEN SPECTACULAR CASES</a>.</h3>
-<h5>LINK: https://youtu.be/TL70AASWKgI</h5>                                                             <h5>April 28, 2023</h5>
+
+<h5>LINK: https://youtu.be/TL70AASWKgI</h5> <h5>April 28, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>15,577 views  Apr 28, 2023</h6>
+
 Among the most spectacular of all UFO encounters are cases of landings and humanoids. These cases are not nearly as common as sightings, and yet they have been occurring all over the world for many decades. Encounters like these are very important because they are so close that any explanations of misperceptions or hallucinations become completely untenable. These cases also remove any doubt that UFOs are in fact craft occupied by living beings. These are the kinds of cases that answer many of the questions surrounding the UFO phenomenon, such as what are they, where do they come from and why are they here?
 
 This video presents seven dramatic cases, one from each decade, starting in the 1950s and moving forward to the 2010s. Each case involves a landed craft and humanoid figure. These cases also provide considerable physical evidence in the form of landing traces, physiological effects and even photographs.
@@ -5087,9 +5254,11 @@ Each of these cases provides a fascinating glimpse into the UFO phenomenon, prov
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/gbikOvkcUqI" target="_blank" rel="noopener noreferrer">EPISODE #157. 
 UFOS FAST & FURIOUS: UFO-CAR ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/gbikOvkcUqI</h5>                                                             <h5>April 21, 2023</h5>
+
+<h5>LINK: https://youtu.be/gbikOvkcUqI</h5> <h5>April 21, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>11,528 views  Apr 21, 2023</h6>
+
 Imagine you’re driving along a remote highway late at night when you see a glowing object ahead of you right above the road. As you approach, you can see that it’s actually a saucer-shaped craft, a UFO! Suddenly, the UFO swoops down towards your car and starts following you down the highway. It circles around your car, hovering right above it, on either side, coming closer and closer. Your radio becomes filled with static, your headlights dim, and the car engine begins to sputter. Then the UFO takes control of the car!
 
 This may sound incredible, but it happens more often than you might think. In fact, there are hundreds of UFO-car chases on record, coming from all over the world. These are among the most dramatic of UFO encounters. They have been occurring since at least the 1950s up to the present day. For some reason, UFOs love to play cat-and-mouse games with unwary drivers who suddenly find themselves driving fast and furiously to outrun a UFO that chases them down the highway, sometimes for hours!
@@ -5118,9 +5287,11 @@ These are just a small sampling of the many cases of UFO-car chases. It appears 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/IxE0fQSRAeU" target="_blank" rel="noopener noreferrer">EPISODE #156. 
 BEYOND BIZARRE: EIGHT EXTRAORDINARY EXTRATERRESTRIAL ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/IxE0fQSRAeU</h5>                                                             <h5>April 14, 2023</h5>
+
+<h5>LINK: https://youtu.be/IxE0fQSRAeU</h5> <h5>April 14, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>41,724 views  Apr 14, 2023</h6>
+
 UFO and extraterrestrial encounters are known for their high levels of strangeness. Whether a sighting, a face-to-face encounter with ETs or an onboard experience, each case usually contains unique and unusual elements. Each case adds to our knowledge of alien contact. This article (and video) presents eight cases that illustrate the bizarre high-strangeness of UFO/ET encounters.
 
 CASE ONE: In 1976, Kathleen Teti stepped outside her home in Norristown, PA to an incredible sight. A saucer-shaped craft hovered ten feet above her front yard. The dome atop the craft had huge windows, through which Kathleen could see two gray-type ETs. Even more strange, she saw two humans who had apparently been taken onboard. She was so close, she could see the consoles, chairs, and what appeared to be a red shag rug on the floor and walls!
@@ -5143,9 +5314,11 @@ The above cases show how truly strange and bizarre UFO encounters can be. They s
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/6U12HEsTMMk" target="_blank" rel="noopener noreferrer">EPISODE #155. 
 DO ALIENS HAVE A SENSE OF HUMOR?</a>.</h3>
-<h5>LINK: https://youtu.be/6U12HEsTMMk</h5>                                                             <h5>April 7, 2023</h5>
+
+<h5>LINK: https://youtu.be/6U12HEsTMMk</h5> <h5>April 7, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>22,493 views  Apr 7, 2023</h6>
+
 Do aliens have a sense of humor? It’s a question many people have asked. And the answer appears to be, yes! In fact, there are many cases where ETs show a sense of humor. There are accounts of ETs smiling, laughing and showing in many ways that they, like humans, do find some things funny. These cases reach back decades and are still occurring today.
 
 Many contactees have seen this firsthand. This video presents more than a dozen cases in which aliens exhibit a sense of humor very much like our own. One example comes from contactee, Bill Foster. After being abducted many times, he wondered how big the craft was. Sometimes it seemed small, and other times large. Finally, he decided to ask how big the craft was. Bill says that the gray seemed to laugh and told him, “It’s as big as we need it to be.” It wasn’t the only time his questions amused the ETs.
@@ -5178,9 +5351,11 @@ These are just some of the many accounts of ET humor. Cases involving ET humor a
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/4oHyOEz6Xwo" target="_blank" rel="noopener noreferrer">EPISODE #154. 
 INTERVIEW WITH UFO EXPERIENCER AND FILMMAKER JOHN YOST</a>.</h3>
-<h5>LINK: https://youtu.be/4oHyOEz6Xwo</h5>                                                             <h5>March 31, 2023</h5>
+
+<h5>LINK: https://youtu.be/4oHyOEz6Xwo</h5> <h5>March 31, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>5,609 views  Mar 31, 2023</h6>
+
 In 1973, seven-year-old John Yost of Pittsburgh, PA had an experience that would alter the course of his life forever. He awoke in the middle of the night and went to the bathroom to get a drink of water. As he stood in front of the sink, something very strange happened.
 
 Looking in the doorway, he saw a strange figure. He could hardly believe his eyes. It was Ultraman, a superhero character from one of his favorite TV shows. What was Ultraman doing in his house? How did he get there? What did he want?
@@ -5217,9 +5392,11 @@ FOR MORE INFO ABOUT ALIEN ABDUCTION ANSWERS: https://rynopictures.com/alien-abdu
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/vMGeVhmh26k" target="_blank" rel="noopener noreferrer">EPISODE #153. 
 THOSE AMAZING USOS!</a>.</h3>
-<h5>LINK: https://youtu.be/vMGeVhmh26k</h5>                                                             <h5>March 24, 2023</h5>
+
+<h5>LINK: https://youtu.be/vMGeVhmh26k</h5> <h5>March 24, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,864 views  Mar 24, 2023</h6>
+
 USOs! Unidentified submersible objects! For many years, there wasn’t much research into the subject of USOs. UFO research focused mostly on flying objects. But today UFO investigators have come to realize that our oceans are swarming with extraterrestrial craft. Mile for mile, one of the top producers of USO reports is the stretch of water off the southern California coast, known as the Santa Catalina/San Pedro channel. There are now more than 150 documented cases on record.
 
 This video presents more than a dozen dramatic cases of UFO/USO activity in the Santa Catalina channel. These are cases involving multiple witnesses, radar confirmation, photographs, films, physiological effects and more.
@@ -5257,9 +5434,11 @@ https://www.amazon.com/dp/1984340700/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/jXZaPtVnuuI" target="_blank" rel="noopener noreferrer">EPISODE #152. 
 INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART SIX: FLIGHT SCHOOL</a>.</h3>
-<h5>LINK: https://youtu.be/jXZaPtVnuuI</h5>                                                             <h5>March 17, 2023</h5>
+
+<h5>LINK: https://youtu.be/jXZaPtVnuuI</h5> <h5>March 17, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>11,271 views  Mar 17, 2023</h6>
+
 How would you like to fly a UFO? It’s not as unique as you might think. In fact, 
 contactees all over world are reporting this kind of experience. According to the 
 "FREE" study, about thirteen percent of contactees say that they have piloted a UFO. 
@@ -5325,14 +5504,19 @@ agenda is on this planet.
 
 <p>If you would like explore more about Dolly’s amazing experiences, check out the book, 
 “Symmetry: A True UFO Adventure.” Now available!</p>
+
 <p>Interview with a Fully Conscious UFO Conta...</p>
+
 <p><a href="https://www.amazon.com/dp/B09VF3J8NR/...">LINK TO BOOK:</a></p>
+
 <p><a href="https://prestondennett.weebly.com/">LINK TO PRESTON DENNETT’S WEBSITE</a>:</p>
+
 <p><a href="/@dollysafran9107  ">LINK TO DOLLY’S YOUTUBE CHANNEL</a>:</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/NXc5yvi2GUg" target="_blank" rel="noopener noreferrer">EPISODE #151. 
+
 UFOS OVER AIRPORTS: SIGHTINGS, LANDINGS AND HUMANOIDS</a>.</h3>
-<h5>LINK: https://youtu.be/NXc5yvi2GUg</h5>                                                             <h5>March 10, 2023</h5>
+<h5>LINK: https://youtu.be/NXc5yvi2GUg</h5> <h5>March 10, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>8,536 views  Mar 10, 2023</h6>
 <p>Did you know that airports are a powerful magnet for UFO activity? There are dozens of 
@@ -5432,10 +5616,12 @@ out the book, “Not from Here Volume Four.” Now available!<br>
 <a href="https://www.amazon.com/dp/B0BJFGZFH1/">Link to Book</a>.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/IMmFg5IRjPc" target="_blank" rel="noopener noreferrer">EPISODE #150. 
+
 TEN SHOCKING CASES OF UFO HEALINGS</a>.</h3>
-<h5>LINK: https://youtu.be/IMmFg5IRjPc</h5>                                                             <h5>March 3, 2023</h5>
+<h5>LINK: https://youtu.be/IMmFg5IRjPc</h5> <h5>March 3, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>11,459 views  Mar 3, 2023</h6>
+
 Cases of UFO Healings are not new. They have been occurring for more than 100 years. Most major researchers have multiple cases, and they are reported by all kinds of people from all over the world. There are more than 300 documented cases, and they are recognized as a regular feature of UFO contact.
 
 This video presents ten shocking cases of UFO healings. Each case contains surprising and unique elements that offer profound insights into the aliens and their agenda on our planet.
@@ -5466,9 +5652,11 @@ To explore more about these healing cases and others, check out the book, “The
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/E5Z8oMehOUI" target="_blank" rel="noopener noreferrer">EPISODE #149. 
 THOSE DAM UFOS!!!</a></h3>
-<h5>LINK: https://youtu.be/E5Z8oMehOUI</h5>                                                             <h5>February 24, 2023</h5>
+
+<h5>LINK: https://youtu.be/E5Z8oMehOUI</h5> <h5>February 24, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>12,890 views  Feb 24, 2023</h6>
+
 UFO sightings are not as random as they might seem. Researchers discovered long ago that UFOs find certain locations very interesting. These are called “UFO attractors,” and there are a lot them. Some include military bases, nuclear power stations, prisons, graveyards, rocket launches, mines, schoolyards, drive-in movie theaters and more. Another well-known UFO attractor is dams and hydroelectric stations. However, there has not been much research into these types of cases. Until now!
 
 This video presents more than 30 cases of UFOs hovering over dams. And not only hovering, but landing too. Several cases also involve humanoids. The evidence for these cases is astounding. There are multiple witnesses, physiological effects, electromagnetic effects, landing traces, photos and more. In some cases, the UFOs appear to be siphoning water from the reservoirs, or electricity from the power stations. Some of the dams are visited over and over again.
@@ -5515,9 +5703,11 @@ https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/WA-MniOYkTo" target="_blank" rel="noopener noreferrer">EPISODE #148. 
 INDEPENDENCE DAY UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/WA-MniOYkTo</h5>                                                             <h5>February 17, 2023</h5>
+
+<h5>LINK: https://youtu.be/WA-MniOYkTo</h5> <h5>February 17, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>8,409 views  Feb 17, 2023</h6>
+
 What’s the most common day to see a UFO? The answer may surprise you: the 4th of July! That’s right, Independence Day produces more UFO reports than any other day. The question is, why? Are people mistaking fireworks for genuine UFOs? Or is something else going on here?
 
 An examination of the UFO reports made on the fourth of July shows some interesting patterns. Many do involve fiery glowing orbs, or what may very well be sky lanterns, also known as party lanterns. These are small paper balloons set aloft with a small candle. They can rise up to 4000 feet and from a distance, look very much like a UFO.
@@ -5553,9 +5743,11 @@ LINK TO BOOK: https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/UYKOzY6rnKQ" target="_blank" rel="noopener noreferrer">EPISODE #147. 
 “I PUNCHED A GRAY IN THE FACE!”</a>.</h3>
-<h5>LINK: https://youtu.be/UYKOzY6rnKQ</h5>                                                             <h5>February 10, 2023</h5>
+
+<h5>LINK: https://youtu.be/UYKOzY6rnKQ</h5> <h5>February 10, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>15,366 views  Feb 10, 2023</h6>
+
 As a general rule, when someone is visited by gray ETs, they find themselves paralyzed, unable to their body. “Don’t worry, we won’t hurt you,” the grays say. “Come with us.” It is perhaps the most common phrase the ETs say. In cases where people have no fear, they are often given freedom of movement. Others do have fear and have a fight or flight response. In some cases, witnesses break free from their paralysis and react by attacking the extraterrestrials and punching them in the face, choking them around the neck, or getting into some sort of physical altercation. It happens more often than you might think. This video presents more than a dozen cases in which people actually assaulted gray aliens by pushing, kicking, choking or punching.
 
 NOV 3, 1975: Woodcutter Travis Walton and six others encounter a UFO at treetop level in the Sitgreaves National Forest, AZ. Travis runs under the UFO and is taken onboard. Confronted by grays, he physically fights with them.
@@ -5588,9 +5780,11 @@ https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/3fSdfSATLxI" target="_blank" rel="noopener noreferrer">EPISODE #146. 
 CALIFORNIA UFO LANDINGS AND HUMANOIDS: TWELVE TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/3fSdfSATLxI</h5>                                                             <h5>January 27, 2023</h5>
+
+<h5>LINK: https://youtu.be/3fSdfSATLxI</h5> <h5>January 27, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>10,568 views  Jan 27, 2023</h6>
+
 While many people speculate about the nature and origins of the UFO phenomenon, cases of landings and humanoids make it clear what they are. UFOs are craft, and they are piloted by extraterrestrials. These kinds of encounters represent the core of the UFO phenomenon. They teach us the most about these visitors to our world, who they are, where they come from and their agenda on our planet. Humanoid encounters have been occurring for a very long time, and are far more common than many people realize. In fact, according to the Roper Polling Organization, as many as one in fifty people may have had these experiences. They occur all across the planet to all kinds of people. The state of California leads the U.S. in the sheer number of encounters. And the cases of humanoids show a corresponding and profound variety of humanoid types. Here are twelve cases of landings and humanoids from the Golden State.
 
 Oct 18, 1927: While driving outside the town of Bakersfield, schoolteacher Richard Sweed comes upon a landed UFO. As he approaches, it makes a loud whining noise, accelerates upward and disappears into the distance, leaving behind a circle of glassified sand.
@@ -5627,9 +5821,11 @@ https://www.amazon.com/dp/0764321498/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/0D2XWWn-fkg" target="_blank" rel="noopener noreferrer">EPISODE #145. 
 ARIZONA HUMANOIDS: TEN TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/0D2XWWn-fkg</h5>                                                             <h5>January 20, 2023</h5>
+
+<h5>LINK: https://youtu.be/0D2XWWn-fkg</h5> <h5>January 20, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>23,344 views  Jan 20, 2023</h6>
+
 Face-to-face encounters with humanoids and onboard UFO experiences are the cutting edge of UFO research. Cases like these teach us the most about extraterrestrials, who they are, where they’re from, and their agenda on our planet. Humanoids come in all shapes and sizes, and encounters with them are surprisingly varied. People all over the world have been having encounters with humanoids for a very long time. Each location on the planet has a long history of humanoid encounters. One area with a surprisingly rich history is the state of Arizona. What follows are ten cases from the Grand Canyon state, each with its own insights into the nature and origins of the UFO phenomenon.
 
 AN ALIEN ON THE ROAD: On June 9, 1960, a woman was driving with her husband and two children east of Globe. Everyone but her was asleep when she saw what appeared to be a young child about to cross the road. Then it turned its head and what she saw shocked her: the figure was not human!
@@ -5660,10 +5856,13 @@ LINK TO BOOK:
 https://www.amazon.com/dp/B071H9YM5D/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/tBAjYQsK1Ho" target="_blank" rel="noopener noreferrer">EPISODE #144. 
+
 EXTRATERRESTRIAL HITCHHIKERS</a>.</h3>
-<h5>LINK: https://youtu.be/tBAjYQsK1Ho</h5>                                                             <h5>January 13, 2023</h5>
+
+<h5>LINK: https://youtu.be/tBAjYQsK1Ho</h5> <h5>January 13, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>21,604 views  Jan 13, 2023</h6>
+
 Imagine driving along a remote highway and you see someone stick out their thumb, asking for a ride. You don’t pick up random hitchhikers, but for some reason, you feel compelled to stop. The hitchhiker, you now realize, looks weird, is dressed strangely, and starts to behave in unusual ways. Suddenly you realize that the hitchhiker is not human. This may sound crazy, but the fact is, there are more than a dozen cases on record that fit this exact pattern. Extraterrestrial hitchhikers! It happens more often than you think.
 
 1956: Army officer Virgil Atkinson is driving along the Pacific Coast Highway in Santa Monica, CA when he picks up two young sailors. After dropping them off, he finds himself being followed by a UFO.
@@ -5702,9 +5901,11 @@ https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/azGrn4nMSDw" target="_blank" rel="noopener noreferrer">EPISODE #143. 
 INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART FIVE: GATHERING THE CHILDREN</a>.</h3>
-<h5>LINK: https://youtu.be/azGrn4nMSDw</h5>                                                             <h5>January 6, 2023</h5>
+
+<h5>LINK: https://youtu.be/azGrn4nMSDw</h5> <h5>January 6, 2023</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>10,420 views  Jan 6, 2023</h6>
+
 It goes by many names. Some call the experience UFO abduction. Others call it a Close Encounter of the Third Kind. Some prefer to call it Contact, or an Onboard UFO Experience. Whatever term you prefer, the truth is that many people are being taken onboard extraterrestrial craft. In fact, some researchers believe that millions of people have had this experience.
 Dolly Safran has been a fully conscious UFO contactee her whole life. Beginning at age fourteen, she has been taken onboard hundreds (if not thousands) of times. She has spent days, weeks, and sometimes months with the ETs, learning from them, working with them, flying the craft, interacting with various ET types, traveling to other star systems and more.
 
@@ -5722,9 +5923,11 @@ LINK TO BOOK: https://www.amazon.com/dp/B09VF3J8NR/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Q-Ua792wFO0" target="_blank" rel="noopener noreferrer">EPISODE #142. 
 I CRASHED INTO A UFO!</a></h3>
-<h5>LINK: https://youtu.be/Q-Ua792wFO0</h5>                                                             <h5>December 30, 2022</h5>
+
+<h5>LINK: https://youtu.be/Q-Ua792wFO0</h5> <h5>December 30, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>94,081 views  Dec 30, 2022</h6>
+
 It is among the closest and rarest of UFO encounters. It almost never happens. But the fact is, on extremely rare occasions, people have collided with a UFO. Planes, trains and automobiles, and even boats -- all have crashed into UFOs. Vehicle accidents occur every day. But is a very short list of people who have crashed into an extraterrestrial craft. This video presents a comprehensive look at UFO collisions. And not only UFOs, but in a few cases, collisions with extraterrestrials.
 
 PLANES: While there are literally thousands of cases involving UFOs seen from aircraft, there are a dozen cases in which planes have collided with UFOs.
@@ -5793,9 +5996,11 @@ https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ljPzYvcZ00o" target="_blank" rel="noopener noreferrer">EPISODE #141. 
 HUMANOIDS AND HIGH STRANGENESS IN NEVADA: FIVE TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/ljPzYvcZ00o</h5>                                                             <h5>December 23, 2022</h5>
+
+<h5>LINK: https://youtu.be/ljPzYvcZ00o</h5> <h5>December 23, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>16,570 views  Dec 23, 2022</h6>
+
 Among the closest of UFO encounters are cases involving strange humanoids. It’s one thing to see an unidentified flying object from a distance, it’s quite another to see a gray alien, have missing time or even be taken onboard a craft. It’s these types of encounters where we learn the truth about UFO contact and what it’s like to meet an extraterrestrial face-to-face. This video presents five true accounts of humanoids and high strangeness from the state of Nevada. Of course, humanoids are seen all over the world. And Nevada is no exception. In fact, Nevada has many accounts of this kind. What follows are five of the weirdest and most bizarre.
 
 SHARLEEN’S ONBOARD ENCOUNTER. One evening in Jul of 1964, Sharleen Nicholson was six-months pregnant when her house in Las Vegas began to vibrate with a buzzing noise. A light flooded through the windows. Venturing outside, she saw a saucer landed in the field by her home. Sharleen became filled with a strange calmness. The next thing she knew, she was back inside her home. By morning, she had forgotten the entire experience. She gave birth to a healthy baby boy. A few months later, during a baby shower, someone mentioned the word “UFO,” and the memory of her encounter returned. Had she been taken onboard? She wasn’t sure. 
@@ -5816,15 +6021,18 @@ LINK TO BOOK: Amazon.com: UFOs Over Nevada eBook : Preston Dennett: Kindle Store
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/anth_DSeBaY" target="_blank" rel="noopener noreferrer">EPISODE #140. 
 DO ETS HAVE THE CURE FOR CANCER?</a></h3>
-<h5>LINK: https://youtu.be/anth_DSeBaY</h5>                                                             <h5>removed</h5>
+
+<h5>LINK: https://youtu.be/anth_DSeBaY</h5> <h5>removed</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <p>removed/unmonetized by YouTube.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/t3se2Yi6lfE" target="_blank" rel="noopener noreferrer">EPISODE #139. 
 SIX STRANGE CASES OF HUMANOIDS IN NEW YORK STATE</a>.</h3>
-<h5>LINK: https://youtu.be/t3se2Yi6lfE</h5>                                                             <h5>December 9, 2022
+
+<h5>LINK: https://youtu.be/t3se2Yi6lfE</h5> <h5>December 9, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>22,076 views  Dec 9, 2022</h6>
+
 Sightings of UFOs are undeniably interesting, but far more compelling are cases involving humanoids. Face-to-face encounters with extraterrestrial entities provide a profound insight into the UFO phenomenon and the alien presence on our planet. ETs are being seen all over the world, in every state, in every country. This video presents six extraordinary and unusual cases of humanoid entities from the state of New York. Each of these cases are strange and unique, and each offers an opportunity to further our understanding of extraterrestrials.
 
 CASE ONE: IMPLANTED BY ALIENS. In 1955, eight-year-old Richard Price was playing near his home in Lansingburgh, NY when he encountered short humanoid ETs and a landed UFO. He was taken onboard the craft, physically examined and given an alien implant. Further procedures followed. Richard was then returned, but his life would never be the same. His case became on of the first involving the scientific study of an alien implant.
@@ -5848,9 +6056,11 @@ https://www.amazon.com/dp/076432974X/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/C7hGChhR8c4" target="_blank" rel="noopener noreferrer">EPISODE #138. 
 ETS TEACH PEOPLE TO LEVITATE</a>.</h3>
-<h5>LINK: https://youtu.be/C7hGChhR8c4</h5>                                                             <h5>December 2, 2022</h5>
+
+<h5>LINK: https://youtu.be/C7hGChhR8c4</h5> <h5>December 2, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>21,486 views  Dec 2, 2022</h6>
+
 A UFO encounter can have many profound effects upon a witness. A person can be physically affected, with such symptoms as injuries or healings. An encounter affects a person mentally, challenging their world view. A UFO encounter is also a very emotional experience and can trigger the full range of emotions. But it goes beyond that. A close encounter can also transform a person spiritually, triggering a wide variety of paranormal events. It’s not unusual for contactees to experience OBEs, precognition, past-life memories, channeling, ghostly encounters and more.
 
 One of the most bizarre effects, one that has received little attention, is that following an encounter, some abductees experience spontaneous human levitation. As unusual as this may sound, there are a growing number of cases. This video presents more than a dozen cases of people who have levitated as a result of a UFO encounter. It appears that ETs are teaching people how to levitate.
@@ -5885,9 +6095,11 @@ https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/s2D0w_wQpRY" target="_blank" rel="noopener noreferrer">EPISODE #137. 
 BIGFOOT IN CALIFORNIA</a>.</h3>
-<h5>LINK: https://youtu.be/s2D0w_wQpRY</h5>                                                             <h5>November 25, 2022</h5>
+
+<h5>LINK: https://youtu.be/s2D0w_wQpRY</h5> <h5>November 25, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>15,686 views  Nov 25, 2022</h6>
+
 Bigfoot is real! While mainstream science has refused to accept the existence of the hair hominin, reports of the creature are now in the tens of thousands or more. Cases reach back hundreds of years and continue to the present day. While Bigfoot is reported all over the planet, the leading producer of cases is the state of California.
 
 Native Americans have oral traditions about Sasquatch reaching back many hundreds of years. But it wasn’t until the mid-1850s that written reports began to be recorded. Initially reports came from prospectors, miners, hunters, and others. But as the population of California began to grow, so did the number of Bigfoot encounters.
@@ -5908,9 +6120,11 @@ Transcript
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/iEm4Z5mzGlw" target="_blank" rel="noopener noreferrer">EPISODE #136. 
 SEVEN EXTRAORDINARY CASES OF EXTRATERRESTRIAL HEALING</a>.</h3>
-<h5>LINK: https://youtu.be/iEm4Z5mzGlw</h5>                                                             <h5>November 18, 2022</h5>
+
+<h5>LINK: https://youtu.be/iEm4Z5mzGlw</h5> <h5>November 18, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>8,047 views  Nov 18, 2022</h6>
+
 UFO contact has occurred all over the world to all kinds of people. While some people report being very frightened by their encounters, others report encounters that are not only benevolent, but healing. In fact, ET healings are far more common than most people realize. There are literally hundreds of cases on record, reaching back over 100 years and still occurring to the present day. This video presents seven extraordinary examples of extraterrestrial healings involving people from all across the planet. These seven cases show how truly advanced ETs are when it comes to practicing medicine, and also show that healing humanity is main part of the alien agenda.
 
 CASE ONE: TERRY WALTERS: Terry Walters of England reports a lifetime of unusual events. In 2005, Terry suffered from severe spinal problems and chronic back pain. That is, until he found himself in an operating room onboard a UFO. Even more surprising, he was being operated on by a reptilian humanoid. Following this, Walters' back pain was gone. Soon Walters began having more onboard experience with beautiful human-looking extraterrestrials. This initiated a spiritual awakening and Terry began experiencing ghost encounters, precognition of disasters, memories of a past-life as an Egyptian Pharoah and more. Walters also found he had the ability to heal others of a wide variety of medical conditions.
@@ -5938,9 +6152,11 @@ LINK TO JERRY WILLS WEBSITE: https://www.jerrywills.com/
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/pzLjKiNSGGQ" target="_blank" rel="noopener noreferrer">EPISODE #135. 
 “TAKE ME TO YOUR LEADER.”</a></h3>
-<h5>LINK: https://youtu.be/pzLjKiNSGGQ</h5>                                                             <h5>November 11, 2022</h5>
+
+<h5>LINK: https://youtu.be/pzLjKiNSGGQ</h5> <h5>November 11, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>9,150 views  Nov 11, 2022</h6>
+
 When it comes to UFOs, one of the most common assumptions is that ETs would land on the White House lawn and say, “Take me to your leader!” Ignoring the fact that UFOs have hovered over the White House at least twice, the truth is they have shown themselves to a wide variety of world leaders. Most people are probably unaware that presidents have seen UFOs, as have senators, representatives, governors and many other leaders across the United States and the world.
 
 This video presents more than twenty world leaders who have had close encounters with UFOs and extraterrestrials, reaching back to 1947, the Modern Age of UFOs all the way to the present day.
@@ -5980,9 +6196,11 @@ LINK TO BOOK: https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/eHqCg6q0i8E" target="_blank" rel="noopener noreferrer">EPISODE #134. 
 THE ET FERTILIZER CONNECTION</a>.</h3>
-<h5><a href="">LINK: https://youtu.be/eHqCg6q0i8E</h5>                                                  <h5>November 4, 2022</h5>
+
+<h5><a href="">LINK: https://youtu.be/eHqCg6q0i8E</h5><h5>November 4, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,906 views  Nov 4, 2022</h6>
+
 On September 19, 1961, a momentous event occurred which generated headlines across the world and forever changed the way humanity viewed the UFO phenomenon. While driving through the remote White Mountains of New Hampshire, a married couple by the name of Barney and Betty Hill encountered a UFO. The object descended low enough that Barney was able to see occupants looking down at him from the craft. As they sped away, the craft pursued them. The couple experienced about two hours of missing time, then returned to their home.
 
 This incredible case introduced the world to the idea of UFO abductions. And before long, hundreds and then thousands of similar cases started pouring in from all over the world. The case is perhaps the most famous in UFO history. But what many people don’t know about is the fertilizer connection.
@@ -6007,9 +6225,11 @@ LINK TO BOOK: https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_glo48R7CDc" target="_blank" rel="noopener noreferrer">EPISODE #133. 
 INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART FOUR: WORLDS I HAVE SEEN</a>.</h3>
-<h5>LINK: https://youtu.be/_glo48R7CDc</h5>                                                             <h5>October 28, 2022</h5>
+
+<h5>LINK: https://youtu.be/_glo48R7CDc</h5> <h5>October 28, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>12,348 views  Oct 28, 2022</h6>
+
 In January of 1973, a fourteen-year-old girl named Dolly Safran woke up to the fact that she was having regular visitations with extraterrestrials. Prior to this, she had ignored, denied or explained away her encounters. But now, after a profound onboard UFO experience, she knew the truth. She was a UFO contactee. She was having regular visits with extraterrestrials. 
 
 This began her lifelong relationship with ETs, during which she was taken onboard and taught many subjects, including biology, astronomy, chemistry, morality, ethics, spirituality and much more. Given the opportunity to work directly with them, Dolly chose to focus on learning how to fly the craft.
@@ -6036,9 +6256,11 @@ LINK TO BOOK: https://www.amazon.com/dp/B09VF3J8NR/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/W_vS_8MB9mg" target="_blank" rel="noopener noreferrer">EPISODE #132. 
 UFO CAR-LIFT CASES</a>.</h3>
-<h5>LINK: https://youtu.be/W_vS_8MB9mg</h5>                                                             <h5>October 21, 2022</h5>
+
+<h5>LINK: https://youtu.be/W_vS_8MB9mg</h5> <h5>October 21, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>10,528 views  Oct 21, 2022</h6>
+
 UFOs often behave in ways that can only be described as bizarre. One type of behavior that is familiar to most UFO investigators are UFO-car chases. In case after case, UFOs will approach a car driving down a remote highway late at night and chase them down the road. But there’s another type of behavior that goes far beyond just chasing a car. Sometimes UFOs will actually pull the car off the road and suck it up into the sky! These are known as “car-lift” cases.
 
 For some reason, the UFO occupants just pull the car up, float it around and then set it back down, leaving the people in the car bewildered and more than a little frightened. The question is, why? The best way to get some answers is to examine the cases. This video present more than twenty UFO car-lift cases, reaching back more than sixty years up to the present day, and coming from all across our planet.
@@ -6091,9 +6313,11 @@ LINK TO BOOK: https://www.amazon.com/dp/B0BJFGZFH1/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ZtV-fjpb3EE" target="_blank" rel="noopener noreferrer">EPISODE #131. 
 THREE REALLY CREEPY GHOST STORIES</a>.</h3>
-<h5>LINK: https://youtu.be/ZtV-fjpb3EE</h5>                                                             <h5>October 14, 2022</h5>
+
+<h5>LINK: https://youtu.be/ZtV-fjpb3EE</h5> <h5>October 14, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>2,365 views  Oct 14, 2022</h6>
+
 A ghost encounter can elicit a wide variety of emotions. They can be funny, sad, scary, awe-inspiring...and some can be downright creepy! This video presents three really creepy ghost stories, the kind that sends little icy shivers down your spine.
 
 CASE ONE: THE GHOST THAT CAME TO BED. Shortly after moving into their new home in Merced, California, Sally Sanders (pseudonym) began to experience weird activity. Her husband never noticed anything strange, not at first. But Sally did. Late one evening, she woke up to feel someone climbing into her bed. But when she looked, nobody was there! She first thought it might have been her imagination, and that it would never happen again. But it did. A few weeks later, she again woke up to feel the mattress press down and the bedsheets rustle. But when she looked, nobody was there. As she always did when this happened, she fled the bedroom and slept elsewhere in the house.
@@ -6122,9 +6346,11 @@ LINK TO BOOK: https://www.amazon.com/dp/0764319728/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/MC_ldvjQKHs" target="_blank" rel="noopener noreferrer">EPISODE #130. 
 50 EYEWITNESS DRAWINGS OF UFOS</a>.</h3>
-<h5>LINK: https://youtu.be/MC_ldvjQKHs</h5>                                                             <h5>October 7, 2022</h5>
+
+<h5>LINK: https://youtu.be/MC_ldvjQKHs</h5> <h5>October 7, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>14,482 views  Oct 7, 2022</h6>
+
 UFOs come in a dazzling array of shapes and sizes. Saucer-shaped craft, egg-shaped, spherical-shaped, teardrops, triangles, cigars...you name it! The true number of cases is far larger than most people realize. UFOs are seen all over the world by all kinds of people.
 
 This video presents a decade of sightings, stretching from 1947 to 1957, all involving firsthand witnesses who provide sketches of what they saw. It has been said that a picture is worth a thousand words. And this is especially true when it comes to UFOs. Sometimes the UFO craft are so strange, unusual and unique, that people are unable to find the words to describe them. A simple sketch is not only helpful in describing a UFO, it is often essential. A drawing is able to convey information in a way that words simply cannot do.
@@ -6135,9 +6361,11 @@ To learn more about Preston Dennett's research, here is a link to his website: h
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/iND9UoufHxE" target="_blank" rel="noopener noreferrer">EPISODE #129. 
 THREE INCREDIBLE CASES OF KIDS CONTACTING UFO CRAFT</a>.</h3>
-<h5>LINK: https://youtu.be/iND9UoufHxE</h5>                                                            <h5>September 30, 2022</h5>
+
+<h5>LINK: https://youtu.be/iND9UoufHxE</h5><h5>September 30, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,843 views  Sep 30, 2022  #1140</h6>
+
 Did you know that children comprise a significant number of UFO witnesses? There are many reasons for this. One is that children are usually outside more than adults. Also, children are more likely to report their encounters than are adults. A third reason is that UFO contact often begins early in childhood. As evidenced by the many cases of schoolyard UFO encounters, ETs like to show themselves to children. Unfortunately, children are often disbelieved or not taken seriously. Therefore, it's likely that the actual numbers of kids contact UFOs is higher than most people think.
 
 This video presents three incredible cases of kids who have had UFO encounters. Each of these cases involves multiple witnesses and various forms of evidence such as electromagnetic effects, animal reactions, physiological effects and landing traces. Under the J. Allen Hynek system, these would be classified as Close Encounters of the Second and Third Kind. In other words, these are not simple sightings, but very close encounters in which the environment is affected in some way, and/or involve humanoids.
@@ -6154,9 +6382,11 @@ LINK TO BOOK: https://www.amazon.com/dp/0764321498/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/eiUWOR_Nrgk" target="_blank" rel="noopener noreferrer">EPISODE #128. 
 ET E.R. – FIVE TRUE CASES OF EXTRATERRESTRIAL HEALING</a>.</h3>
-<h5>LINK: https://youtu.be/eiUWOR_Nrgk</h5>                                                             <h5>September 23, 2022</h5>
+
+<h5>LINK: https://youtu.be/eiUWOR_Nrgk</h5> <h5>September 23, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>5,837 views  Sep 23, 2022</h6>
+
 Healings are a consistent feature of UFO encounters, and they are more common than most people realize. Cases reach back more than 100 years and come from across the world. They cover a wide variety of injuries, illnesses and diseases. Most major UFO researchers have multiple cases. This video presents five true cases of people who have been healed by extraterrestrials.
 
 CASE ONE: DIPHTHERIA. From researcher David Jacobs, Ph.D., in 1962, Alice Haggerty of Trenton, New Jersey was struck with the sometimes fatal disease diphtheria. For religious reasons, her parents had not inoculated her against the disease. When her condition worsened, they called in a doctor who cared for her as best as he could. Unfortunately, Alice's condition deteriorated. Alice became so sick that she was not expected to live through the night. On that evening, Alice was visited by ETs, taken onboard and healed. The next morning, she was fully recovered, amazing both her parents and the doctor.
@@ -6175,9 +6405,11 @@ LINK TO BOOK: https://www.amazon.com/dp/1792986203/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/WVNJ7HNw9Og" target="_blank" rel="noopener noreferrer">EPISODE #127. 
 THE WHITE WITCH & GHOSTS OF THE INDIAN BURIAL GROUND</a>.</h3>
-<h5>LINK: https://youtu.be/WVNJ7HNw9Og</h5>                                                             <h5>September 16, 2022</h5>
+
+<h5>LINK: https://youtu.be/WVNJ7HNw9Og</h5> <h5>September 16, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,947 views  Sep 16, 2022</h6>
+
 A ghostly encounter is one of the most commonly reported types of paranormal experiences. Ghosts can manifest in a wide variety of ways, including opening and closing doors, moving objects, turning lights on and off, phantom footsteps, cold-spots, unexplained odors, full-color apparitions and much more. Sometimes a home or specific structure is haunted, but other times a haunting can encompass a much larger area.
 
 This video presents two cases of large-scale hauntings, both involving numerous firsthand witnesses encountering ghosts over a wide area with a large variety of paranormal manifestations.
@@ -6195,9 +6427,11 @@ LINK TO BOOK: https://www.amazon.com/dp/0764319728/...
 <h3><a href="https://youtu.be/w1m2MyW7We8" target="_blank" rel="noopener noreferrer">EPISODE #126. 
 INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART THREE: 
 EXTRATERRESTRIALS I HAVE MET</a>.</h3>
-<h5>LINK: https://youtu.be/w1m2MyW7We8</h5>                                                             <h5>September 9, 2022</h5>
+
+<h5>LINK: https://youtu.be/w1m2MyW7We8</h5> <h5>September 9, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>14,596 views  Sep 9, 2022</h6>
+
 Dolly Safran, a nurse and Army D.O.D employee from Florida, has experienced a lifetime of UFO contact. While her experiences were initially shrouded in missing time, at age fourteen she experienced an encounter that would change her life forever. From that point on, Dolly remembered her UFO contacts fully consciously. She has since had thousands of contacts and experienced a wide variety of encounters.
 
 In Part One of this series, we explored Dolly's encounters up to age fourteen. In Part Two, we presented the many UFO photographs and films Dolly was able to capture. Now, in Part Three, we now explore the many different types of extraterrestrials Dolly has encountered.
@@ -6232,9 +6466,11 @@ LINK TO BOOK: https://www.amazon.com/dp/B09VF3J8NR/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/4GiJ78ogpdY" target="_blank" rel="noopener noreferrer">EPISODE #125. 
 SEVEN UFO LANDING CASES</a>.</h3>
-<h5>LINK: https://youtu.be/4GiJ78ogpdY</h5>                                                             <h5>September 2, 2022</h5>
+
+<h5>LINK: https://youtu.be/4GiJ78ogpdY</h5> <h5>September 2, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,471 views  Sep 2, 2022</h6>
+
 While seeing a UFO is undeniably interesting, far more compelling are cases of UFO 
 landings. In these cases, the extraterrestrial craft are observed from a short 
 distance, virtually removing any chance of misperception. This video presents seven 
@@ -6306,9 +6542,11 @@ LINK TO "UFOs over New York": https://www.amazon.com/dp/076432974X/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ho65PhT1OAk" target="_blank" rel="noopener noreferrer">EPISODE #124. 
 CAN HUMANS WALK ON WATER?</a></h3>
-<h5>LINK: https://youtu.be/ho65PhT1OAk</h5>                                                             <h5>August 26, 2022</h5>
+
+<h5>LINK: https://youtu.be/ho65PhT1OAk</h5> <h5>August 26, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,440 views  Aug 26, 2022</h6>
+
 Jesus walking on water in the Sea of Galilee is a very well-known miraculous event. And of course, there is the account of Buddha performing the same wondrous talent. Although these men both lived thousands of years ago, their incredible feats are still remembered today. But what many people don't realize is that there are dozens of cases from many different cultures throughout history in which people have walked on water. Some of these accounts were widely viewed by outside witnesses and are surprisingly well-verified.
 
 For example, in the year 350, St. Ammon of Egypt was viewed by his disciple to float over a river.
@@ -6347,9 +6585,11 @@ If you would like to learn more about people who have walked on water, and other
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/EpHpNI9UHU4" target="_blank" rel="noopener noreferrer">EPISODE #123. 
 THE UFO INVASION OF CALIFORNIA’S MILITARY BASES</a>.</h3>
-<h5>LINK: https://youtu.be/EpHpNI9UHU4</h5>                                                             <h5>August 19, 2022</h5>
+
+<h5>LINK: https://youtu.be/EpHpNI9UHU4</h5> <h5>August 19, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,436 views  Aug 19, 2022</h6>
+
 UFO researchers have known for a very long time that UFOs are attracted to military bases. In fact, pioneering investigators Jim and Coral Lorenzen knew this, and when new military installations were built, they predicted sightings would occur there. And they were right!
 
 The state of California has the largest population of any state, and according to NUFORC (the National UFO Reporting Center,) it also produces more UFO reports than any other states. California also has a very large number of highly advanced and sensitive military bases. So, it should come as no surprise that many of these installations have been visited by UFOs. In fact, sightings stretch all the way back to at least 1947, The Modern Age of UFOs, and are continuing today. 
@@ -6388,9 +6628,11 @@ LINK TO BOOK: https://www.amazon.com/dp/0764321498/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_a05lTQf4tA" target="_blank" rel="noopener noreferrer">EPISODE #122. 
 A GHOST, A SPIRIT & A DEMON</a>.</h3>
-<h5>LINK: https://youtu.be/_a05lTQf4tA</h5>                                                             <h5>August 12, 2022</h5>
+
+<h5>LINK: https://youtu.be/_a05lTQf4tA</h5> <h5>August 12, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,871 views  Aug 12, 2022</h6>
+
 Since recorded history, people of all cultures across the world report seeing ghosts. They represent some of the best evidence we have for existence after death. But what many people don't know is that there are different kinds of ghosts.
 
 For example, a typical ghost is simply an earthbound soul, someone who has remain attached to the Earthly plane. Ghosts remain earthbound for a variety of reasons. They might not realize they have passed on. They might be attached to a place or a person. They may suffer from confusion or addictions. Ghosts are responsible for the many haunted places across our planet
@@ -6415,9 +6657,11 @@ LINK TO BOOK: https://www.amazon.com/dp/0764319728/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/wzgErKIPM7A" target="_blank" rel="noopener noreferrer">EPISODE #121. 
 ETS CURE KIDNEY DISEASE: TEN TRUE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/wzgErKIPM7A</h5>                                                             <h5>August 5, 2022</h5>
+
+<h5>LINK: https://youtu.be/wzgErKIPM7A</h5> <h5>August 5, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,914 views  Aug 5, 2022</h6>
+
 ETs are healing people all across the world. With more than 300 documented cases, it is clear that healing is a regular facet of a UFO encounter. Most major researchers have multiple cases involving cures. These cases not only provide good hard evidence of extraterrestrials, but they also show a benevolent side to UFO encounters. But with a fear-based media and an active UFO cover-up, these kinds of cases are not getting the attention they deserve.
 
 This video presents ten true cases of healings of one specific type: the kidneys. These cases show how truly advanced in medicine the ETs are.
@@ -6450,9 +6694,10 @@ LINK TO THE BOOK: https://www.amazon.com/dp/1792986203/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/NMSXgkm5R-s" target="_blank" rel="noopener noreferrer">EPISODE #120. 
 IS GRANDPA AN ALIEN? (AND FOUR OTHER CASES OF UFO CONTACT. 
-<h5>LINK: https://youtu.be/NMSXgkm5R-s</h5>                                                             <h5>July 29, 2022</h5>
+<h5>LINK: https://youtu.be/NMSXgkm5R-s</h5> <h5>July 29, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>41,949 views  Jul 29, 2022</h6>
+
 While UFO sightings are undeniably interesting, even more fascinating are accounts of actual contact. Missing time, face-to-face contact with ETs, onboard encounters -- these kinds of cases provide deep insights into what it's like to have an extraterrestrial experience. 
 
 This video presents five extraordinary cases of UFO contact. Each case is different and shows just how truly strange, bizarre and enlightening it can be to have a close-up encounter with beings from other worlds.
@@ -6492,9 +6737,10 @@ over New York," "UFOs over New Mexico," "UFOs over Nevada," "UFOs over Arizona,"
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/vCNyvu9b5E8" target="_blank" rel="noopener noreferrer">EPISODE #119. 
 FIFTY UFO PHOTOGRAPHS FROM CALIFORNIA</a>.</h3>
-<h5>LINK: https://youtu.be/vCNyvu9b5E8</h5>                                                             <h5>July 22, 2022</h5>
+<h5>LINK: https://youtu.be/vCNyvu9b5E8</h5> <h5>July 22, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>9,504 views  Jul 22, 2022</h6>
+
 According to the National UFO Reporting Center (NUFORC,) California has more UFO 
 sightings than any other state in the United States. So it should come as no surprise 
 that there are many cases involving UFO photographs. In fact, there are hundreds of 
@@ -6520,9 +6766,10 @@ Encounters in the Golden State." Now available!
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/pmX0alL6I8k" target="_blank" rel="noopener noreferrer">EPISODE #118. 
 THE BONY CRAB MONSTER: A TRUE STORY</a>.</h3>
-<h5>LINK: https://youtu.be/pmX0alL6I8k</h5>                                                             <h5>July 8, 2022</h5>
+<h5>LINK: https://youtu.be/pmX0alL6I8k</h5> <h5>July 8, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,555 views  Jul 15, 2022</h6>
+
 It was a Sunday evening in 1966 in Cicero, Illinois. Thirteen-year-old Laura Caigoy and 
 her best friend Ruthie's went outside and waited in the family station wagon, talking and 
 laughing. Laura's mother was coming to pick her up and take Laura to her home.
@@ -6609,9 +6856,10 @@ Link to book: https://www.amazon.com/dp/1567182208/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/d8hf1j-kTzA" target="_blank" rel="noopener noreferrer">EPISODE #117. 
 INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACTEE PART TWO: THE PHOTOGRAPHIC EVIDENCE</a>.</h3>
-<h5>LINK: https://youtu.be/d8hf1j-kTzA</h5>                                                             <h5>July 8, 2022</h5>
+<h5>LINK: https://youtu.be/d8hf1j-kTzA</h5> <h5>July 8, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>14,355 views  Jul 8, 2022</h6>
+
 In May of 2022, after decades of remaining silent, Dolly Safran went public with her experiences as a lifelong fully conscious UFO contactee. As a very young child, Dolly had several encounters involving missing time. Then, in 1973, at age 14, she was taken onboard a craft from her home in the Florida Everglades, and was able to remember the entire event without the aid of hypnosis. Since then, she has had more than a thousand fully conscious onboard UFO encounters. She has been taken onboard large motherships, seen a wide variety of extraterrestrials, traveled throughout the solar system and even to other planets. Her story is one of the most extensive cases of UFO contact on record.
 
 For many years, Dolly had tried to obtain photographs and films of the UFOs, but like most contactees, she discovered it was no easy task. In fact, it's very rare that contactees are able to obtain good photographic evidence. But when Dolly decided to go public with her experiences, she asked the ETs if they would allow themselves to be filmed. To her delight, the ETs agreed!
@@ -6630,9 +6878,10 @@ LINK TO DOLLY'S YOUTUBE CHANNEL:    / @dollysafran9107
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_hz73wAeUKg" target="_blank" rel="noopener noreferrer">EPISODE #116. 
 UFO DISPLAYS: SEVEN STRANGE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/_hz73wAeUKg</h5>                                                             <h5>July 1, 2022</h5>
+<h5>LINK: https://youtu.be/_hz73wAeUKg</h5> <h5>July 1, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>25,169 views  Jul 1, 2022</h6>
+
 According to several polls, the majority of people (at least in the USA) believe in the reality of UFOs. Yet, the UFOs themselves remain somewhat evasive. In other words, you can't just go outside and see a UFO anytime you want. And yet, sometimes you can!
 
 There is a type of UFO behavior that investigators call "displays." In these cases, UFOs will brazenly appear over witnesses and put on a show, darting around and dancing across the sky as though they want to be seen. This type of activity is clearly a publicity campaign, involving what appears to be an agenda to announce their presence and convince people that UFOs are real, and we are not alone.
@@ -6661,9 +6910,10 @@ LINK TO BOOK: https://www.amazon.com/dp/1560722703/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/JCF9YiOER58" target="_blank" rel="noopener noreferrer">EPISODE #115. 
 COASTAL CALIFORNIA UFO CONTACT CLUSTER</a>.</h3>
-<h5>LINK: https://youtu.be/JCF9YiOER58</h5>                                                             <h5>June 24, 2022</h5>
+<h5>LINK: https://youtu.be/JCF9YiOER58</h5> <h5>June 24, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>5,915 views  Jun 24, 2022</h6>
+
 Each UFO encounter provides another piece of the puzzle and offers new insights into the nature of the UFO phenomenon. This video presents five new and original cases, each of which occurred within a small radius of each other. Each case in this UFO contact cluster contains strange and profound elements which illustrate certain aspects of UFO behavior.
 
 --December 1968, Paul Allione steps outside his home in Palos Verdes, California and observes an unusual string of lights hovering at low elevation over the Santa Catalina Channel. He grabs his walkie-talkie and attempts to make contact. To his amazement, he overhears a ship's communication talking about the sighting as it is occurring. He soon learns that he is not the only witness to this sighting, and in fact, hundreds of people are seeing the same thing.
@@ -6685,9 +6935,10 @@ https://www.amazon.com/dp/1984340700/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/FvBcPkR4u3Y" target="_blank" rel="noopener noreferrer">EPISODE #114. 
 NEW MEXICO UFO CRASH/RETRIEVALS</a>.</h3>
-<h5>LINK: https://youtu.be/FvBcPkR4u3Y</h5>                                                             <h5>June 17, 2022</h5>
+<h5>LINK: https://youtu.be/FvBcPkR4u3Y</h5> <h5>June 17, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>9,202 views  Jun 17, 2022</h6>
+
 It's not just Roswell!
 
 There are many kinds of UFO encounters: sightings, landings, face-to-face contact, onboard UFO encounters and more. But perhaps the ultimate type of UFO encounter is a UFO crash-retrieval incident. In these incredible cases, extraterrestrial craft and ET bodies are allegedly retrieved by military forces and secreted away in various military bases across the United States and the world.
@@ -6721,9 +6972,10 @@ https://www.amazon.com/dp/0764339060/...
 <h3><a href="https://youtu.be/XnEVR9x3oaY" target="_blank" rel="noopener noreferrer">EPISODE #113. 
 INTERVIEW WITH A FULLY CONSCIOUS UFO CONTACT PART ONE: 
 THE AWAKENING</a>.</h3>
-<h5>LINK: https://youtu.be/XnEVR9x3oaY</h5>                                                             <h5>June 3, 2022</h5>
+<h5>LINK: https://youtu.be/XnEVR9x3oaY</h5> <h5>June 3, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>14,305 views  Jun 3, 2022</h6>
+
 Late one evening in January of 1973, fourteen-year-old Dolly Safran (who lived near the Everglades in Florida) looked outside her window to observe more than fifty star-like objects swarming overhead. As they began to dart off in different directions, one of these objects dropped down and hovered at treetop level behind her house.
 
 The object now revealed itself to be a solid metallic craft, with portholes. And through the portholes, Dolly was shocked to see two short, gray-skinned figures with large dark eyes and huge black heads. Aliens, she realized, and they were looking right at her! She turned to dive under her bed. At that moment, her room exploded in brilliant blue light.
@@ -6756,9 +7008,10 @@ LINK TO BOOK: https://www.amazon.com/dp/B09VF3J8NR/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/bsFEzkLEUNA" target="_blank" rel="noopener noreferrer">EPISODE #112. 
 WHEN YOU WISH UPON A UFO (AND OTHER TOPANGA CANYON ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/bsFEzkLEUNA</h5>                                                             <h5>May 27, 2022</h5>  
+<h5>LINK: https://youtu.be/bsFEzkLEUNA</h5> <h5>May 27, 2022</h5>  
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>8,502 views  May 27, 2022</h6>
+
 Located west of Los Angeles, California, nestled in the Santa Monica Mountains, the small community of Topanga Canyon has long been known as a UFO hotspot. In fact, on June 14, 1992, numerous people called the local police station and newspaper office reporting UFOs. And for the next two years, a wave of encounters inundated the area. Sightings, landings, UFO-car chases, bedroom visitations, abductions and more occurred at an unprecedented rate. This became known as the Topanga Canyon UFO wave.
 
 But this wave was not an isolated event. Encounters occurred before this wave, and they continued to occur after it. This video presents a selection of ten of some of the more interesting and unique UFO encounters in this very active area. They show how strange and unusual the UFO phenomenon can be, and provide some profound insights into how UFOs behave and interact with people on Earth.
@@ -6783,9 +7036,10 @@ LINK TO BOOK: https://www.amazon.com/dp/1567182216/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/6loDKcfLbrg" target="_blank" rel="noopener noreferrer">EPISODE #111. 
 30 UFO LANDING TRACE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/6loDKcfLbrg</h5>                                                             <h5>May 20, 2022</h5>
+<h5>LINK: https://youtu.be/6loDKcfLbrg</h5> <h5>May 20, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>14,119 views  May 20, 2022</h6>
+
 There are many different types of UFO encounters: sightings, landings, face-to-face contact, onboard UFO encounters, crash/retrievals and more. UFO skeptics often say that these cases rely solely on eyewitness testimony with no supporting hard physical evidence. But this is simply not true.
 
 Most sightings have multiple eyewitness testimony. Some are supported by lie-detector tests, radar-returns, photographs and films. Many encounters display a wide variety of evidence such as electromagnetic effects, animal reactions, physiological effects (injuries and healings,) angel hair, implants (which appear on x-rays and MRIs, and have in some cases been removed and subjected to scientific study) and more. There is a lot more evidence for UFOs than most people realize.
@@ -6812,9 +7066,10 @@ LINK TO SARAJEVO UFO FILM:    • Real UFO in Sarajevo Bosnia (8.10.2005)
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/RR_6LCFdxlw" target="_blank" rel="noopener noreferrer">EPISODE #110. 
 BOATERS BEWARE! UFOS ARE TARGETING BOATERS!</a></h3>
-<h5>LINK: https://youtu.be/RR_6LCFdxlw</h5>                                                             <h5>May 13, 2022</h5>
+<h5>LINK: https://youtu.be/RR_6LCFdxlw</h5> <h5>May 13, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,852 views  May 13, 2022</h6>
+
 UFOs are not only seen in the skies above us. They are also seen in our oceans. Researchers call them, "USOs" or unidentified submersible objects. And there are a lot of them!
 
 USOs are seen all over the world, but one of the most active areas on our planet is off the coast of Southern California, specifically, the Santa Catalina and San Pedro Channel. This body of water has produced more than 150 documented cases of UFOs and USOs. With an average depth of about 3000 feet, and some areas one mile deep, there are plenty of places for USOs to hide.
@@ -6845,9 +7100,10 @@ https://www.amazon.com/dp/1984340700/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/d0CBPEi7jEA" target="_blank" rel="noopener noreferrer">EPISODE #109. 
 DUDLEY DELANEY’S ALIEN ENCOUNTER</a>.</h3>
-<h5>LINK: https://youtu.be/d0CBPEi7jEA</h5>                                                             <h5>May 6, 2022</h5>
+<h5>LINK: https://youtu.be/d0CBPEi7jEA</h5> <h5>May 6, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,619 views  May 6, 2022</h6>
+
 In the late 1940s, young teenager, Dudley Delany was listening to the popular radio host Frank Edwards talk about UFOs being seen in the skies across the world. Dudley was amazed and entranced. Extraterrestrials were visiting our world? The idea seemed fantastic, and yet there were so many reports. So began Dudley's lifelong fascination with the subject.
 
 Dudley now believed in UFOs, but he certainly didn't think he was personally involved. He grew up and became very interested in medicine. He went to school and became first a registered nurse, then a licensed chiropractor, and also a licensed massage therapist. So began Dr. Delany's lifelong mission to help and heal humanity.
@@ -6877,9 +7133,10 @@ https://www.amazon.com/dp/B0949H5Y8G/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/MHHPHeYie3Q" target="_blank" rel="noopener noreferrer">EPISODE #108. 
 ALIEN BOOKS</a>.</h3>
-<h5>LINK: https://youtu.be/MHHPHeYie3Q</h5>                                                             <h5>April 29, 2022</h5>
+<h5>LINK: https://youtu.be/MHHPHeYie3Q</h5> <h5>April 29, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>26,381 views  Apr 29, 2022</h6>
+
 It may sound strange and unusual, but there are now several documented cases on record in which people have met ETs, been taken onboard an extraterrestrial craft and shown an alien book. It doesn't happen often, but there are more cases than you might think.
 
 One very well-known case is Betty Hill, who was taken onboard a UFO with her husband, Barney in 1961 in the White Mountains of New Hampshire. While on the craft, Betty was given a large book, filled with alien symbols in long narrow columns.
@@ -6906,9 +7163,10 @@ https://www.amazon.com/dp/B09VF3J8NR/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Nrdvn-jUgWU" target="_blank" rel="noopener noreferrer">EPISODE #107. 
 A GRAY ALIEN NAMED SEN</a>.</h3>
-<h5>LINK: https://youtu.be/Nrdvn-jUgWU</h5>                                                             <h5>April 22, 2022</h5>
+<h5>LINK: https://youtu.be/Nrdvn-jUgWU</h5> <h5>April 22, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>29,468 views  Apr 22, 2022</h6>
+
 This is the story of Julia (pseudonym) and her encounters with a gray alien named Sen. At age 19, Julia left her family and home in Prunedale, California. Her childhood had been difficult, filled with unexplained events. She had tried to get help from her parents, but they were strict and didn't understand. So Julia left everything behind and decided to get as far away from her home as she could.
 
 She ended up settling on the east coast of the United States, where she began to rebuild her life. She found a job, a place to live. She started her own small business, made friends, and met the man who would one day become her husband. Finally secure, she began to examine her childhood, trying to figure out the source of her trauma. She remembered terrifying events during which her room would fill with light and shadowy figures would approach her. She came upon the subject of aliens and UFOs. That's probably what happened she realized. It was aliens. But the whole idea terrified her and she refused to think about it.
@@ -6939,9 +7197,10 @@ This video tells the story of Julia's encounters, and what she learned from Sen 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/UKieIL7oqME" target="_blank" rel="noopener noreferrer">EPISODE #106. 
 STOP! UFO! DON’T SHOOT!</a></h3>
-<h5>LINK: https://youtu.be/UKieIL7oqME</h5>                                                             <h5>April 15, 2022</h5>
+<h5>LINK: https://youtu.be/UKieIL7oqME</h5> <h5>April 15, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>9,060 views  Apr 15, 2022</h6>
+
 It is sometimes human nature to shoot first and ask questions later. This concept is perfectly illustrated with UFO encounters. In fact, there are dozens of cases on record involving shoot-outs between humans and UFOs and aliens. 
 
 This video presents nearly two dozen cases in which people have shot at UFOs and extraterrestrials. Cases like these reach all the way back to the 1940s, the beginning of the Modern Age of UFOs, and continue up to the present day. Police officers, security guards, military personnel, hunters, ranchers and many others have all shot at UFOs. 
@@ -6956,9 +7215,10 @@ Audio tracks for some languages were automatically generated. Learn more
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/5IntqwWRrD0" target="_blank" rel="noopener noreferrer">EPISODE #105. 
 THE CHATWORTH UFO EPIDEMIC</a>.</h3>
-<h5>LINK: https://youtu.be/5IntqwWRrD0</h5>                                                             <h5>April 8, 2022</h5>
+<h5>LINK: https://youtu.be/5IntqwWRrD0</h5> <h5>April 8, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,246 views  Apr 8, 2022</h6>
+
 On the evening of December 26, 1988, Teri Smith (a physical therapist) went to sleep with her boyfriend Brian in a bedroom in a large condominium complex located in Chatsworth, California. At some point in the middle of the night, Teri woke to a strange thrumming noise and the feeling that somebody was in the room. She found herself unable to move or speak. As she struggled against the strange force, she felt four prong-like "things" grabbing her ankle, causing pain. Terrified, she finally managed to open her eyes and was confronted by a baffling sight.
 
 At the foot of her bed was a large glowing misty-like entity. As she sat up, this entity quickly darted out through the closed window of the bedroom. Looking outside, Teri was shocked to see a huge UFO landed in the alley behind the condominium. The strange figure entered into the landed object, which promptly took off straight up. Only then did Teri's boyfriend Brian finally wake up. He hadn't seen anything. Neither had three other adults and a child who were also in the condo. But Teri knew what she had experienced. It wasn't a dream.
@@ -6975,9 +7235,10 @@ The full story of "The Chatsworth UFO Epidemic" is presented in my book, "One in
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/rPO374q5Z6g" target="_blank" rel="noopener noreferrer">EPISODE #104. 
 ALIENS TOOK OUR BABY</a>.</h3>
-<h5>LINK: https://youtu.be/rPO374q5Z6g</h5>                                                             <h5>April 1, 2022</h5>
+<h5>LINK: https://youtu.be/rPO374q5Z6g</h5> <h5>April 1, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,937 views  Apr 1, 2022</h6>
+
 In January 2006, a young couple, Charles and Maria (pseudonyms) moved into their new home on the east coast of Canada. They were quite busy with moving in, repairing the house, starting a new business and dealing with red-tape from the Canadian government about insurance and other issues, when they became pregnant. While they had been hoping to start a family, they wanted to settle in first. Still, it was good news and quite exciting for them both.
 
 They went to the doctor, verified the pregnancy and hired a midwife. They informed both their families of the happy news, and transformed one of the rooms in their home into a nursery for the baby.
@@ -7006,9 +7267,10 @@ If you would like to explore more about this case and others, check out my book,
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/T-vTvMowC5I" target="_blank" rel="noopener noreferrer">EPISODE #103. 
 THE MUDDY MAN</a>.</h3>
-<h5>LINK: https://youtu.be/T-vTvMowC5I</h5>                                                             <h5>March 25, 2022</h5>
+<h5>LINK: https://youtu.be/T-vTvMowC5I</h5> <h5>March 25, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>8,224 views  Mar 25, 2022</h6>
+
 In 1963, the Sanz family moved into their new home in Arleta, California. The two daughters, Karen (age 6) and Susan (age 2) shared a room. One evening, Karen awoke to an incredible shock: a strange boogie-man-like figure emerged from the closet, floated across the room and went to her little sister's crib. She watched in fear as the short, big-eyed creature poked its hand through the bars of the crib. Fearing that Susan was going to be taken away, Karen tried to get up. Instead, she found herself falling asleep. That was the first visit from the muddy man. But it wasn't the last. 
 
 Soon the muddy man returned. A week or two later, Karen woke up, and watched again as this same creature appeared and went directly to Susan's crib. It looked at Karen, but once more remained by Susan's crib. Despite trying to stay awake, Karen fell asleep. When it happened a third time a week later, Karen told her parents. "You're just having a nightmare," they told her.
@@ -7041,9 +7303,10 @@ To learn more about this case, check out my book "One in Forty: The UFO Epidemic
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/zyM70NrqMtI" target="_blank" rel="noopener noreferrer">EPISODE #102. 
 THE ROBINSON FAMILY UFO SIEGE</a>.</h3>
-<h5>LINK: https://youtu.be/zyM70NrqMtI</h5>                                                             <h5>March 18, 2022</h5>
+<h5>LINK: https://youtu.be/zyM70NrqMtI</h5> <h5>March 18, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>63,604 views  Mar 18, 2022</h6>
+
 In 1975, the Robinson Family (pseudonym) left their home in the San Fernando Valley in southern California to spend the weekend in a cabin located in Cedar Pines, in the remote wilderness of the San Bernardino National Forest. Little did they know, this weekend vacation would mark the beginning of a series of UFO encounters that would involve their entire family. 
 
 That evening, the mother, Diane Robinson, looked out the window of the cabin and saw a large round object covered with white lights, hovering and darting around before quickly zipping off. Meanwhile, in the lower cabin, her two young daughters (Jenny and Kelly) and their cousin, also observed the object. All the witnesses were deeply impressed that they had seen a genuine UFO. But it was just a simple sighting, and they thought that would be the end of it. But it was just the beginning.
@@ -7072,9 +7335,10 @@ This amazing case was first presented in my book, "One in Forty: The UFO Epidemi
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/OK6ld-DOp2Q" target="_blank" rel="noopener noreferrer">EPISODE #101. 
 GONE TO LIVE WITH THE ALIENS</a>.</h3>
-<h5>LINK: https://youtu.be/OK6ld-DOp2Q</h5>                                                             <h5>March 11, 2022</h5>
+<h5>LINK: https://youtu.be/OK6ld-DOp2Q</h5> <h5>March 11, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>10,174 views  Mar 11, 2022</h6>
+
 If you had the opportunity to go live with the aliens, would you accept the invitation? Before you answer, consider what happened to a young man named Paul.
 
 In 1978, a group of a half-dozen young men went to a remote cabin in the deserts of Palm Springs, California to enjoy a weekend getaway from the city. During their stay, one of the men, Paul, (age 21) decided to take a late night walk alone through the wilderness. Hours passed and back at the cabin, Paul's friends became worried. Had Paul become lost? Had he hurt himself. They were just getting ready to organize a search party and go look for him when Paul returned to the cabin with an incredible story.
@@ -7091,9 +7355,10 @@ Paul's complete story is told in my book, "Onboard UFO Encounters." Now availabl
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/oreyxXnKeF8" target="_blank" rel="noopener noreferrer">EPISODE #100. 
 AN ALIEN IMPLANT</a>.</h3>
-<h5>LINK: https://youtu.be/oreyxXnKeF8</h5>                                                             <h5>March 4, 2022</h5>
+<h5>LINK: https://youtu.be/oreyxXnKeF8</h5> <h5>March 4, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>7,001 views  Mar 4, 2022</h6>
+
 In 2012, Nancy (pseudonym), a single parent from a small town in Indiana, took her 14-year-old son, Anthony, (pseudonym) to the dentist for his annual cleaning, check-up and dental x-rays. Unknown to her, the x-rays showed the presence of a strange unknown object in her son's jaw. They went to the dentist each year, but it wasn't until three years later, in 2015, that they were scheduled for another series of x-rays. On this occasion, the dentist revealed that the x-rays indicated the presence of a metallic FB (foreign body) in her son's jaw, beneath his lower left molar. There was no evidence of any entry wound, and the tooth was healthy, pain-free, and asymptomatic. The dentists were utterly baffled and unable to explain the presence of this mysterious object.
 
 So began Nancy and Anthony's search for answers. The problem was, there were no explanations, except for one. And the explanation was so outlandish that Nancy wasn't sure if she could accept it. Everywhere she looked, the words "alien implant" kept appearing. When Nancy questioned her son about it, he admitted that he had, in fact, had a close encounter with a UFO. He was also having dreams about aliens.
@@ -7120,9 +7385,10 @@ This video presents the true story of Nancy's and Anthony's encounters with alie
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Ze_So4bNDKI" target="_blank" rel="noopener noreferrer">EPISODE #099. 
 THE CAT PEOPLE: A TRUE STORY OF UFO CONTACT</a>.</h3>
-<h5>LINK: https://youtu.be/Ze_So4bNDKI</h5>                                                             <h5>February 25, 2022</h5>
+<h5>LINK: https://youtu.be/Ze_So4bNDKI</h5> <h5>February 25, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>15,122 views  Feb 25, 2022</h6>
+
 In 1956, ten-year-old Robert Hambly (pseudonym) was enjoying an afternoon of ice-skating with a dozen other children in a local park in the small town of Havre, Montana. Looking up, they were amazed to see several silvery spheres scooting across the sky. Robert had never heard about UFOs and had no idea what he was seeing, but he knew it wasn't normal.
 
 Only a few days later, Robert's life changed forever. He awoke in the middle of the night to see a strange figure standing next to his bed. To Robert, the figure looked just like a three-foot-tall humanoid cat. It had a large, bald head, huge dark cat-like eyes, and a thin body. Unable to move, Robert was filled with fear. After a short time, the figure vanished. But for the next several years, Robert was visited over and over again.
@@ -7142,9 +7408,10 @@ https://www.amazon.com/dp/B0949H5Y8G/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/_f5eyfTnnUA" target="_blank" rel="noopener noreferrer">EPISODE #098. 
 A NINE-FOOT-TALL ET</a>.</h3>
-<h5>LINK: https://youtu.be/_f5eyfTnnUA</h5>                                                             <h5>February 18, 2022</h5>
+<h5>LINK: https://youtu.be/_f5eyfTnnUA</h5> <h5>February 18, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>18,198 views  Feb 18, 2022</h6>
+
 Born in 1960, Jill Wheeler (pseudonym) had her first UFO encounter when she was only five years old. A group of three-foot-tall figures dressed up like teddy bears entered her home and told her to follow them. A closer look revealed them to be typical grays. A short conversation ensued, at which point the ETs brought out a mysterious black box and set it up in the middle of her bedroom. A strange procedure followed, and after a little while, the grays left. That was Jill's first experience. But it wouldn't be her last.
 
 Around age nine, the grays returned, and began to teach Jill secret lessons. Unfortunately, Jill couldn't remember what they taught her. The grays returned a few days later and shared more information with her. And over the next three years, they visited more than 100 times, always with the purpose of teaching Jill secret knowledge. The visits were always pleasant and fun, and Jill looked forward to them. In fact, the ETs showed her how to call them down using a special signal. Then, after three years, the encounters abruptly ended. And as the grays had warned her, she forgot about them completely.
@@ -7177,9 +7444,10 @@ This video presents the lifelong UFO encounters of Jill Wheeler, and is surely o
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/z2-jEWSp20Y" target="_blank" rel="noopener noreferrer">EPISODE #097. 
 ET HEART HEALINGS</a>.</h3>
-<h5>LINK: https://youtu.be/z2-jEWSp20Y</h5>                                                             <h5>February 11, 2022
+<h5>LINK: https://youtu.be/z2-jEWSp20Y</h5> <h5>February 11, 2022
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,995 views  Feb 11, 2022</h6>
+
 According to The Center for Disease Control and The World Health Organization, the leading cause of death in the world is heart disease. In fact, about one in four deaths are attributable to some form of heart disease. Since physical healings are a consistent feature of UFO encounters, it should come as no surprise that there are many cases of people who have been healed of heart disease by extraterrestrials.
 
 This video presents more than a dozen cases of people healed of various heart conditions. The cases reach back decades and are still occurring today. Men, women and children all over the world are being visited and healed. 
@@ -7199,9 +7467,10 @@ https://www.amazon.com/dp/1792986203/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/wv32X7cRFZY" target="_blank" rel="noopener noreferrer">EPISODE #096. 
 UFOS OVER LOS ANGELES INTERNATIONAL AIRPORT</a>.</h3>
-<h5>LINK: https://youtu.be/wv32X7cRFZY</h5>                                                             <h5>February 4, 2022</h5>
+<h5>LINK: https://youtu.be/wv32X7cRFZY</h5> <h5>February 4, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,727 views  Feb 4, 2022</h6>
+
 Located in southern California, the Los Angeles International Airport (LAX) is the third busiest airport in the world. Millions of people from all across the planet travel to and from the airport each year. But it's not only people who are visiting LAX, aliens are too! UFOs are being seen here in large numbers!
 
 In fact, airports all over the world are being targeted by UFOs. For some reason, the ETs are attracted to airports. And more than any other airport, LAX is a UFO magnet. There are at least a dozen cases of UFOs hovering over Los Angeles International Airport. These cases began in the early 1950s and are continuing to the present day. These are not distant sightings of unexplained lights in the sky, but often structured metallic craft seen at low elevation for long periods of time.
@@ -7217,9 +7486,10 @@ https://www.amazon.com/dp/1984340700/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/W7_wZT-U5u4" target="_blank" rel="noopener noreferrer">EPISODE #095. 
 THE ANCIENT ONES: THE TRUE STORY OF THE UFO CONTACTS OF DON ANDERSON</a>.</h3>
-<h5>LINK: https://youtu.be/W7_wZT-U5u4</h5>                                                             <h5>January 28, 2022</h5>
+<h5>LINK: https://youtu.be/W7_wZT-U5u4</h5> <h5>January 28, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>35,129 views  Jan 28, 2022</h6>
+
 In 1984, 24-year-old Don Anderson of Spanish Fork, Utah woke up to see a gray alien inside his bedroom, taking away his 4-year-old son. Don leaped out of bed and informed the gray that if they were going to take his son, he wanted to join them. The gray agreed. Both Don and his son were taken onboard a craft where they were greeted by a female human-looking ET who gave them a tour of the craft. The ET informed Don of several events which would soon occur in his personal life. Don and his son were then returned.
 
 This event caused a radical shift in Don's life. He recognized the gray as a friend and teacher, and he remembered having encountered him before. In fact, several bizarre events which Don had ignored, denied or explained away now suddenly made sense, and he realized he had been experiencing UFO contact his entire life. He remembered being visited and taken as a young boy. He remembered seeing a UFO and the gray at age ten, then being taken onboard a craft and taught how to perform telekinesis and about the aliens' technology. A missing time event at age fourteen now revealed itself to be an extensive onboard UFO encounter during which he was again taken beyond Earth and taught by the ETs. He even remembered a "pre-life" encounter during which his gray alien guide showed Don's mother giving birth to him!
@@ -7240,9 +7510,10 @@ For those who would like to visit Don's website, "Path of Shaballa," here is the
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/H6PgoM0ZuN8" target="_blank" rel="noopener noreferrer">EPISODE #094. 
 TOP TWENTY UFO ENCOUNTERS IN ARIZONA: PART TWO</a>.</h3>
-<h5>LINK: https://youtu.be/H6PgoM0ZuN8</h5>                                                             <h5>January 21, 2022</h5>
+<h5>LINK: https://youtu.be/H6PgoM0ZuN8</h5> <h5>January 21, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>19,855 views  Jan 21, 2022</h6>
+
 The state of Arizona has played a powerful role in shaping our understanding of the UFO phenomenon. In fact, many of the world's most influential UFO cases have taken place here. Sightings, UFO waves, hot-spots, radar cases, UFO landings, photographic cases, face-to-face encounters, onboard UFO experiences, government cover-ups, UFO crash/retrievals -- Arizona has them all.
 
 Part One of this two-part episode presented a countdown of the top twenty cases from number twenty down to number eleven. Now, in Part Two, we countdown Arizona's top ten best cases. These are the cases that have defined the UFO phenomenon. Some of them have garnered national headlines, and others are not well-known but deserve to be placed in the annals of UFO history. The time for skepticism is over. We must now face the fact that UFOs are real. Extraterrestrials are visiting our planet, and these are the cases that prove it. 
@@ -7251,9 +7522,10 @@ These cases, and hundreds of others, are all featured in my book, "UFOs over Ari
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/xeG0ea9UB6A" target="_blank" rel="noopener noreferrer">EPISODE #093. 
 TOP TWENTY UFO ENCOUNTERS IN ARIZONA: PART ONE</a>.</h3>
-<h5>LINK: https://youtu.be/xeG0ea9UB6A</h5>                                                             <h5>January 14, 2022</h5>
+<h5>LINK: https://youtu.be/xeG0ea9UB6A</h5> <h5>January 14, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>8,941 views  Jan 14, 2022</h6>
+
 While UFO encounters occur all across the planet, some places are more active than others. One such location is the state of Arizona. In fact, the Grand Canyon state has produced some of the world's most famous and influential encounters.
 
 After reviewing thousands of UFO cases from Arizona, I have compiled a list of what I think are the top twenty best cases in the state. These cases include well-known influential cases, cases of high credibility, cases that contain unique or unusual elements, cases that provide important insights into the nature of the UFO phenomenon, and more! Sightings, landings, UFO waves, photographic cases, face-to-face encounters with humanoids, abductions, UFO crash/retrievals -- the state of Arizona has them all.
@@ -7264,9 +7536,10 @@ All of these cases and more appear in my book, "UFOs over Arizona: A True Histor
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/x71el01tzfU" target="_blank" rel="noopener noreferrer">EPISODE #092. 
 WHAT LISA REMEMBERS</a>.</h3>
-<h5>LINK: https://youtu.be/x71el01tzfU</h5>                                                             <h5>January 7, 2022</h5>
+<h5>LINK: https://youtu.be/x71el01tzfU</h5> <h5>January 7, 2022</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>15,518 views  Jan 7, 2022</h6>
+
 This is the true story of "Lisa," a daycare worker from northern California who has had lifelong contacts with extraterrestrials. Lisa is not her real name. Although she did go public with her encounters, she now prefers to remain private. Lisa's encounters began in 1972, around age 5, when she was approached by a tall praying mantis alien while in her backyard. Next thing she knew, an hour had passed, and she was being returned to her home. Following this, her encounters occurred regularly, almost always involving praying mantis-type ETs.
 
 Her next major encounter occurred at age 14, while scuba diving on Catalina Island in southern California. She was abducted into a UFO and underwent what appears to be the extraction of a hybrid-baby fetus from her womb. It was a terrifying experience and left her both physically sore and emotionally shaken.
@@ -7287,9 +7560,10 @@ If you'd like to explore more about Lisa's experiences, her account is told in m
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/D_tJRKKqOwg" target="_blank" rel="noopener noreferrer">EPISODE #091. 
 THE UFOS OF BILL AND ROSE</a>.</h3>
-<h5>LINK: https://youtu.be/D_tJRKKqOwg</h5>                                                             <h5>December 31, 2021</h5>
+<h5>LINK: https://youtu.be/D_tJRKKqOwg</h5> <h5>December 31, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>21,554 views  Dec 31, 2021</h6>
+
 On April 22, 1994, in the middle of the night, former Navy officer and postal worker Bill Shellhart was driving along a desert highway in New Mexico when he saw strange glowing lights ahead of him on the road. As the lights approached him, Bill realized he was seeing an actual flying saucer. It hovered above his car flashing down beams of light. Terrified, Bill raced away down the highway. Little did he know, his encounter had only just begun.
 
 Looking around him, he noticed that the landscape around him had mysteriously transformed from flat desert to mountains covered with trees. And looking ahead of him on the road, he was shocked to see a massive roiling cloud-like mass sweeping towards his car. The weird cloud engulfed him, and the next thing Bill knew, he was many miles from his original location. 
@@ -7308,9 +7582,10 @@ The full story of the UFOs of Bill and Rose (and several other accounts) is pres
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/cAQCVEWC3CM" target="_blank" rel="noopener noreferrer">EPISODE #090. 
 THREE HOURS ONBOARD A UFO</a>.</h3>
-<h5>LINK: https://youtu.be/cAQCVEWC3CM</h5>                                                             <h5>December 24, 2021</h5>
+<h5>LINK: https://youtu.be/cAQCVEWC3CM</h5> <h5>December 24, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>83,912 views  Dec 24, 2021</h6>
+
 On June 15, 1965, fourteen-year-old Ron C. of New Kensington, Pennsylvania spent the afternoon skateboarding with his two friends. At 7:00 p.m., they had just returned to Ron's home when a huge flying saucer appeared overhead. All three boys stared upward in amazement as a window opened in the craft, revealing the silhouettes of two human-looking figures gazing down at them. Other people around town had recently reported seeing UFOs, and now Ron realized that he and his friends were seeing an actual alien craft.
 
 Ron was overcome with awe, and he thought to himself, how wonderful it would be if he could take a ride onboard the UFO. He lifted his arms and began waving at the UFO people, mentally asking them if they would take him onboard.
@@ -7323,9 +7598,10 @@ Ron's account is one of fifteen cases presented in my book, "Onboard UFO Encount
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/TtH49ZMw4MM" target="_blank" rel="noopener noreferrer">EPISODE #089. 
 THE FLYING SAUCER AND THE ATLANTEAN BRACELET</a>.</h3>
-<h5>LINK: https://youtu.be/TtH49ZMw4MM</h5>                                                             <h5>December 18, 2021</h5>
+<h5>LINK: https://youtu.be/TtH49ZMw4MM</h5> <h5>December 18, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>12,423 views  Dec 18, 2021</h6>
+
 UFO encounters are known for their high strangeness. While cases of alien contact do have many similarities, each case is also unique, and sometimes contains bizarre and unusual details never reported before. One such case of very high strangeness comes from a gentleman by the name of James Santiago. 
 
 James Santiago was a popular and successful nightclub performer. In 1982, James and a friend, a world-famous artist named Cleo Jensen (pseudonym,) began a two-day-long road-trip through the Canadian Rockies. What James didn't know is that Cleo was a UFO contactee. Shortly after their trip began, Cleo revealed her secret and told James that she was being followed by UFOs, and that she had been having ET contact her whole life.
@@ -7340,9 +7616,10 @@ If you would like to explore more about the UFO contact of James Santiago, his s
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/m2St0QWmKsQ" target="_blank" rel="noopener noreferrer">EPISODE #088. 
 THEY WALK AMONG US</a>.</h3>
-<h5>LINK: https://youtu.be/m2St0QWmKsQ</h5>                                                             <h5>December 10, 2021</h5>
+<h5>LINK: https://youtu.be/m2St0QWmKsQ</h5> <h5>December 10, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>36,546 views  Dec 10, 2021</h6>
+
 UFOs are seen all across our planet. The same is true for extraterrestrials. In fact, ETs are sometimes seen in locations you'd least expect. It may sound incredible, but the truth is, people are seeing ETs in public, walking among the general population. And it's not just a few cases. There are a lot of them.
 
 Convenience stores, schools, bookshops, restaurants, theaters, churches, buses, subways, casinos, gas-stations, hotel lobbies, train stations and more -- no place is off limits. These reports include a wide variety of grays and strange humanoids. 
@@ -7355,9 +7632,10 @@ If you would like to explore more about these kinds of cases, check out my book,
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/5buidwwOc-4" target="_blank" rel="noopener noreferrer">EPISODE #087. 
 HOW TO FLY A UFO: AN INCREDIBLE ACCOUNT OF UFO CONTACT</a>.</h3>
-<h5>LINK: https://youtu.be/5buidwwOc-4</h5>                                                             <h5>December 3, 2021</h5>
+<h5>LINK: https://youtu.be/5buidwwOc-4</h5> <h5>December 3, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>9,699 views  Dec 3, 2021</h6>
+
 Many people all across the world are having lifelong contacts with UFOs and extraterrestrials. However, some cases are more extensive than others. One such case comes from a gentleman named Tim. Born in Louisiana, Tim has worked as a police officer, security guard, sports instructor and more. His UFO contacts began around age six with a dramatic UFO sighting in front of his home. Following that, he had a series of sightings, missing time events, face-to-face contact, and onboard UFO encounters.
 
 While Tim's contacts were initially shrouded in missing time (he once was missing for more than an entire day!) -- he began to have dreams and flashbacks of what had happened to him. Some of Tim's experiences are highly unusual and a few might be unique. On one occasion, Tim remembers waking up onboard a UFO, and wandering around until suddenly he came upon a gray alien. Consumed with fear, Tim reached back and punched the gray in the head. At that point, a crowd of ETs converged upon him. On another occasion, he was taken to the control room and was taught by the ETs how to fly the craft. He even has some insights into how the UFO engines actually work. One of his most unusual experiences is being taken to a "waiting room" with other abductees where they are able to levitate at will. These are a just a few of Tim's many encounters.
@@ -7368,9 +7646,10 @@ If you would like to explore more about Tim's case and many other cases of conta
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/wgRKTwJTEgw" target="_blank" rel="noopener noreferrer">EPISODE #086. 
 ALIENS-R-US</a>.</h3>
-<h5>LINK: https://youtu.be/wgRKTwJTEgw</h5>                                                             <h5>November 26, 2021</h5>
+<h5>LINK: https://youtu.be/wgRKTwJTEgw</h5> <h5>November 26, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,995 views  Nov 26, 2021</h6>
+
 UFOs and extraterrestrials have been around for thousands of years. The evidence shows that they have been with us since recorded history. Clearly, they are very interested in us.
 
 What is our relationship with the ETs, and particularly, the grays? Could they be our ancestors? Are they time travelers from the future? Have they intervened in humanity's evolution? Why do virtually all reports of aliens involve humanoids? And what about the fact that some ETs look just like us? There are many questions and mysteries surrounding UFOs and our relationship with them.
@@ -7381,9 +7660,10 @@ If you would like to explore more about these cases and our relationship to the 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/VVvIHPO_CGI" target="_blank" rel="noopener noreferrer">EPISODE #085. 
 STAR DAUGHTER: ONE MAN’S LIFELONG EXPERIENCES WITH EXTRATERRESTRIALS</a>.</h3>
-<h5>LINK: https://youtu.be/VVvIHPO_CGI</h5>                                                             <h5>November 19, 2021</h5>
+<h5>LINK: https://youtu.be/VVvIHPO_CGI</h5> <h5>November 19, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>14,541 views  Nov 19, 2021</h6>
+
 Born in New York, Tony Ditata had his first UFO sighting at age seventeen, while walking outside his home in Brentwood. A few years later, he experienced a dramatic face-to-face encounter with a gray alien on the local golf course. Before long, he started having memories of being taken onboard a craft. Soon more encounters followed: sightings, missing-time, onboard experiences and more face-to-face encounters. When Tony realized finally accepted that he was a UFO abductee, he sought regressive hypnosis and recalled an incredible experience where he and his girlfriend were taken onboard a massive disc which had landed alongside the road in upstate New York.
 
 Tony's encounters span the gamut of the UFO experience, with virtually every type of encounter, some of which are extremely bizarre. At one point, he was able to meet with who he believes is his hybrid-ET daughter, or as he calls her, his "Star Daughter." Along with the UFO encounters came various paranormal experiences, such as poltergeist encounters, past life memories and more.
@@ -7397,9 +7677,10 @@ https://www.amazon.com/dp/B085BDYTG5/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/TRc_TTToNUw" target="_blank" rel="noopener noreferrer">EPISODE #084. 
 THREE BEDROOM VISITATIONS BY GRAY ALIENS</a>.</h3>
-<h5>LINK: https://youtu.be/TRc_TTToNUw</h5>                                                             <h5>November 12, 2021</h5>
+<h5>LINK: https://youtu.be/TRc_TTToNUw</h5> <h5>November 12, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>8,098 views  Nov 12, 2021</h6>
+
 Where is the most likely place to see an extraterrestrial? As strange as it may sound, one of the most commonly reported encounters is known as a "bedroom visitation." In case after case, people report waking up at night to find gray aliens in their bedroom. For many witnesses, a bedroom visitation is the experience that wakes them up to the realization that they are having lifelong encounters with extraterrestrials.
 
 This video presents three different cases of people who experienced a bedroom visitation by gray aliens. Each is unique, not only in content, but in how the witnesses react.
@@ -7418,9 +7699,10 @@ https://www.amazon.com/dp/B0949H5Y8G/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/pCZXDkozowU" target="_blank" rel="noopener noreferrer">EPISODE #083. 
 TWO SCHOOLYARD UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/pCZXDkozowU</h5>                                                             <h5>November 5, 2021</h5>
+<h5>LINK: https://youtu.be/pCZXDkozowU</h5> <h5>November 5, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,409 views  Nov 5, 2021</h6>
+
 There are several very famous incidents involving Schoolyard UFO Encounters. The Ariel Elementary School Incident in Ruwa, Zimbabwe; the Westall High School Incident in Melbourne, Australia; the Broadhaven Elementary School Incident in Wales; the Crestview Elementary School incident in Opa-Locka, Florida; and the Hillsdale College incident, in Hillsdale, Michigan (to name a few!) But what many people don't know is that these cases are just the tip of the iceberg. There are well over 100 documented cases of UFOs hovering over schools. Not only hovering, but in about 1/3 of the cases, the UFOs land and/or humanoids are seen.
 
 This video presents two incredible cases, both which occurred in May of 1977, separated by four days and less than 100 miles. Unlike the above cases, these received zero publicity, and were very nearly lost to history. In this video, you will hear the  testimony from the fathers of two young schoolgirls who were firsthand witnesses to a Schoolyard UFO Encounter.
@@ -7433,9 +7715,10 @@ If you would like to explore more about the two above schoolyard UFO encounters,
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/cTB44-t6jIQ" target="_blank" rel="noopener noreferrer">EPISODE #082. 
 CAUGHT IN THE ACT! CASES OF OBSERVED UFO ABDUCTIONS</a>.</h3>
-<h5>LINK: https://youtu.be/cTB44-t6jIQ</h5>                                                             <h5>October 29, 2021</h5>
+<h5>LINK: https://youtu.be/cTB44-t6jIQ</h5> <h5>October 29, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>15,754 views  Oct 29, 2021</h6>
+
 Although UFO abduction cases number in the thousands (or in the millions according to some researchers!) there is an almost complete lack of cases observed by outside witnesses. UFOs are almost never caught in the act of abducting someone. How is this possible? How can so many abductions go completely unseen?
 
 This scarcity of outside witnesses has caused some researchers to speculate that UFO abductions may be mental events with no basis in physical reality. However most UFO investigators are well aware of why there are so few witnesses. The main reasons seem to be that outside observers are put in a trance, made to forget, or are diverted to other locations. In other words, the mysterious absence of outside witnesses is apparently no accident. 
@@ -7450,9 +7733,10 @@ The cases presented here will hopefully provide some insights and answers to the
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Xe35bvRJNsc" target="_blank" rel="noopener noreferrer">EPISODE #081. 
 THE MALIBU ANOMALY: IS THIS AN UNDERSEA UFO BASE?</a></h3>
-<h5>LINK: https://youtu.be/Xe35bvRJNsc</h5>                                                             <h5>October 22, 2021</h5>
+<h5>LINK: https://youtu.be/Xe35bvRJNsc</h5> <h5>October 22, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>13,643 views  Oct 22, 2021</h6>
+
 Deep underwater, a few miles off the coast of Malibu, California, lies a massive and mysterious stone structure. With a large flat top and what appears to be giant columns and an entrance into a dark tunnel, the "Malibu Anomaly" has become famous across the world. Some say that it's a natural geological formation, while others believe it's an undersea UFO base. Which is the truth?
 
 Natural or artificial, the structure is located in the center of a well-known UFO hotspot known as the Santa Catalina/San Pedro Channel. More than 150 documented cases of UFOs and "USOs" (unidentified submersible objects,) surround the area. Reports reach back more than 100 years and are still continuing to the present day. 
@@ -7466,9 +7750,10 @@ If you would like to take an even deeper look at the Malibu Anomaly, and the 150
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/VSDv_g-bOkk" target="_blank" rel="noopener noreferrer">EPISODE #080. 
 HEALED BY LIGHTNING: 30 TRUE CASES (AND THE LINK TO UFO HEALINGS.</a>.</h3>
-<h5>LINK: https://youtu.be/VSDv_g-bOkk</h5>                                                             <h5>October 15, 2021</h5>
+<h5>LINK: https://youtu.be/VSDv_g-bOkk</h5> <h5>October 15, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,641 views  Oct 15, 2021</h6>
+
 Your chances of being struck by lightning are very slim, only about 1 in 50,000. And yet, each year approximately 2000 people are killed by lightning strikes. Many more people suffer severe injuries. However, very rarely, something strange and miraculous happens: people are actually healed. As strange as this sounds, lightning has actually cured people of a wide variety of illnesses and diseases. 
 
 Being cured by lightning may sound like science fiction, but it's actually very well documented. Cases reach back all the way to the 1700s and are still occurring today. Men, women and children all across the planet have reported these healings, many of which are verified by doctors. People have been cured of paralysis, cancer, blindness, deafness, rheumatism,  typhoid fever, asthma, muscular dystrophy and more. There are even a few cases involving animals! What is it about lightning that is causing people to be healed?
@@ -7486,9 +7771,10 @@ https://www.amazon.com/dp/1792986203/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/-cCZvkwf_uQ" target="_blank" rel="noopener noreferrer">EPISODE #079. 
 GOVERNMENT UFO INSIDER</a>.</h3>
-<h5>LINK: https://youtu.be/-cCZvkwf_uQ</h5>                                                             <h5>October 8, 2021</h5>
+<h5>LINK: https://youtu.be/-cCZvkwf_uQ</h5> <h5>October 8, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>15,995 views  Oct 8, 2021</h6>
+
 Is there a government coverup of UFOs? The answer appears to be a resounding yes. Judging from the countless blacked-out documents released through the Freedom of Information Act from multiple intelligence agencies, the public is not being told the whole truth about the UFO phenomenon. This fact is further corroborated by the many government whistleblowers who have stepped forward and revealed their own participation in secret UFO projects.
 
 Now a new whistleblower and government UFO insider has decided it's time to tell his story. "Thomas," a retired Navy officer, is now ready to let the world know about his own experiences. Thomas held a secret clearance in the Navy, but after retiring, was contacted by a Pentagon officer and was invited into the inner sanctum of the secret government working with UFO crash/retrievals. Thomas learned shocking details that would leave him forever changed. This video tells the story of what Thomas learned about what is really going on within the United States government, and their interest in UFOs and aliens. Crashed UFOs being held at military bases. ETs working along with the military. An underground city at Area 51. The truth is finally coming out!
@@ -7499,9 +7785,10 @@ https://www.amazon.com/dp/B0949H5Y8G/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/W-z8WF_hs_4" target="_blank" rel="noopener noreferrer">EPISODE #078. 
 MAKING FRIENDS WITH EXTRATERRESTRIALS: THE TAYLOR FOSTER STORY</a>.</h3>
-<h5>LINK: https://youtu.be/W-z8WF_hs_4</h5>                                                             <h5>October 1, 2021</h5>
+<h5>LINK: https://youtu.be/W-z8WF_hs_4</h5> <h5>October 1, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>24,920 views  Oct 1, 2021</h6>
+
 A vast number of people have experienced direct contact with UFOs and extraterrestrials. However, for some people, this contact is more extensive than most. One of these individuals is a man by the name of Taylor Foster. A chiropractor from Missouri, Taylor has experienced UFO encounters for his entire life. His first dramatic encounter occurred at age 11 when a UFO hovered over him, sent down a beam of light and caused missing time. In the days that followed, Taylor began to remember what had happened during this period of amnesia. He met beautiful human-looking aliens who held a long philosophical conversation with him.
 
 Following this incredible event, Taylor's life changed dramatically. His intelligence and awareness increased profoundly, and his UFO encounters began to occur at a fast and furious rate. He began having more missing time encounters and face-to-face meetings with gray-type ETs. His experiences continued, and he soon had literally hundreds of sightings and many much closer encounters.
@@ -7518,9 +7805,10 @@ https://www.amazon.com/dp/B01MR5O9YB/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/IZtwiyKvtT0" target="_blank" rel="noopener noreferrer">EPISODE #077. 
 ALIENS SYMBOLS ON THE SKIN</a>.</h3>
-<h5>LINK: https://youtu.be/IZtwiyKvtT0</h5>                                                             <h5>September 24, 2021</h5>
+<h5>LINK: https://youtu.be/IZtwiyKvtT0</h5> <h5>September 24, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>8,343 views  Sep 24, 2021</h6>
+
 When somebody has a close encounter and are taken onboard a UFO, it is not unusual for them to return with strange markings on their body. Often this may take the form of a scoop mark, bruises, or puncture marks. Much more rare are weird alien symbols. And yet, over and over again, people who meet extraterrestrials and have an onboard encounter are left with an unexplained alien symbol somewhere on their body. 
 
 These symbols can be simple, such as the shape of a triangle, or more complex, such as foreign-looking letters, hieroglyphic-like designs, or weird symbolic patterns of obviously intelligent design.
@@ -7536,9 +7824,10 @@ https://www.amazon.com/dp/B0949H5Y8G/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Q3YwvXMq6XM" target="_blank" rel="noopener noreferrer">EPISODE #076. 
 THREE VERY CLOSE ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/Q3YwvXMq6XM</h5>                                                             <h5>September 17, 2021</h5>
+<h5>LINK: https://youtu.be/Q3YwvXMq6XM</h5> <h5>September 17, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>14,620 views  Sep 17, 2021</h6>
+
 Most UFO encounters are simple sightings. Sometimes, however, UFOs get very close. In these cases, what starts out as a sighting transforms into face-to-face contact with the unknown. Accounts like these provide far more information than just a sighting.
 
 This video presents three cases of very close encounters with UFOs. When UFOs get this close, there is virtually no possibility of misidentification. 
@@ -7556,9 +7845,10 @@ https://www.amazon.com/dp/B0949H5Y8G/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/SW5_aFkbjak" target="_blank" rel="noopener noreferrer">EPISODE #075. 
 SEVENTY CELEBRITIES WHO HAVE SEEN UFOS</a>.</h3>
-<h5>LINK: https://youtu.be/SW5_aFkbjak</h5>                                                             <h5>September 11, 2021</h5>
+<h5>LINK: https://youtu.be/SW5_aFkbjak</h5> <h5>September 11, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>9,171 views  Sep 11, 2021</h6>
+
 People from all walks of life have UFO encounters, and that includes celebrities. In fact, more and more famous people are now stepping forward to reveal their own sightings, or in some cases, actual face-to-face contact with extraterrestrials. Actors, singers, sports stars -- a huge number of superstars have had dramatic encounters with UFOs and aliens. 
 
 This video presents more than 70 celebrity UFO encounters. Sightings, landings, UFO photographs, face-to-face meetings and even onboard UFO encounters -- they're all here.  Many of these stars have faced intense ridicule and skepticism, but they are sticking to their stories. They not only believe in UFOs, they know!
@@ -7572,9 +7862,10 @@ This video is dedicated to the late Timothy Green Beckley, author of "UFOs Among
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/FL7c8th6uGE" target="_blank" rel="noopener noreferrer">EPISODE #074. 
 THREE CASES OF MISSING TIME</a>.</h3>
-<h5>LINK: https://youtu.be/FL7c8th6uGE</h5>                                                             <h5>September 4, 2021</h5>
+<h5>LINK: https://youtu.be/FL7c8th6uGE</h5> <h5>September 4, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,987 views  Sep 4, 2021</h6>
+
 Millions of people across our planet have seen UFOs. Some people see UFOs and also experience missing time. When a witness experiences missing time, this is a very strong indication of a possible onboard UFO encounter. In case after case, people who have a close-up sighting experience a period of amnesia, and are unable to recall what happened during the missing time.
 
 Missing time used to be thought of as very rare, but now investigators believe it might be fairly common, involving perhaps as many as one in fifty people. If true, this would mean that millions of people have been taken onboard UFOs.
@@ -7593,9 +7884,10 @@ This video is a glimpse into the experience of missing time and the secret life 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/OsK117qRGiw" target="_blank" rel="noopener noreferrer">EPISODE #073. 
 THE SMELL OF UFOS</a>.</h3>
-<h5>LINK: https://youtu.be/OsK117qRGiw</h5>                                                             <h5>August 27, 2021</h5>
+<h5>LINK: https://youtu.be/OsK117qRGiw</h5> <h5>August 27, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>12,011 views  Aug 27, 2021</h6>
+
 Nearly every aspect of UFOs and extraterrestrials has been studied in detail. Investigators have researched cases involving landing traces, radar-returns, animal reactions, medical effects, electromagnetic effects, UFO propulsion, ...the list goes on and on! One aspect of Ufology that has been largely overlooked, however, is: the smell of UFOs!
 
 The sense of smell plays a powerful role in human perception, and is closely connected to memory. And with amnesia exhibiting itself in so many UFO encounters, the importance of smell in connection to aliens and UFOs becomes even more profound.
@@ -7611,9 +7903,10 @@ https://www.amazon.com/dp/153280458X/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/IJ6MXBkjsac" target="_blank" rel="noopener noreferrer">EPISODE #072. 
 THE NORTHRIDGE EARTHQUAKE UFO ENCOUNTER</a>.</h3>
-<h5>LINK: https://youtu.be/IJ6MXBkjsac</h5>                                                             <h5>August 21, 2021</h5>
+<h5>LINK: https://youtu.be/IJ6MXBkjsac</h5> <h5>August 21, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>5,261 views  Aug 21, 2021</h6>
+
 On the morning of January 17, 1994, a massive 6.8 earthquake struck the city of Northridge, California. It caused millions of dollars worth of damage, destroyed hundreds of structures, and 57 people lost their lives. What many people don't know about is the UFO connection.
 
 On the night before this encounter, several people in the surrounding area had incredible UFO encounters. One of the witnesses, Marcellina X., was a resident of nearby Topanga Canyon. In the hours preceding the Northridge Quake, Marcellina experienced a series of precognitive events, and along with her boyfriend (and others) saw numerous UFOs. This led to a profound spiritual transformation and two weeks later, a face-to-face encounter with gray extraterrestrials. The ETs had a personal message for her that caused huge changes in Marcellina's outlook and worldview. Her life would never be the same. 
@@ -7626,9 +7919,10 @@ https://www.amazon.com/dp/1567182216/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/QbRF7XRfAK0" target="_blank" rel="noopener noreferrer">EPISODE #071. 
 UFO INVESTIGATOR’S DISEASE</a>.</h3>
-<h5>LINK: https://youtu.be/QbRF7XRfAK0</h5>                                                             <h5>August 15, 2021</h5>
+<h5>LINK: https://youtu.be/QbRF7XRfAK0</h5> <h5>August 15, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>13,979 views  Aug 15, 2021</h6>
+
 It is well-known among UFO investigator's that there is a contagion factor with UFO encounters. If you associate closely with a UFO contactee, this greatly increases your own chance of having a UFO encounter.
 
 As a general rule, UFO researchers try to remain objective, which guards against distorting the evidence with a one's personal viewpoints about the phenomenon. However, by jumping into the middle of an active UFO case, UFO researchers run the considerable risk of  losing objectivity by becoming involved in the events as they happen. And sooner or later, this objectivity can be completely shattered when the UFO investigators become, in turn, investigated by UFOs.
@@ -7646,9 +7940,10 @@ This video presents twenty cases of "UFO Investigator's Disease." You just might
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/YNrFjcmSxh0" target="_blank" rel="noopener noreferrer">EPISODE #070. 
 TOP FIFTY UFO BOOKS</a>.</h3>
-<h5>LINK: https://youtu.be/YNrFjcmSxh0</h5>                                                             <h5>August 7, 2021</h5>
+<h5>LINK: https://youtu.be/YNrFjcmSxh0</h5> <h5>August 7, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,518 views  Aug 7, 2021</h6>
+
 Hundreds of books about UFOs and extraterrestrials are published each year. In fact, there are so many books, that it is nearly impossible for anyone to read them all. Many of these books are re-hashes of old material. Others are simply not very good. Many fantastic books get buried under an avalanche of mediocre books.
 
 Today, there are many thousands of UFO books, and yet only a small portion have made a truly valuable contribution to our understanding of UFOs and extraterrestrials. With so many books flooding the market, how then is someone able to differentiate between the good, the bad and the ugly? How can we choose which books to invest our precious time and money in?
@@ -7659,9 +7954,10 @@ These are the UFO books that are considered classics of ufology, books that have
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/9nKbuv1msAw" target="_blank" rel="noopener noreferrer">EPISODE #069. 
 TOP TWENTY UFO ENCOUNTERS IN NEW MEXICO PART TWO</a>.</h3>
-<h5>LINK: https://youtu.be/9nKbuv1msAw</h5>                                                             <h5>July 30, 2021</h5>
+<h5>LINK: https://youtu.be/9nKbuv1msAw</h5> <h5>July 30, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>18,521 views  Jul 30, 2021</h6>
+
 UFOs have visited virtually every location on this planet, but one of the most active areas in the world is the state of New Mexico. Some of the world's most famous and influential encounters have taken place here. These are cases that have helped shape our understanding of the UFO phenomenon.
 
 Part One of this video presents the best cases from number twenty down to number eleven. Now, in Part Two, we explore the top ten cases, moving from number ten all the way to number one! Sightings, landings, photographic cases, face-to-face meetings with extraterrestrials, onboard UFO encounters, UFO crashes -- they're all here. These top ten cases cover the entire gamut of the UFO phenomenon, and provide conclusive evidence for the reality of UFOs and extraterrestrials. These "best of the best" cases will change the way you feel about UFOs.
@@ -7672,9 +7968,10 @@ https://www.amazon.com/dp/0764339060/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/jUxgBkW5avM" target="_blank" rel="noopener noreferrer">EPISODE #068. 
 TOP TWENTY UFO ENCOUNTERS IN NEW MEXICO PART ONE</a>.</h3>
-<h5>LINK: https://youtu.be/jUxgBkW5avM</h5>                                                             <h5>July 24, 2021</h5>
+<h5>LINK: https://youtu.be/jUxgBkW5avM</h5> <h5>July 24, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>11,340 views  Jul 24, 2021</h6>
+
 UFOs are seen all across the world, and each area has their own unique history of UFO encounters. The state of New Mexico has been a hotbed of UFO activity for more than 100 years, and has produced some of the world's most influential and profound UFO events.
 
 This video (Part One of Two) begins a top twenty countdown of New Mexico's most famous, unique and important UFO encounters. Sightings, landings, photographic cases, face-to-face encounters, radar return cases, onboard UFO encounters: New Mexico has them all. These cases provide a fascinating glimpse into one of the world's most active areas of UFO activity. 
@@ -7685,9 +7982,10 @@ https://www.amazon.com/dp/0764339060/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/tz0ul-twNCQ" target="_blank" rel="noopener noreferrer">EPISODE #067. 
 THREE USO CASES WITH HUMANOIDS</a>.</h3>
-<h5>LINK: https://youtu.be/tz0ul-twNCQ</h5>                                                             <h5>July 17, 2021</h5>
+<h5>LINK: https://youtu.be/tz0ul-twNCQ</h5> <h5>July 17, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>7,081 views  Jul 17, 2021</h6>
+
 Compared to UFOs, reports of USOs (unidentified submersible objects) are relatively rare. Even more rare are reports of USOs with humanoids. Only a small handful of these kinds of cases exist. And yet, the stretch of water known as the Santa Catalina/San Pedro Channel, along the southern California coast, has produced several USO cases with humanoids.
 
 This video presents three such cases, all in close proximity to each other. The first case involves a UFO landing on a beach at Playa Del Rey, an encounter that has stunning new corroboration. The  second case involves a baffling USO encounter off the coast of Catalina Island, an incident which involves many strange aspects that have yet to be explained. The third (and perhaps most remarkable) case occurred at Lake Casitas (a human-made reservoir,) located a short ways inland on the northern end of the Santa Catalina channel. In this case, the witness actually managed to photograph the USO as it emerged from the lake. This entire area is extremely active and has produced more than 150 UFO/USO reports stretching back at least 100 years, and it is still going on today!
@@ -7699,9 +7997,10 @@ https://www.amazon.com/dp/1984340700/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/RdbArYvBWCI" target="_blank" rel="noopener noreferrer">EPISODE #066. 
 OUT OF BODY EXPLORING: MY OWN EXPERIENCES WITH ASTRAL PROJECTION</a>.</h3>
-<h5>LINK: https://youtu.be/RdbArYvBWCI</h5>                                                             <h5>July 11, 2021</h5>
+<h5>LINK: https://youtu.be/RdbArYvBWCI</h5> <h5>July 11, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>25,935 views  Jul 11, 2021</h6>
+
 In 1984, following the unexpected death of my mother from a heart-attack, I began having unusual experiences. First I saw her spirit appear to me as an apparition. Then I started having lucid dream-like encounters during which she would visit me in my bedroom. Then I started having out-of-body experiences.
 
 Astral projection experiences have been reported for thousands of years, but I had no idea that anyone could have them. After working hard to learn how to have out-of-body experiences, I began to leave my body, explore the physical world, fly and walk through walls and more. I soon began to travel to the Other Side and had a wide variety of incredible experiences such as: meeting my mother and taking a tour of the heavenly realms, meeting with spirit guides, learning about past lives, basking in "the Light," learning in the Akashic Library, rescuing lost souls, and so much more. 
@@ -7714,9 +8013,10 @@ For those who would like to explore more about astral travel and the wonderful e
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/izsJQ3-q8z0" target="_blank" rel="noopener noreferrer">EPISODE #065. 
 THREE ENCOUNTERS WITH STRANGE HUMANOIDS</a>.</h3>
-<h5>LINK: https://youtu.be/izsJQ3-q8z0</h5>                                                             <h5>July 5, 2021</h5>
+<h5>LINK: https://youtu.be/izsJQ3-q8z0</h5> <h5>July 5, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>10,933 views  Jul 5, 2021</h6>
+
 Among the most commonly reported extraterrestrials types are grays, human-looking ETs and praying mantis. Another category, however, might be termed "strange humanoids." These include aliens that are only rarely reported or are apparently completely unique. 
 
 This video presents three cases involving "strange humanoids." The first case involves a young child who was visited for a period of two weeks by strange blue-skinned dwarfs. The second involves a businessman who was confronted by three uniquely described, ten-foot-tall humanoids. The third case involves an artist/street-vendor who had a face-to-face encounter with a dark-eyed female figure who displayed her highly unusual appearance to the witness in very public place. In each of these cases, the ETs had a message that was specifically for the witnesses themselves.
@@ -7730,9 +8030,10 @@ https://www.amazon.com/dp/B0949H5Y8G/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/px6NUAlWuXM" target="_blank" rel="noopener noreferrer">EPISODE #064. 
 THREE ENCOUNTERS WITH PRAYING MANTIS ALIENS</a>.</h3>
-<h5>LINK: https://youtu.be/px6NUAlWuXM</h5>                                                             <h5>June 27, 2021</h5>
+<h5>LINK: https://youtu.be/px6NUAlWuXM</h5> <h5>June 27, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>36,652 views  Jun 27, 2021</h6>
+
 There are many different types of extraterrestrials: grays, human-looking ETs, reptilians, tall whites, little blue beings, hairy dwarves and strange humanoids of all kinds. One well-known species are called praying mantis (or mantids.) These are usually described as being anywhere from six to nine feet tall, but can be both shorter or taller. Witnesses say they have an insectoid appearance much like a praying mantis or even a grasshopper, with long stick-like limbs, thin torsos, and massive dark eyes.
 
 This video presents three separate cases, each involving a person who has had a face-to-face encounter with a praying mantis extraterrestrial. You will hear about a young married woman whose encounter was revealed during a hypnosis session. Another involving a college professor who had a missing time episode and then began having nightmares about being chased by a giant humanoid grasshopper. And a third case involving a teacher/daycare worker who encountered a praying mantis ET while out for her morning jog near her home.
@@ -7743,9 +8044,10 @@ If you would like to explore more about these cases and others, you may bee inte
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/KKdQECldrFQ" target="_blank" rel="noopener noreferrer">EPISODE #063. 
 MALMSTROM: A NEW WITNESS SPEAKS</a>.</h3>
-<h5>LINK: https://youtu.be/KKdQECldrFQ</h5>                                                             <h5>June 20, 2021</h5>
+<h5>LINK: https://youtu.be/KKdQECldrFQ</h5> <h5>June 20, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>5,747 views  Jun 20, 2021</h6>
+
 On March 16, 1967, an incredible event occurred at Malmstrom Air Force Base in Montana, USA. Multiple UFOs hovered at very low elevation over the nuclear missiles sites, and were viewed by many military officers at the base. Then, one by one, the nuclear Minuteman ICBM missiles mysteriously went offline. The entire base went on high alert. There was an immediate investigation and a cover-up of the event. Years later, in 1994, one of the witnesses, Captain Robert Salas went public and disclosed the event. After locating other witnesses, Salas published the book, FADED GIANT in 2005, and the encounter became established in UFO History.
 
 In 2015, retired army officer Mel Hansen was shocked to learn that the Malmstrom incident was being presented on television. He was a firsthand witness to the encounter, but had always kept his participation in the event a secret from everyone except a few family members. Now that it was being shown on TV, Mel decided that it was time for him to talk about what he saw on that amazing night.
@@ -7758,9 +8060,10 @@ https://www.amazon.com/dp/B0949H5Y8G/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/rcCQyxi0vew" target="_blank" rel="noopener noreferrer">EPISODE #062. 
 CONVERSATION WITH AN EXTRATERRESTRIAL WALK-IN</a>.</h3>
-<h5>LINK: https://youtu.be/rcCQyxi0vew</h5>                                                             <h5>June 4, 2021</h5>
+<h5>LINK: https://youtu.be/rcCQyxi0vew</h5> <h5>June 4, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>43,632 views  Jun 4, 2021</h6>
+
 How would you like to hear a long conversation with someone who comes from another planet? Actually, you can! This video presents the testimony of a woman who actually recalls traveling from another world to planet Earth for a very specific mission. At first "Wendy" (pseudonym) had no idea that she was not from Earth. But after a series of dramatic encounters with gray aliens, Wendy began to remember her past as an extraterrestrial. She now remembers actually living a life on a planet far away from Earth, and then traveling to this planet to help teach humanity and awaken them to a whole new paradigm.
 
 After years of keeping her experiences secret, Wendy has decided that now is the time to step forward and share her amazing story with the world. Why are the ETs here in such large numbers? What does the future hold for our planet. How can humanity move through the dramatic shift that is now taking place? Wendy answers all these questions and more. This is one of the most unusual cases of ET contact you have ever heard.
@@ -7770,9 +8073,10 @@ https://prestondennett.weebly.com/
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ebTY2NQVLgs" target="_blank" rel="noopener noreferrer">EPISODE #061. 
 UNIDENTIFIED SUBMERSIBLE OBJECTS: FIVE USO CASES WITH HIGH STRANGENESS</a>.</h3>
-<h5>LINK: https://youtu.be/ebTY2NQVLgs</h5>                                                             <h5>May 31, 2021</h5>
+<h5>LINK: https://youtu.be/ebTY2NQVLgs</h5> <h5>May 31, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,756 views  May 31, 2021</h6>
+
 Unidentified Submersible Objects! UFOs aren't only flying around in our skies. They are also swimming around in our oceans, in our lakes and other bodies of water, perhaps in large numbers. A UFO becomes a USO the instant it hits the water and disappears beneath the surface. 
 
 What are USOs doing in our oceans? How many of them are there? Where are they going and why are they down there? Until recently, there hasn't been very much research into USO activity. Now, however, there are hundreds of documented cases.
@@ -7798,9 +8102,10 @@ https://www.amazon.com/dp/B0949H5Y8G/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/z4otrkUXv9Y" target="_blank" rel="noopener noreferrer">EPISODE #060. 
 THE UFO INVASION OF EDWARDS AIR FORCE BASE</a>.</h3>
-<h5>LINK: https://youtu.be/z4otrkUXv9Y</h5>                                                             <h5>May 22, 2021</h5>
+<h5>LINK: https://youtu.be/z4otrkUXv9Y</h5> <h5>May 22, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>2,712 views  May 22, 2021</h6>
+
 Many Air Force Bases across the United States and the world have been visited by UFOs. But there is one specific Air Force base that may be at the top of the list: Edwards Air Force base. The shocking and astounding events that have occurred at Edwards Air Force base go way beyond mere UFO sightings. In fact, virtually the entire range of the UFO phenomenon is represented. There are sightings, landings, face-to-face meetings with ETs, UFO crashes, abductions, reverse engineering of UFO technology and more! 
 
 Events began as early as 1947 and are still continuing today. Way back in 1947, a two-days-long series of sightings put the base on high alert and changed the way the Air Force viewed and handled the UFO phenomenon. Following this, the base was visited regularly. For some reason, Edwards AFB  has become a magnet for the UFO phenomenon. Few other locations on Earth have experienced the magnitude and frequency of UFO encounters.
@@ -7817,9 +8122,10 @@ UFOs over California
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/l9GCdmq5Bmw" target="_blank" rel="noopener noreferrer">EPISODE #059. 
 CALIFORNIA LAKE MONSTERS AND SEA SERPENTS</a>.</h3>
-<h5>LINK: https://youtu.be/l9GCdmq5Bmw</h5>                                                             <h5>May 16, 2021</h5>
+<h5>LINK: https://youtu.be/l9GCdmq5Bmw</h5> <h5>May 16, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>8,572 views  May 16, 2021</h6>
+
 Do you believe that there are unknown creatures lurking in the depths of our lakes and oceans? The answer of course is, yes! Mainstream science discovers new species each year. And yet, some creatures still remain very  elusive.  Among these are lake monsters and sea serpents. Lakes and oceans across the United States and the world contain mysterious creatures that have yet to be identified by scientists. And the state of California is filled with them.
 
 California alone has several lakes which have produced many reports of strange lake monsters. And you may be surprised to hear that the California coast is one of the leading producers of sea serpent reports in the world. These reports have been occurring for more than 100 years and yet, nobody knows what they are!
@@ -7833,9 +8139,10 @@ https://www.amazon.com/dp/0764324012/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/LcclBQOYyPw" target="_blank" rel="noopener noreferrer">EPISODE #058. 
 CAN WE CONTACT UFOS WITH THE OUIJA BOARD?</a></h3>
-<h5>LINK: https://youtu.be/LcclBQOYyPw</h5>                                                             <h5>May 9, 2021</h5>
+<h5>LINK: https://youtu.be/LcclBQOYyPw</h5> <h5>May 9, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,408 views  May 9, 2021</h6>
+
 A Ouija Board is a tool normally used for contacting and communicating with spirits. However, there are now many cases on record in which people do not contact ghosts...instead they contact aliens. In fact, many people not only communicate with ETs using a Ouija Board, they have initiated encounters, actually calling down UFOs and summoning aliens.
 
 This video presents more than twenty firsthand cases involving the Ouija Board and UFO encounters. The connection is undeniable. In some cases witnesses were able to photograph UFOs and even the ETs themselves. Even stranger, some cases involve Bigfoot. UFOs are known for having high levels of strangeness. And these unique cases show just how strange the UFO phenomenon can be. 
@@ -7848,9 +8155,10 @@ https://www.amazon.com/dp/1719142742/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/NkB02cN-qEE" target="_blank" rel="noopener noreferrer">EPISODE #057. 
 GARY VERSUS THE GRAYS</a>.</h3>
-<h5>LINK: https://youtu.be/NkB02cN-qEE</h5>                                                             <h5>May 1, 2021</h5>
+<h5>LINK: https://youtu.be/NkB02cN-qEE</h5> <h5>May 1, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>14,393 views  May 1, 2021</h6>
+
 It is unknown how many people have been taken onboard UFOs, but it may be a lot. The problem is, many of these events are shrouded in missing time and amnesia. However, this is not always the case. Some people have fully conscious encounters. One of these people is a gentleman from England by the name of Gary. 
 
 Ever since he was a young boy, Gary began having dramatic UFO sightings and face-to-face encounters with gray aliens. It wasn't long before he was taken onboard their craft and subjected to a wide variety of bizarre experiences. While many people recall only being physically examined, Gary recalls many other incredible experiences, many of which have rarely been reported in the UFO literature, and some which might be totally unique. Few people have the extensive recall of their experiences like Gary. His case contains both harrowing events and encounters that are incredibly humorous. It is one of the most unusual cases on record.
@@ -7861,9 +8169,10 @@ https://www.amazon.com/dp/B085BDYTG5/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/dpQQ8AXYHm4" target="_blank" rel="noopener noreferrer">EPISODE #056. 
 TOP TWENTY CASES OF HUMAN LEVITATION PART TWO</a>.</h3>
-<h5>LINK: https://youtu.be/dpQQ8AXYHm4</h5>                                                             <h5>April 24, 2021</h5>
+<h5>LINK: https://youtu.be/dpQQ8AXYHm4</h5> <h5>April 24, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>7,882 views  Apr 24, 2021</h6>
+
 Humans can fly! In part one of this video, we explored ten outstanding cases of human levitation. In part two, we now explore the very best documented cases of people who have flown. These are not flying dreams or out of body experiences. These are cases in which people have physically levitated off the ground. Every single one of these top ten cases involves multiple outside witnesses (sometimes hundreds or even thousands) who viewed the levitations firsthand. In four of the cases, the levitations were actually photographed. Several of the levitators provided detailed descriptions of their own experience, including how they levitated, and what it feels like to rise up from the ground and fly. 
 
 These cases show that human levitation is not a matter of speculation; it is a proven and demonstrated fact. The evidence speaks for itself. As amazing and fantastic as it may seem, humans can actually fly up into the air without the aid of any mechanical device. Instead, levitation appears to be a natural human ability, one that manifests under very rare conditions. 
@@ -7877,9 +8186,10 @@ https://www.amazon.com/dp/0764325477/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/0M3fmxOAXDg" target="_blank" rel="noopener noreferrer">EPISODE #055. 
 TOP TWENTY CASES OF HUMAN LEVITATION PART ONE</a>.</h3>
-<h5>LINK: https://youtu.be/0M3fmxOAXDg</h5>                                                             <h5>April 18, 2021</h5>
+<h5>LINK: https://youtu.be/0M3fmxOAXDg</h5> <h5>April 18, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,654 views  Apr 18, 2021</h6>
+
 Can humans fly?
 
 As strange as it sounds, the answer is, yes! Humans do have the ability to levitate and fly through the air without the aid of any device. In fact, there are hundreds of accounts of human levitation on record. Cases reach back thousands of years and come from all across the world.
@@ -7896,9 +8206,10 @@ https://www.amazon.com/dp/0764325477/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/MtDA3NwG-iA" target="_blank" rel="noopener noreferrer">EPISODE #054. 
 BE CAREFUL WHAT YOU WISH FOR: THE PAT BROWN STORY</a>.</h3>
-<h5>LINK: https://youtu.be/MtDA3NwG-iA</h5>                                                             <h5>April 11, 2021</h5>
+<h5>LINK: https://youtu.be/MtDA3NwG-iA</h5> <h5>April 11, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>23,983 views  Apr 11, 2021</h6>
+
 Would you like to meet extraterrestrials and go onboard their craft? Are you sure?
 
 UFO encounters can be sometimes be traumatic, and they can sometimes be very friendly. Often they can be both scary and enlightening. Initially, many witnesses may find their experiences quite fearful. However, as they overcome their fear and face their encounters head-on, their experiences begin to transform into something much more spiritual and benevolent.
@@ -7913,9 +8224,10 @@ https://www.amazon.com/dp/1567182208/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ZwHprH7R_sg" target="_blank" rel="noopener noreferrer">EPISODE #053. 
 CONVERSATIONS WITH EXTRATERRESTRIALS</a>.</h3>
-<h5>LINK: https://youtu.be/ZwHprH7R_sg</h5>                                                             <h5>April 4, 2021</h5>
+<h5>LINK: https://youtu.be/ZwHprH7R_sg</h5> <h5>April 4, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>107,571 views  Apr 4, 2021</h6>
+
 What do aliens talk about?
 
 Often ETs seem to be very tight-lipped. The only words they speak are: "Don't be afraid. We won't hurt you. Come with us." This is especially true if the witness has a strong reaction of fear. But this is not always the case. In some accounts, people are able to hold long interactive conversations with aliens, during which they learn all about the ETs, who they are, where they come from, and their agenda on Earth.
@@ -7930,9 +8242,10 @@ https://www.amazon.com/dp/B085BDYTG5/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/-RlTQ9APYPQ" target="_blank" rel="noopener noreferrer">EPISODE #052. 
 TEN STRANGE UFO SIGHTINGS</a>.</h3>
-<h5>LINK: https://youtu.be/-RlTQ9APYPQ</h5>                                                             <h5>May 27, 2021</h5>
+<h5>LINK: https://youtu.be/-RlTQ9APYPQ</h5> <h5>May 27, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>11,379 views  Mar 27, 2021</h6>
+
 Have you ever seen a UFO? 
 
 A sighting is the most common type of UFO encounter. And each sighting has something important and profound to teach us about the nature and origins of the UFO phenomenon. Often, a close-up sighting brings deeper levels of contact that might not first seem apparent. If someone sees a UFO, the chances are good that the ETs are showing themselves intentionally. Sometimes, what might seem to be a simple sighting is in fact a much more extensive encounter.
@@ -7943,9 +8256,10 @@ A UFO sighting has the capacity to totally change a person's life, and alter for
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/MhL4RWQoo_A" target="_blank" rel="noopener noreferrer">EPISODE #051. 
 EIGHT TRUE CASES OF ANIMALS HEALED BY ALIENS</a>.</h3>
-<h5>LINK: https://youtu.be/MhL4RWQoo_A</h5>                                                             <h5>March 21, 2021</h5>
+<h5>LINK: https://youtu.be/MhL4RWQoo_A</h5> <h5>March 21, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>2,784 views  Mar 21, 2021</h6>
+
 UFO healings are now a recognized feature of extraterrestrial encounters. What many people don't know, however, is that there are also several cases on record of animals being healed. The most common category by far is dogs, but other are reports of other animal UFO cures too.
 
 This video presents eight cases of animals who have been healed as the result of a UFO encounter. These cases are important because they not only show a benevolent side to UFOs and aliens; they also show just how truly advanced the ETs are when it comes to healing.
@@ -7958,9 +8272,10 @@ LINK: https://www.amazon.com/dp/1792986203/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/LKzbMsGAq6g" target="_blank" rel="noopener noreferrer">EPISODE #050. 
 UFOS AT THE DRIVE-IN</a>.</h3>
-<h5>LINK: https://youtu.be/LKzbMsGAq6g</h5>                                                             <h5>March 14, 2021</h5>
+<h5>LINK: https://youtu.be/LKzbMsGAq6g</h5> <h5>March 14, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>11,168 views  Mar 14, 2021</h6>
+
 Just imagine: you’re watching your favorite movie at the local drive-in theater when suddenly you see a strange flying object swoop down from above and hover right over the movie screen. The object is metallic, saucer-shaped, with portholes and colored lights, and is totally silent. It’s a UFO! Cars start honking and flashing their lights. People exit their cars, pointing and screaming. Some drive away in terror. Then the UFO starts to move around over the theater putting on a show that’s far more interesting than the movie itself! 
 
 It may sound like science fiction, except it’s true! This video presents dozens of firsthand cases in which UFOs have targeted drive-in theaters. In these cases, UFOs hover at very low levels for long periods of time, and are observed by hundreds of witnesses. Often there are strange electro-magnetic effects. Sometimes humanoids are seen. 
@@ -7987,9 +8302,10 @@ If you would like to learn more about these incredible cases, please check out m
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/fgtNf5MkRg0" target="_blank" rel="noopener noreferrer">EPISODE #049. 
 FOUR ENCOUNTERS WITH GRAY ALIENS</a>.</h3>
-<h5>LINK: https://youtu.be/fgtNf5MkRg0</h5>                                                             <h5>March 6, 2021</h5>
+<h5>LINK: https://youtu.be/fgtNf5MkRg0</h5> <h5>March 6, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>13,941 views  Mar 6, 2021</h6>
+
 Grays are the most commonly reported type of extraterrestrial. Many of the cases are strikingly similar, however, they also have significant differences. Some are scary and traumatic, while others seem benevolent. This video presents four firsthand cases of different people who have encounters gray aliens.
 
 --Connie, a housewife from Arleta, California sees a gray outside her window, staring at her newborn son.
@@ -8008,9 +8324,10 @@ ONBOARD UFO ENCOUNTERS: https://www.amazon.com/dp/B085BDYTG5/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/FoeJGmHOqYw" target="_blank" rel="noopener noreferrer" >EPISODE #048. 
 CALIFORNIA UFO CRASH/RETRIEVALS</a>.</h3>
-<h5>LINK: https://youtu.be/FoeJGmHOqYw</h5>                                                             <h5>February 21, 2021</h5>
+<h5>LINK: https://youtu.be/FoeJGmHOqYw</h5> <h5>February 21, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>7,421 views  Feb 21, 2021</h6>
+
 When people think of UFO crashes, the Roswell UFO Incident is usually the first to be mentioned. But the truth is, the Roswell UFO crash is only one of hundreds of similar cases involving UFO crash/retrievals. California alone has at least a dozen documented accounts of UFOs that have crashed and been retrieved (and sometimes reverse-engineered) by the United States military.
 
 Several military bases across California have allegedly been involved in UFO crash/retrievals including Edwards Air Force Base, Camp Pendleton, Sunnyvale Naval Air Station, Norton Air Force Base and more. What does our government know, and why are they hiding the truth? If California has more than a dozen cases, how many cases are there?
@@ -8023,9 +8340,10 @@ https://www.amazon.com/dp/0764321498/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/N7uL7571w6o" target="_blank" rel="noopener noreferrer">EPISODE #047. 
 UFO ENCOUNTER AT BLACKJACK CAMPGROUND</a>.</h3>
-<h5>LINK: https://youtu.be/N7uL7571w6o</h5>                                                             <h5>February 12, 2021</h5>
+<h5>LINK: https://youtu.be/N7uL7571w6o</h5> <h5>February 12, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>14,747 views  Feb 12, 2021</h6>
+
 In July of 1982, eleven friends went camping at Blackjack Campground in a remote area on Catalina Island, off the coast of southern California. Around sunset a thick fog rolled in. Shortly later, the UFOs arrived. Three unidentified glowing objects approached silently and hovered in front of the witnesses. As the eleven friends struggled to understand what they were seeing, the temperature dropped dramatically. Somebody noticed that their watches had all stopped. Someone else discovered that their flashlights weren't working. Nor were their cameras.
 
 Then the show began. Beams of brilliant light flashed between the objects. Before long, one of the objects released other craft, which soon approached the witnesses.
@@ -8041,9 +8359,10 @@ https://www.amazon.com/dp/1984340700/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/UQxe1poHkTI" target="_blank" rel="noopener noreferrer">EPISODE #046. 
 SEE A UFO – LOSE YOUR JOB</a>.</h3>
-<h5>LINK: https://youtu.be/UQxe1poHkTI</h5>                                                             <h5>February 5, 2021</h5>
+<h5>LINK: https://youtu.be/UQxe1poHkTI</h5> <h5>February 5, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,107 views  Feb 5, 2021</h6>
+
 It's unfortunate, but it's true. Many people have lost their job as the result of a UFO encounter. If word gets out that you have seen a UFO, or that you believe you have been taken onboard a craft, or even if you are merely interested in the subject, sorry -- you're fired! You are now unemployed. Pack your personal belongings. Your final check is in the mail.
 
 Discrimination against UFO experiencers and investigators is a real problem in society. Experiencing a UFO encounter can be traumatic. But then witnesses sometimes have to deal with the additional trauma of being disbelieved or ridiculed, or actually losing their livelihood.
@@ -8058,9 +8377,10 @@ The time is now for truth and transparency on the subject of UFOs. If you would 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/UqBReR60KOY" target="_blank" rel="noopener noreferrer">EPISODE #045. 
 THE MYSTERY OF ANGEL HAIR</a>.</h3>
-<h5>LINK: https://youtu.be/UqBReR60KOY</h5>                                                             <h5>January 30, 2021</h5>
+<h5>LINK: https://youtu.be/UqBReR60KOY</h5> <h5>January 30, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,305 views  Jan 30, 2021</h6>
+
 Angel  Hair: it's a mysterious cobweb-like substance being ejected from UFOs. Despite countless numbers of UFO encounters, reports of Angel Hair are exceedingly rare. But in a handful of UFO sightings, this mysterious material drifts down from the sky like cotton candy, covering trees, bushes, fields, homes, cars, telephone wires...everywhere.
 
 This video presents more than twenty UFO events involving Angel Hair. Some of the cases include:
@@ -8083,9 +8403,10 @@ https://www.amazon.com/dp/153280458X/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/w4DhJrM8Afw" target="_blank" rel="noopener noreferrer">EPISODE #044. 
 EYE DOCTORS FROM OUTER SPACE</a>.</h3>
-<h5>LINK: https://youtu.be/w4DhJrM8Afw</h5>                                                             <h5>January 23, 2021</h5>
+<h5>LINK: https://youtu.be/w4DhJrM8Afw</h5> <h5>January 23, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,258 views  Jan 23, 2021</h6>
+
 Physiological effects as the result of a UFO encounter are very rare, and yet they do happen. Following a close-up UFO encounter, people sometimes experience dry or sore eyes, eye irritation, burns or inflammation, after-images on the retina or light sensitivity. Less common, but equally consistent, are cases of physiological improvements. Among the most common of both are accounts involving the eyes.
 
 This video presents twenty firsthand cases of people who have experienced ocular improvements in association with a UFO encounter. Imagine being color blind, and then you have a strange visitation and are able to see colors for the first time. Imagine being diagnosed with glaucoma, and then finding help greeting you from beyond the stars. What if you lost your vision, and afterward, someone unique and unexpected arrived in your time of need? Or what if you were visited by ETs, and now suddenly you start having psychic visions?
@@ -8096,9 +8417,10 @@ If you'd like to explore more, these cases and many others are detailed in the b
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/m5RJ4DvTL_4" target="_blank" rel="noopener noreferrer">EPISODE #043. 
 IS JESUS AN ALIEN?</a></h3>
-<h5>LINK: https://youtu.be/m5RJ4DvTL_4</h5>                                                             <h5>January 17, 2021</h5>
+<h5>LINK: https://youtu.be/m5RJ4DvTL_4</h5> <h5>January 17, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>5,868 views  Jan 17, 2021</h6>
+
 Many researchers have studied and remarked upon the obvious similarities between modern day UFO accounts and stories in the Bible and about Jesus. Some have come to the belief that Jesus may have actually been an extraterrestrial.  Much of the research into this area has focused on ancient and historical accounts, including many paintings throughout the Middle Ages and the Renaissance which portray Jesus and UFOs in the same scene.
 
 This video, however, focuses on current firsthand UFO accounts which contain overtly religious elements. The fact is, there are several recent cases on record in which people have reported seeing Jesus or other religious figures onboard a UFO! Investigators call these "mixed motif" cases, encounters which contain both extraterrestrial and religious themes. While these cases seem to be very rare, there are enough to raise serious questions about UFO origins and the connections between ETs, angels, demons and humanity itself.
@@ -8113,9 +8435,10 @@ https://www.amazon.com/dp/1719142742/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/MyqF8pKgrTw" target="_blank" rel="noopener noreferrer">EPISODE #042. 
 IS BIGFOOT AN ALIEN?</a></h3>
-<h5>LINK: https://youtu.be/MyqF8pKgrTw</h5>                                                             <h5>January 10, 2021</h5>
+<h5>LINK: https://youtu.be/MyqF8pKgrTw</h5> <h5>January 10, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>8,264 views  Jan 10, 2021</h6>
+
 Most UFO encounters don't involve Bigfoot. And most Bigfoot encounters don't involve UFOs. But in a growing number of cases, these two seemingly separate phenomena perfectly intersect. There are now dozens of cases on record in which people have seen Bigfoot and UFOs at the same time, in the same place. In some instances, people report seeing Bigfoot entering or exiting extraterrestrial craft. And in a few, people say they have seen Bigfoot onboard a UFO.
 
 As strange as this sounds, this weird confluence is well-known among UFO researchers, many who have cases to contribute. But wait, there's more! Some of the cases involve other strange events, such as poltergeist activity or telepathic contact with Bigfoot.
@@ -8130,9 +8453,10 @@ https://www.amazon.com/dp/1719142742/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/GeRPsOi0dqw" target="_blank" rel="noopener noreferrer">EPISODE #041. 
 TOP TWENTY UFO ENCOUNTERS IN COLORADO</a>.</h3>
-<h5>LINK: https://youtu.be/GeRPsOi0dqw</h5>                                                             <h5>January 3, 2021</h5>
+<h5>LINK: https://youtu.be/GeRPsOi0dqw</h5> <h5>January 3, 2021</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>16,570 views  Jan 3, 2021</h6>
+
 <p>Every location on Earth has their own unique story of UFO encounters. The state of 
 Colorado has contributed many cases which have profoundly affected what people believe 
 about UFOs.</p>
@@ -8153,9 +8477,10 @@ check out my book, "UFOs over Colorado."</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/IvPF8q85FuI" target="_blank" rel="noopener noreferrer">EPISODE #040. 
 UFOS OVER CATALINA ISLAND: THREE BOY SCOUT UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/IvPF8q85FuI</h5>                                                             <h5>December 20, 2020</h5>
+<h5>LINK: https://youtu.be/IvPF8q85FuI</h5> <h5>December 20, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<H6>6,225 views  Dec 20, 2020</h6>
+<h6>6,225 views  Dec 20, 2020</h6>
+
 <p>Catalina Island, located off the southern California Coast, is the central focus of a 
 huge amount of UFO and USO (unidentified submersible objects) activity. The cases in 
 this area reach back more than 100 years and are still occurring today. Among the 
@@ -8182,9 +8507,10 @@ more about these and other cases, please check out my book, "Undersea UFO Base."
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/IJzauxGNQys" target="_blank" rel="noopener noreferrer">EPISODE #039. 
 UFO INCIDENT ON THE USS VALLEY FORGE</a>.</h3>
-<h5>LINK: https://youtu.be/IJzauxGNQys</h5>                                                             <h5>December 13, 2020</h5>
+<h5>LINK: https://youtu.be/IJzauxGNQys</h5> <h5>December 13, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,003 views  Dec 13, 2020</h6>
+
 <p>In 1960, a 21-year-old young man named Jim, joined the Navy and was stationed aboard 
 the US Navy aircraft carrier, USS Valley Forge as an electronics specialist and a 
 helicopter crew member of the HS-3 Hunter Killer antisubmarine squadron. While 
@@ -8208,7 +8534,7 @@ encounters, check out my book, "Inside UFOs."</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/RT2ah0H15mo" target="_blank" rel="noopener noreferrer">EPISODE #038. 
 UFOS AND SPIRITUALITY: SEVEN STRANGE CASES</a>.</h3>
-<h5>LINK: https://youtu.be/RT2ah0H15mo</h5>                                                             <h5>December 6, 2020</h5>
+<h5>LINK: https://youtu.be/RT2ah0H15mo</h5> <h5>December 6, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>14,658 views  Dec 6, 2020</h6>
 <p>UFOs are not just a nuts and bolts phenomenon. There is also a strong spiritual aspect 
@@ -8237,9 +8563,10 @@ book, "Inside UFOs: True Accounts of Contact."</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/H0F20a43oQE" target="_blank" rel="noopener noreferrer">EPISODE #037. 
 THE INCREDIBLE SHRINKING UFO ABDUCTEE</a>.</h3>
-<h5>LINK: https://youtu.be/H0F20a43oQE</h5>                                                             <h5>November 28, 2020</h5>
+<h5>LINK: https://youtu.be/H0F20a43oQE</h5> <h5>November 28, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>9,857 views  Nov 28, 2020</h6>
+
 <p>UFOs appear to represent a very advanced technology. The extraterrestrial craft can 
 move at dazzling speeds, turn at right angles, change into various shapes and even turn 
 invisible. Another incredible talent of UFOs and extraterrestrials is their miraculous 
@@ -8262,9 +8589,10 @@ advanced these beings are.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/2v2R_c0mhpc" target="_blank" rel="noopener noreferrer">EPISODE #036. 
 TOP 20 UFO CASES IN NEW YORK</a>.</h3>
-<h5>LINK: https://youtu.be/2v2R_c0mhpc</h5>                                                             <h5>November 23, 2020</h5>
+<h5>LINK: https://youtu.be/2v2R_c0mhpc</h5> <h5>November 23, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>21,504 views  Nov 23, 2020</h6>
+
 <p>New York is one of the most influential places in the world. Not surprisingly, it has 
 a rich history of UFO events, many of which have had a strong influence on what we 
 believe about UFOs and extraterrestrials.</p>
@@ -8287,9 +8615,10 @@ in the Empire State."</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/wzDvWxestJc" target="_blank" rel="noopener noreferrer">EPISODE #035. 
 UFO INCIDENT ON THE USS CLAMAGORE</a>.</h3>
-<h5>LINK: https://youtu.be/wzDvWxestJc</h5>                                                             <h5>November 14, 2020</h5>
+<h5>LINK: https://youtu.be/wzDvWxestJc</h5> <h5>November 14, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,000 views  Nov 14, 2020</h6>
+
 <p>UFOs have often been seen over nuclear power stations, nuclear missile sites, and 
 anything associated with nuclear energy. In 1971, the USS Clamagore, a Navy submarine 
 equipped with nuclear torpedoes, encountered  a UFO, or actually a USO (an unidentified 
@@ -8321,9 +8650,10 @@ USO encounters, please check out my book, "Undersea UFO Base," available on Amaz
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Qvib2bpiwgQ" target="_blank" rel="noopener noreferrer">EPISODE #034. 
 THE TRUTH BEHIND ALIEN ANAL PROBES</a>.</h3>
-<h5>LINK: https://youtu.be/Qvib2bpiwgQ</h5>                                                             <h5>November 7, 2020</h5>
+<h5>LINK: https://youtu.be/Qvib2bpiwgQ</h5> <h5>November 7, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>5,659 views  Nov 7, 2020</h6>
+
 <p>There are many very strange procedures that occur during onboard UFO encounters, but 
 one that has been given more than its fair share of attention is the alien anal probe. It 
 has become the butt of jokes on the internet. It has saturated nearly every aspect of our 
@@ -8348,9 +8678,10 @@ Three."</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/pYagAn5pcsU" target="_blank" rel="noopener noreferrer">EPISODE #033. 
 ANDY’S UFO ABDUCTION</a>.</h3>
-<h5>LINK: https://youtu.be/pYagAn5pcsU</h5>                                                             <h5>October 31, 2020</h5>
+<h5>LINK: https://youtu.be/pYagAn5pcsU</h5> <h5>October 31, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,986 views  Oct 31, 2020</h6>
+
 <p>All across the world, people are experiencing onboard UFO encounters. This is the 
 story of two young brothers who were abducted into a UFO in 1978 from their home in a 
 quiet suburb in the Netherlands.</p>
@@ -8376,7 +8707,7 @@ taken onboard a UFO, check out my book, "Onboard UFO Encounters," available on A
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/6crttnXpQAM" target="_blank" rel="noopener noreferrer">EPISODE #032. 
 TOP TWENTY UFO ENCOUNTERS IN NEVADA</a>.</h3>
-<h5>LINK: https://youtu.be/6crttnXpQAM</h5>                                                             <h5>October 25, 2020</h5>
+<h5>LINK: https://youtu.be/6crttnXpQAM</h5> <h5>October 25, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>13,938 views  Oct 25, 2020</h6>
 <p>While UFOs are seen across the world and in every state in the United States, the 
@@ -8410,9 +8741,10 @@ State," is available on Amazon.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Mu-f0RA2ves" target="_blank" rel="noopener noreferrer">EPISODE #031. 
 FORGETTING UFOS: THREE CASES WITH AMNESIA</a>.</h3>
-<h5>LINK: https://youtu.be/Mu-f0RA2ves</h5>                                                             <h5>October 17, 2020</h5>
+<h5>LINK: https://youtu.be/Mu-f0RA2ves</h5> <h5>October 17, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,766 views  Oct 17, 2020</h6>
+
 Sometimes UFO encounters are shrouded in a weird forgetfulness. Amnesia is a very real problem when dealing with extraterrestrials. Many encounters occur, but the witnesses forget about them. This video presents three incredible UFO encounters during which the witnesses experienced amnesia and other weird amnesia-like effects.
 
 "The Case of the Glowing Egg." Hearing about recent sightings in their area, three teen-age boys go out UFO hunting and get more than they bargain for when a strange egg-shaped craft shows up, confronting them face-to-face.
@@ -8429,9 +8761,10 @@ https://www.amazon.com/dp/1567182208/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/zTG_m1qb4W8" target="_blank" rel="noopener noreferrer">EPISODE #030. 
 THE CORONADO ISLAND UFO INCIDENT</a>.</h3>
-<h5>LINK: https://youtu.be/zTG_m1qb4W8</h5>                                                             <h5>October 10, 2020</h5>
+<h5>LINK: https://youtu.be/zTG_m1qb4W8</h5> <h5>October 10, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>18,011 views  Oct 10, 2020</h6>
+
 On the weekend of March 26-27, 1994, the Triad UFO Conference (funded by billionaire Robert Bigelow) was held at the Del Coronado Hotel on Coronado Island in southern California. Featured were leading abduction investigators Budd Hopkins, Yvonne Smith, John Carpenter and others. Several hundred people attended the conference.
 
 Mike Evans, his wife, and a small group of other friends decided to attend. Unknown to them, they were about to become embroiled in one of the strangest and most unique events in UFO history: a mass UFO abduction. Six witnesses in three adjoining hotel rooms at the Village Inn all experienced an alien encounter on the same evening. Meanwhile, conference attendees at other nearby hotels also experienced extraterrestrial visitations.
@@ -8444,14 +8777,14 @@ Another thing that makes this case different is many of the witnesses suffered a
 
 This video presents the Coronado Island UFO Incident from beginning to end, as told by one of the main percipients. Yvonne Smith's excellent book, "Coronado," tells the comprehensive story of this case, with several more new witnesses. You can also read about the experiences of the six experiencers at the Village Inn in my book, "The Coronado Island Incident," co-written by Mike Evans.
 
-
 https://www.amazon.com/dp/B008R1XWX6/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/sK0MoOAvlYM" target="_blank" rel="noopener noreferrer">EPISODE #029. 
 THE ALIEN CLOWN CONNECTION</a>.</h3>
-<h5>LINK: https://youtu.be/sK0MoOAvlYM</h5>                                                             <h5>October 3, 2020</h5>
+<h5>LINK: https://youtu.be/sK0MoOAvlYM</h5> <h5>October 3, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,222 views  Oct 3, 2020</h6>
+
 Alien clowns! It may sound bizarre, but it's true. People are being visited by aliens dressed up as clowns! Several researchers have reported cases like these. Extraterrestrials are not only dressing up as clowns, but in other strange outfits, such as cowboy costumes or old-fashioned tuxedos and pin-stripe suits. Sometimes they even come wearing wigs or toupees!
 
 Are these screen memories? Are the aliens actually wearing these clothes? What is the purpose behind this strange behavior? If they are trying to reduce the fear factor, it's not working very well! Fear of clowns is so common, it has its own name: coulrophobia. Could the ETs responsible for this widespread fear of clowns?
@@ -8464,9 +8797,10 @@ https://www.amazon.com/dp/B01A2LCJJQ/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/sAVZ4b02ETw" target="_blank" rel="noopener noreferrer">EPISODE #028. 
 RESCUED BY EXTRATERRESTRIALS</a>.</h3>
-<h5>LINK: https://youtu.be/sAVZ4b02ETw</h5>                                                             <h5>September 5, 2020</h5>
+<h5>LINK: https://youtu.be/sAVZ4b02ETw</h5> <h5>September 5, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>17,214 views  Sep 26, 2020</h6>
+
 Some UFO encounters are scary. Some are friendly. And some UFO encounters actually save people's lives. In case after case, people report that ETs have intervened to rescue them from dangerous situations such as car accidents, drownings, assault, natural disasters and more.
 
 Trapped on a sinking boat, caught in quicksand, lost on an unfamiliar highway, suffering from poverty, about to experience a seemingly unavoidable collision, in danger of being overwhelmed by a hurricane...ETs suddenly show up and rescue people right when they need it most.
@@ -8479,7 +8813,7 @@ https://www.amazon.com/dp/1792986203/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/EY_sqB1qISg" target="_blank" rel="noopener noreferrer">EPISODE #027. 
 EXTRATERRESTRIAL MINERS</a>.</h3>
-<h5>LINK: https://youtu.be/EY_sqB1qISg</h5>                                                             <h5>September 19, 2020</h5>
+<h5>LINK: https://youtu.be/EY_sqB1qISg</h5> <h5>September 19, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>15,598 views  Sep 19, 2020</h6>
 UFOs are being seen all over our planet. But there is one specific type of location that is attracting large numbers of UFOs: mines! UFOs are targeting our mines. Gold mines, silver mines, iron mines, copper mines, titanium mines, uranium mines and more: all are being visited by UFOs. 
@@ -8494,9 +8828,10 @@ LINK TO BOOK: https://www.amazon.com/dp/B01A2LCJJQ/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/u19vMBjTAK8" target="_blank" rel="noopener noreferrer">EPISODE #026. 
 ALIEN ZOOS</a>.</h3>
-<h5>LINK: https://youtu.be/u19vMBjTAK8</h5>                                                             <h5>September 5, 2020</h5>
+<h5>LINK: https://youtu.be/u19vMBjTAK8</h5> <h5>September 5, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>5,285 views  Sep 5, 2020</h6>
+
 Alien Zoos!
 
 ETs have been studying our planet for a very long time. They seem to be interested in all things Earth. They have taken humans onboard their craft. They have collected a wide variety of plants. And they are also taking animals. In fact, there are several cases on record in which experiencers have seen collections of live animals onboard UFOs. This video is not about animal mutilations; it's about something much more bizarre. As strange as it sounds, some abductees report being taken to visit alien zoos, containing animals from Earth, and also animals from other planets. Some UFOs, it seems, are very much like "Noah's Ark," preserving a wide variety of species. 
@@ -8516,9 +8851,10 @@ https://www.amazon.com/dp/B01A2LCJJQ/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Xq2TqLhGRnA" target="_blank" rel="noopener noreferrer">EPISODE #025. 
 EXTRATERRESTRIAL GARDENERS</a>.</h3>
-<h5>LINK: https://youtu.be/Xq2TqLhGRnA</h5>                                                             <h5>August 28, 2020</h5>
+<h5>LINK: https://youtu.be/Xq2TqLhGRnA</h5> <h5>August 28, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>5,900 views  Aug 28, 2020</h6>
+
 ETs are abducting people and collecting their genetic material. They are abducting animals. And they are also abducting plants! As these accounts will show, ETs have been collecting a wide variety of plants for a very long time.
 
 And that's not all. If you are taken onboard a UFO, the last thing you might expect to see is a forest. And yet, this has happened more than you might think. 
@@ -8535,9 +8871,10 @@ https://www.amazon.com/dp/153280458X/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/WXxCtk5y5Pg" target="_blank" rel="noopener noreferrer">EPISODE #024. 
 ONE WEEK IN NOVEMBER</a>.</h3>
-<h5>LINK: https://youtu.be/WXxCtk5y5Pg</h5>                                                             <h5>August 22, 2020</h5>
+<h5>LINK: https://youtu.be/WXxCtk5y5Pg</h5> <h5>August 22, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,960 views  Aug 22, 2020</h6>
+
 In the first week of November 1957, a series of dramatic and unusual UFO events occurred which caused great concern at the highest levels of government and changed the way many people viewed the UFO phenomenon. Sputnik 1 had been launched one month earlier, and the launch of Sputnik 2 was imminent. Then, in the first week of November 1957, a dramatic wave of UFO encounters struck the states of Texas and New Mexico. The apparent primary target was a small town called Levelland.
 
 What happened in Levelland, Texas was unprecedented and had never occurred before, and has yet to be repeated. Dozens of people in Levelland and the surrounding areas reported UFOs disabling their vehicles, causing the electrical system to fail and the car engines to cease functioning. In case after case, UFOs buzzed cars at low level, and often landed on the road, blocking their way forward. UFO car-stalling cases were well-known among UFO researchers, but this brazen and audacious level of activity had never been reported before. 
@@ -8558,9 +8895,10 @@ https://www.amazon.com/dp/0764339060/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/f13Ofb2IMvo" target="_blank" rel="noopener noreferrer">EPISODE #023. 
 UFOS AND ROCKETS: SOMEONE IS WATCHING US</a>.</h3>
-<h5>LINK: https://youtu.be/f13Ofb2IMvo</h5>                                                             <h5>August 16, 2020</h5>
+<h5>LINK: https://youtu.be/f13Ofb2IMvo</h5> <h5>August 16, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>2,943 views  Aug 16, 2020</h6>
+
 Ever since the Modern Age of UFOs began in 1947, UFOs have been closely monitoring humanity's progress into space. When the U.S. military began to actively launch missiles at White Sands in New Mexico, UFOs immediately made their presence known, not only following the missiles in full view, but sometimes intervening to cause the missiles to fall to Earth. When more rocket launches occurred, UFOs were often there. Wherever rockets were being launched, UFOs showed up, including not only White Sands, but China Lake, Vandenburg, Holloman and other areas. While the U.S. military scrambled to deal with the sudden UFO presence, at the same time they aggressively tried to cover-up the events. 
 
 But as the UFOs continued to show themselves, still sometimes disabling the rockets, whistle-blowers recognized the importance of what was happening and courageously alerted the public of what was happening.
@@ -8581,9 +8919,10 @@ https://www.amazon.com/gp/product/B01...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://www.youtube.com/watch?v=96_zqBA-JeI&t=1859s" target="_blank" rel="noopener noreferrer">EPISODE #022: 
 TOP TWENTY UFO HEALING CASES:</a></h3>
-<h5>LINK: https://www.youtube.com/watch?v=96_zqBA-JeI&t=1859s</h5>                                      <h5>August 8, 2020</h5>
+<h5>LINK: https://www.youtube.com/watch?v=96_zqBA-JeI&t=1859s</h5><h5>August 8, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>13,652 views  Aug 8, 2020</h6>
+
 There are more than 300 UFO healing cases on record. Some cases, however, rise above the rest. This video presents 20 of the very best UFO healing cases. These well-documented accounts come from men and women across the world, and involve the healings of a wide variety of injuries, illnesses and diseases. Many of the cases have been verified by doctors and UFO researchers. These UFO healing events are important because they present hard physical evidence of extraterrestrial intervention in people's lives. They also have many things to teach us about these mysterious visitors to our planet. They show us that there is no such thing as a chronic or incurable disease. They also show a very positive side to ETs and their agenda on Earth.
 
 If you would like to learn more about people who have been healed by UFOs, my book, "The Healing Power of UFOs: 300 True Accounts" is available on Amazon.
@@ -8592,9 +8931,10 @@ https://www.amazon.com/dp/1792986203/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/tgdcxaY10zo" target="_blank" rel="noopener noreferrer">EPISODE #021. 
 UFOS OVER PRISONS</a>.</h3>
-<h5>LINK: https://youtu.be/tgdcxaY10zo</h5>                                                             <h5>August 1, 2020</h5>
+<h5>LINK: https://youtu.be/tgdcxaY10zo</h5> <h5>August 1, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,433 views  Aug 1, 2020</h6>
+
 UFOs are hovering over prisons!
 UFOs are known to be attracted to technological installations such as power stations, military bases and more, including, evidently, prisons. These are not coincidental  fly-bys. In these cases prisons are being directly targeted. The objects hover at very low levels for long periods of time. They are often viewed by both prison officials and inmates.
 
@@ -8611,9 +8951,10 @@ https://www.amazon.com/dp/1719142742/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/ybm2Z1f1oPg" target="_blank" rel="noopener noreferrer">EPISODE #020. 
 NIGHT OF THE UFOS</a>.</h3>
-<h5>LINK: https://youtu.be/ybm2Z1f1oPg</h5>                                                             <h5>July 25, 2020</h5>
+<h5>LINK: https://youtu.be/ybm2Z1f1oPg</h5> <h5>July 25, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>18,772 views  Jul 25, 2020</h6>
+
 On the evening of June 14, 1992, a massive UFO wave occurred over the small community of 
 Topanga Canyon, California. Hundreds of UFOs were seen by multiple witnesses across the 
 canyon. Objects hovered over homes, shot across the sky, chased cars down the road, even 
@@ -8634,9 +8975,10 @@ interested, is available on Amazon.
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Hsn4vI9auDA" target="_blank" rel="noopener noreferrer">EPISODE #019. 
 THE UFO BREATHING POOL</a>.</h3>
-<h5>LINK: https://youtu.be/Hsn4vI9auDA</h5>                                                             <h5>July 18, 2020</h5>
+<h5>LINK: https://youtu.be/Hsn4vI9auDA</h5> <h5>July 18, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,096 views  Jul 18, 2020</h6>
+
 Are you ready to go swimming inside a UFO?
 It's among the strangest of events that occur to abductees when they are taken onboard an 
 extraterrestrial craft. They are placed in an aquarium-like tank and made to breathe a 
@@ -8660,7 +9002,7 @@ https://www.amazon.com/dp/153280458X/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/EM0CV-PWIDI" target="_blank" rel="noopener noreferrer">EPISODE #018. 
 ALIEN DRINKS</a>.</h3>
-<h5>LINK: https://youtu.be/EM0CV-PWIDI</h5>                                                             <h5>July 12, 2020</h5>
+<h5>LINK: https://youtu.be/EM0CV-PWIDI</h5> <h5>July 12, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,320 views  Jul 12, 2020</h6>
 If an extraterrestrial handed you a glass of strange liquid and said, "Drink this," would 
@@ -8682,9 +9024,11 @@ https://www.amazon.com/dp/153280458X/...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/JkHtvP08kK0" target="_blank" rel="noopener noreferrer">EPISODE #017. 
 SCHOOLYARD UFO ENCOUNTERS, PART TWO: LANDINGS &amp; HUMANOIDS</a>.</h3>
-<h5>LINK: https://youtu.be/JkHtvP08kK0</h5>                                                             <h5>June 28, 2020</h5>
+
+<h5>LINK: https://youtu.be/JkHtvP08kK0</h5> <h5>June 28, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>18,704 views  Jul 4, 2020</h6>
+
 In Part One of this presentation,  dozens of cases of UFOs hovering over schools were 
 presented. Now, in Part Two, we explore the more exciting cases involving landings and 
 humanoids. There are five very famous incidents of UFOs landing next to schools:
@@ -8715,9 +9059,11 @@ https://www.amazon.com/Schoolyard-UFO...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/-yXw0jpPMtU" target="_blank" rel="noopener noreferrer">EPISODE #016. 
 SCHOOLYARD UFO ENCOUNTERS, PART ONE: SIGHTINGS</a>.</h3>
-<h5>LINK: https://youtu.be/-yXw0jpPMtU</h5>                                                             <h5>June 28, 2020</h5>
+
+<h5>LINK: https://youtu.be/-yXw0jpPMtU</h5> <h5>June 28, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>9,829 views  Jun 28, 2020</h6>
+
 All across the world, schools are being targeted by UFOs. More than 100 documented cases 
 are on record. These are typically long lasting, low level, daylight encounters viewed by 
 large groups of witnesses. Something very profound is happening here.
@@ -8747,9 +9093,11 @@ https://www.amazon.com/Schoolyard-UFO...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/bqmTEqpSjlI" target="_blank" rel="noopener noreferrer">EPISODE #015. 
 ALIEN GIFTS</a>.</h3>
-<h5>LINK: https://youtu.be/bqmTEqpSjlI</h5>                                                             <h5>June 19, 2020</h5>
+
+<h5>LINK: https://youtu.be/bqmTEqpSjlI</h5> <h5>June 19, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,913 views  Jun 19, 2020</h6>
+
 It's one of the rarest types of UFO encounters: cases in which people are given alien 
 artifacts by the ETs. There are a surprising number of cases coming from across the 
 planet. Crystals, metal bars, food, medicine, books, mechanical devices...all have 
@@ -8765,13 +9113,15 @@ https://www.amazon.com/gp/product/B07...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/okHljTgChWo" target="_blank" rel="noopener noreferrer">EPISODE #014. 
 ALIEN GRAVE ROBBERS</a>.</h3>
-<h5>LINK: https://youtu.be/okHljTgChWo</h5>                                                             <h5>Jun 9, 2020</h5>
+<h5>LINK: https://youtu.be/okHljTgChWo</h5> <h5>Jun 9, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,438 views  Jun 9, 2020</h6>
+
 It's one of the strangest types of UFO behavior, and kind of creepy. UFOs are hovering 
 over graveyards and cemeteries, usually at very low levels. In some cases, they land and 
 humanoids are seen. In other cases, graves are being disturbed. Clearly something very 
 profound is happening here. 
+
 In this video I present about a dozen cases coming from major researchers across the 
 world. UFOs are definitely attracted to graveyards. The question is: why?
 For those who would like to learn more about the information in this video, I wrote an 
@@ -8782,9 +9132,10 @@ https://www.amazon.com/gp/product/B01...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Q0GyqXn7M6Y" target="_blank" rel="noopener noreferrer">EPISODE #013. 
 25 UFO RESEARCHERS WHO HAVE REPORTED UFO HEALING CASES</a>.</h3>
-<h5>LINK: https://youtu.be/Q0GyqXn7M6Y</h5>                                                             <h5>May 30, 2020</h5>
+<h5>LINK: https://youtu.be/Q0GyqXn7M6Y</h5> <h5>May 30, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>1,925 views  May 30, 2020</h6>
+
 UFO healing cases are more common than you might think. This video presents more than 25 
 well-known UFO researchers, each who have investigated multiple cases of UFO healings. 
 At least one healing from each researcher is presented. And this is just the tip of the 
@@ -8799,15 +9150,17 @@ https://www.amazon.com/gp/product/B07...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/wjR5JJNdLNM" target="_blank" rel="noopener noreferrer">EPISODE #012. 
 ETS TEACH PEOPLE HOW TO BUILD ENERGY FREE MOTORS</a>.</h3>
-<h5>LINK: https://youtu.be/wjR5JJNdLNM</h5>                                                             <h5>May 23, 2020</h5>
+<h5>LINK: https://youtu.be/wjR5JJNdLNM</h5> <h5>May 23, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,204 views  May 23, 2020</h6>
+
 When people are taken onboard a UFO, they are often taken to the control room and told 
 how the craft works, or are even put in the control seat and allowed to fly the craft 
 themselves. In even rarer cases, the ETs provide specific instructions about how to 
 build a UFO engine. This video presents almost a dozen cases in which ETs teach people 
 how to build an electromagnetic motor. Some of the people have made remarkable progress. 
 The results may surprise you.
+
 If you'd like to know more, the dozen cases featured in this video are all presented in 
 Chapter Ten of my book, NOT FROM HERE: VOLUME THREE. The chapter is called "If You Build It," 
 and covers all the cases in detail. 
@@ -8816,9 +9169,10 @@ Now available on Amazon! https://www.amazon.com/gp/product/B07...
 <h3><a href="https://youtu.be/filO_85ia4c" target="_blank" rel="noopener noreferrer">EPISODE #011. 
 NATIVE AMERICAN ENCOUNTER WITH THE STAR PEOPLE: 
 THE INCREDIBLE UFO CONTACT CASE OF STAN HUGHES</a>.</h3>
-<h5>LINK: https://youtu.be/filO_85ia4c</h5>                                                             <h5>May 17, 2020</h5>
+<h5>LINK: https://youtu.be/filO_85ia4c</h5> <h5>May 17, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,163 views  May 17, 2020</h6>
+
 Stan Hughes is a Native American from the Blood Tribe of Canada. In 1997 he experienced a 
 benevolent face-to-face meeting with the Star People, or the Woh-Geh. It's one of many 
 incredible UFO experiences reported by Stan Hughes.
@@ -8830,9 +9184,10 @@ https://www.amazon.com/Inside-UFOs-Ac...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/RZRE6IzYSVA" target="_blank" rel="noopener noreferrer">EPISODE #010. 
 ARE REPTILIAN HUMANOIDS WORKING WITH THE UNITED STATES MILITARY?</a></h3>
-<h5>LINK: https://youtu.be/RZRE6IzYSVA</h5>                                                             <h5>May 3, 2020</h5>
+<h5>LINK: https://youtu.be/RZRE6IzYSVA</h5> <h5>May 3, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>6,076 views  May 3, 2020</h6>
+
 This video presents the case of "Ramon," who was assigned as a young United States Marine 
 Officer to Camp Pendleton, in southern California, where he encountered reptilian 
 humanoids working along with the military. Ramon is a lifelong UFO abductee. He was first 
@@ -8846,7 +9201,7 @@ https://www.amazon.com/Onboard-UFO-En...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/8JKLqBBnR5w" target="_blank" rel="noopener noreferrer">EPISODE #009. 
 ALIENS SAVE THE LIVES OF THOUSANDS AFTER VOLCANIC ERUPTION</a>.</h3>
-<h5>LINK: https://youtu.be/8JKLqBBnR5w</h5>                                                             <h5>April 14, 2020</h5>
+<h5>LINK: https://youtu.be/8JKLqBBnR5w</h5> <h5>April 14, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>4,546 views  Apr 14, 2020</h6>
 Do extraterrestrials intervene in the case of natural disasters? Yes! They do. Cases of 
@@ -8861,7 +9216,7 @@ https://www.amazon.com/Onboard-UFO-En...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/GMT1VNwF0d4" target="_blank" rel="noopener noreferrer">EPISODE #008. 
 ONBOARD UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/GMT1VNwF0d4</h5>                                                             <h5>April 1, 2020</h5>
+<h5>LINK: https://youtu.be/GMT1VNwF0d4</h5> <h5>April 1, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,136 views  Apr 1, 2020</h6>
 Have you ever been taken onboard a UFO? Many people have. Here are 15 true-life cases of 
@@ -8871,9 +9226,10 @@ AMAZON LINK: https://www.amazon.com/Onboard-UFO-En...
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/Fp0yhjvMgG8" target="_blank" rel="noopener noreferrer">EPISODE #007. 
 10 CASES OF ALIENS CURING COLDS, FLU AND PNEUMONIA</a>.</h3>
-<h5>LINK: https://youtu.be/Fp0yhjvMgG8</h5>                                                             <h5>March 25, 2020</h5>
+<h5>LINK: https://youtu.be/Fp0yhjvMgG8</h5> <h5>March 25, 2020</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>1,801 views  Mar 25, 2020</h6>
+
 <p>This video documents 10 cases of people who have been healed of colds, flu, pneumonia, 
 asthma and lung disease. One of the primary  ET agendas is the healing of humanity. This 
 pandemic is a sign that we are out of balance and must come together in love and harmony 
@@ -8883,9 +9239,10 @@ and work for change. Let the healing begin!</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/qyXVqNPMQT8" target="_blank" rel="noopener noreferrer">EPISODE #006. 
 UNDERSEA UFO BASE: A RARE HUMANOID CASE</a>.</h3>
-<h5>LINK: https://youtu.be/qyXVqNPMQT8</h5>                                                             <h5>December 28, 2019</h5>
+<h5>LINK: https://youtu.be/qyXVqNPMQT8</h5> <h5>December 28, 2019</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>2,282 views  Dec 28, 2019</h6>
+
 <p>There are more than 150 cases of UFOs & USOs (unidentified submersible objects) off 
 the southern California coast. But there are only a few humanoid cases. This video 
 presents a rare case in which multiple USOs were seen, as well as humanoids. The case 
@@ -8896,7 +9253,10 @@ BASE, now available on amazon.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/PMG9VT0OL7o" target="_blank" rel="noopener noreferrer">EPISODE #005. 
 THE MOST WIDELY VIEWED SCHOOLYARD UFO ENCOUNTERS</a>.</h3>
-<h5>LINK: https://youtu.be/PMG9VT0OL7o</h5>                                                             <h5>October 26, 2019</h5>
+
+<h5>LINK: https://youtu.be/PMG9VT0OL7o</h5>
+
+<h5>October 26, 2019</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>1,526 views  Oct 26, 2019</h6>
 <p>For the past 170 years, schools have been targeted by UFOs. There are more than 100 
@@ -8906,7 +9266,10 @@ for our children. This video explores 17 of the most widely viewed cases.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/DUJnguJliGA" target="_blank" rel="noopener noreferrer">EPISODE #004. 
 NOT FROM HERE: SELECTED UFO ARTICLES VOLUME THREE</a>.</h3>
-<h5>LINK: https://youtu.be/DUJnguJliGA</h5>                                                             <h5>September 8, 2018</h5>
+
+<h5>LINK: https://youtu.be/DUJnguJliGA</h5>
+
+<h5>September 8, 2018</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>2,169 views  Sep 8, 2018</h6>
 <p>This video is all about my book, "Not from Here: Volume Three" which covers the 
@@ -8917,9 +9280,13 @@ alien anal probes, and cases in which people try to build their own UFO engine.<
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/N4lPUztiIWY" target="_blank" rel="noopener noreferrer">EPISODE #003. 
 PHONE CALL FROM AN ET</a>.</h3>
-<h5>LINK: https://youtu.be/N4lPUztiIWY</h5>                                                             <h5>November 25, 2017</h5>
+
+<h5>LINK: https://youtu.be/N4lPUztiIWY</h5>
+
+<h5>November 25, 2017</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>3,507 views  Nov 25, 2017</h6>
+
 <p>Have you ever received a phone call from an ET? As fantastic as it sounds, some people 
 have. UFO contact comes in many different forms, including by telephone. In this video I 
 present several cases in which people have held telephone conversations with 
@@ -9014,10 +9381,15 @@ continue to take place so next time the phone  rings who knows just might be an 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/3i3ffK48nc4" target="_blank" rel="noopener noreferrer">EPISODE #002. 
 INSIDE UFOS: TRUE ACCOUNTS OF CONTACT</a>.</h3>
-<h5>LINK: https://youtu.be/3i3ffK48nc4</h5>                                                             <h5>October 28, 2017</h5>
+
+<h5>LINK: https://youtu.be/3i3ffK48nc4</h5>
+
+<h5>October 28, 2017</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>2,142 views  Oct 28, 2017</h6>
+
 <h6>TRANSCRIPT</h6>
+
 <p>In this video, I describe all ten cases in my book, "Inside UFOs." A paperboy meets a 
 green-skinned ET, a teacher meets a friendly Nordic, a Navy medic meets a 15-foot-talls 
 Praying Mantis, a housewife meets a 12-foot tall humanoids and more. The aliens have 
@@ -9091,10 +9463,13 @@ I tried. And now you have a good idea of what's inside "Inside UFOs" thanks for 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/X62q_xRyixs" target="_blank" rel="noopener noreferrer">EPISODE #001. 
 MINING DATA ON UFOS</a>.</h3>
+
 <h5>LINK: https://youtu.be/X62q_xRyixs</h5>
+
 <h5>August 28, 2017</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h6>1,831 views  Oct 28, 2017</h6>
+
 <p>Are UFOs mining the precious metals of our planet? The answer is: yes! They have been 
 seen over iron mines, copper mines, gold mines, titanium mines, uranium mines and 
 more. In many of these cases, the UFOs land and entities are seen. In some cases, the 
