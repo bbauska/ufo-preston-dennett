@@ -1,10 +1,10 @@
 
 <h1>ufo-dennett</h1>
 
-        <h2>UFO incidences written about by Preston Dennett from 2017 to 2025. UFO info is dated 
-		from 1930's worldwide.</h2>
+<h2>UFO incidences written about by Preston Dennett from 2017 to 2025. UFO info is dated 
+from 1930's worldwide.</h2>
 
-        <h3>UFO incidences dated, early-20th century - 2025, worldwide.</h3>
+<h3>UFO incidences dated, early-20th century - 2025, worldwide.</h3>
         <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #285 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
         <h2 class="chapter-title"><a href="https://youtu.be/E9c5mov1PcA" target="_blank" 
           rel="noopener noreferrer">EPISODE #285.<br>
