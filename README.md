@@ -13,9 +13,9 @@ from 1930's worldwide.</h2>
           UFO ENCOUNTERS</a></h2>
         <article>
           <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Sep 5, 2025</h5>
+<h5>Sep 5, 2025</h5>
 
-          <p class="tallFirstLetter">Onboard UFO encounters are perhaps the most extensive and interesting of all UFO experiences. They are also the most controversial. Skeptics try to explain these reports as the results of hoaxes, hallucinations, misperceptions or mental illness. But an objective examination of the reports refutes these explanations. The fact is, cases like these have occurred for over 100 years, come from across the planet, and are reported by a wide variety of people. There is a reason these visitors are coming to our planet, and as the onboard cases show, the reason is us! This video presents seven little known onboard UFO encounters, each adding another piece of the puzzle toward solving the UFO mystery.</p>
+<p class="tallFirstLetter">Onboard UFO encounters are perhaps the most extensive and interesting of all UFO experiences. They are also the most controversial. Skeptics try to explain these reports as the results of hoaxes, hallucinations, misperceptions or mental illness. But an objective examination of the reports refutes these explanations. The fact is, cases like these have occurred for over 100 years, come from across the planet, and are reported by a wide variety of people. There is a reason these visitors are coming to our planet, and as the onboard cases show, the reason is us! This video presents seven little known onboard UFO encounters, each adding another piece of the puzzle toward solving the UFO mystery.</p>
 
           <p><b>I WAS COMPLETELY PARALYZED</b>. On <b>November 2, 1954</b>, Maurilio Braga Godoi was walking to his home in Santo Amaro, Brazil, and came upon a landed UFO. He wanted to run but felt himself drawn inside it. He saw a glowing map on a weird table. He was met by three short humanoids with dark skin and dark hair, wearing gray jumpsuits, who were interested in examining him. He was taken on a tour over South America and was given a strange liquid to drink before being returned. The case was investigated by the Brazilian military who classified it as unknown.</p>
 
