@@ -1,4 +1,3 @@
-
 <h1>ufo-dennett</h1>
 
 <h2>UFO incidences written about by Preston Dennett from 2017 to 2025. UFO info is dated 
@@ -15,23 +14,82 @@ UFO ENCOUNTERS</a></h2>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h5>Sep 5, 2025</h5>
 
-<p class="tallFirstLetter">Onboard UFO encounters are perhaps the most extensive and interesting of all UFO experiences. They are also the most controversial. Skeptics try to explain these reports as the results of hoaxes, hallucinations, misperceptions or mental illness. But an objective examination of the reports refutes these explanations. The fact is, cases like these have occurred for over 100 years, come from across the planet, and are reported by a wide variety of people. There is a reason these visitors are coming to our planet, and as the onboard cases show, the reason is us! This video presents seven little known onboard UFO encounters, each adding another piece of the puzzle toward solving the UFO mystery.</p>
+<p class="tallFirstLetter">Onboard UFO encounters are perhaps the most extensive 
+and interesting of all UFO experiences. They are also the most controversial. 
+Skeptics try to explain these reports as the results of hoaxes, hallucinations, 
+misperceptions or mental illness. But an objective examination of the reports 
+refutes these explanations. The fact is, cases like these have occurred for over 
+100 years, come from across the planet, and are reported by a wide variety of 
+people. There is a reason these visitors are coming to our planet, and as the 
+onboard cases show, the reason is us! This video presents seven little known 
+onboard UFO encounters, each adding another piece of the puzzle toward solving 
+the UFO mystery.</p>
 
-<p><b>I WAS COMPLETELY PARALYZED</b>. On <b>November 2, 1954</b>, Maurilio Braga Godoi was walking to his home in Santo Amaro, Brazil, and came upon a landed UFO. He wanted to run but felt himself drawn inside it. He saw a glowing map on a weird table. He was met by three short humanoids with dark skin and dark hair, wearing gray jumpsuits, who were interested in examining him. He was taken on a tour over South America and was given a strange liquid to drink before being returned. The case was investigated by the Brazilian military who classified it as unknown.</p>
+<p><b>I WAS COMPLETELY PARALYZED</b>. On <b>November 2, 1954</b>, Maurilio Braga 
+Godoi was walking to his home in Santo Amaro, Brazil, and came upon a landed UFO. 
+He wanted to run but felt himself drawn inside it. He saw a glowing map on a 
+weird table. He was met by three short humanoids with dark skin and dark hair, 
+wearing gray jumpsuits, who were interested in examining him. He was taken on 
+a tour over South America and was given a strange liquid to drink before being 
+returned. The case was investigated by the Brazilian military who classified 
+it as unknown.</p>
 
-<p><b>I WAS SO SCARED</b>. Gerardo Scharff had an abusive childhood and was used as a slave by a ruthless dairy farmer in Villa Maria, Argentina. He prayed nightly for help. One <b>night in May 1966</b>, at age 12, a strange craft landed, and tall beings brought him onboard. They asked him about his life and gave him a tour of the craft. He was taken into space and shown the solar system. He was taken to another planet and shown an alien city. He was examined, fed a strange liquid, given prophecies of future events, and then returned. The ETs soon visited him again, providing food and helping to free him from his abusive situation.</p>
+<p><b>I WAS SO SCARED</b>. Gerardo Scharff had an abusive childhood and was 
+used as a slave by a ruthless dairy farmer in Villa Maria, Argentina. He 
+prayed nightly for help. One <b>night in May 1966</b>, at age 12, a strange 
+craft landed, and tall beings brought him onboard. They asked him about his 
+life and gave him a tour of the craft. He was taken into space and shown the 
+solar system. He was taken to another planet and shown an alien city. He was 
+examined, fed a strange liquid, given prophecies of future events, and then 
+returned. The ETs soon visited him again, providing food and helping to free 
+him from his abusive situation.</p>
 
-<p><b>THEY WERE FRIENDLY</b>. One <b>morning in July 1974</b>, three teenage boys from Fairview, NJ, were walking home after playing basketball when a UFO appeared overhead. Suddenly, they found themselves inside. One of the witnesses saw his two friends being examined by gray aliens, who spoke with him telepathically. He believes they were helping his friends with their heart conditions. He counted about 25 grays. Looking out a porthole, he saw his hometown below him. Suddenly, all three were returned, and he watched the craft depart. His two friends had missing time, and had no memory of being onboard.</p>
+<p><b>THEY WERE FRIENDLY</b>. One <b>morning in July 1974</b>, three teenage 
+boys from Fairview, NJ, were walking home after playing basketball when a UFO 
+appeared overhead. Suddenly, they found themselves inside. One of the witnesses 
+saw his two friends being examined by gray aliens, who spoke with him telepathically. 
+He believes they were helping his friends with their heart conditions. He counted 
+about 25 grays. Looking out a porthole, he saw his hometown below him. Suddenly, 
+all three were returned, and he watched the craft depart. His two friends had 
+missing time, and had no memory of being onboard.</p>
 
-<p><b>THEY ONLY WANTED TO HELP ME</b>. On the <b>night of February 28, 1984</b>, Tom Fraser had a horrific motorbike accident in Guildford, England. Moments before hitting the ground, he saw a glowing light in the sky. In the seconds following the accident, he himself badly injured, lying on a table onboard a UFO. Gray ETs promised to heal him and said they had a mission for him. Tom was healed, and given a tour of the craft. His next memory was of waking up in a hospital with only a broken arm, which shocked the doctors as they thought he should be much more severely injured.</p>
+<p><b>THEY ONLY WANTED TO HELP ME</b>. On the <b>night of February 28, 1984</b>, 
+Tom Fraser had a horrific motorbike accident in Guildford, England. Moments 
+before hitting the ground, he saw a glowing light in the sky. In the seconds 
+following the accident, he himself badly injured, lying on a table onboard a 
+UFO. Gray ETs promised to heal him and said they had a mission for him. Tom 
+was healed, and given a tour of the craft. His next memory was of waking up 
+in a hospital with only a broken arm, which shocked the doctors as they thought 
+he should be much more severely injured.</p>
 
-<p><b>WE’RE JUST CURIOUS</b>. On the <b>night of October 13, 1994</b>, a college student was asleep in her dorm-room in Buffalo, NY, when she woke up being levitated out of her room. Seconds later, she found herself on a metal table, unable to move, being examined by gray aliens. They communicated with her telepathically, reassuring her that they meant no harm. Suddenly she awoke back in her room. She later found a strange mark on her lower back.</p>
+<p><b>WE’RE JUST CURIOUS</b>. On the <b>night of October 13, 1994</b>, a college 
+student was asleep in her dorm-room in Buffalo, NY, when she woke up being 
+levitated out of her room. Seconds later, she found herself on a metal table, 
+unable to move, being examined by gray aliens. They communicated with her 
+telepathically, reassuring her that they meant no harm. Suddenly she awoke 
+back in her room. She later found a strange mark on her lower back.</p>
 
-<p><b>I WAS EXTREMELY SCARED</b>. On the <b>night of June 16, 2002</b>, two 9-year-old cousins were taking a walk near their home in Blanchard, OK when they felt a weird vibration, followed by a strange darkness. A loud whooshing sound came next and suddenly they saw a large craft hover and land next to them. Three grays appeared and pulled them onboard the craft and examined them. One of them also saw a human-looking figure onboard. He also saw a tub of black liquid, before being returned. They found out that their parents had been searching for them for over an hour.</p>
+<p><b>I WAS EXTREMELY SCARED</b>. On the <b>night of June 16, 2002</b>, two 9-year-old 
+cousins were taking a walk near their home in Blanchard, OK when they felt a weird 
+vibration, followed by a strange darkness. A loud whooshing sound came next and 
+suddenly they saw a large craft hover and land next to them. Three grays appeared 
+and pulled them onboard the craft and examined them. One of them also saw a human-looking 
+figure onboard. He also saw a tub of black liquid, before being returned. They found out 
+that their parents had been searching for them for over an hour.</p>
 
-<p><b>IT GOT EXTREMELY BIZARRE</b>. One <b>night in October 2010</b>, Frank woke up to find himself on the balcony of his apartment in Harleysville, PA. Directly overhead was a large craft. He felt himself floating upwards. Moments later, he was inside the craft. He was unable to focus his eyes, but recalls being physically examined by humanoid beings, and then suddenly waking up sitting, up in bed. After another later encounter, he decided that it was time to seek help.</p>
+<p><b>IT GOT EXTREMELY BIZARRE</b>. One <b>night in October 2010</b>, Frank woke up to 
+find himself on the balcony of his apartment in Harleysville, PA. Directly overhead 
+was a large craft. He felt himself floating upwards. Moments later, he was inside the 
+craft. He was unable to focus his eyes, but recalls being physically examined by 
+humanoid beings, and then suddenly waking up sitting, up in bed. After another later 
+encounter, he decided that it was time to seek help.</p>
 
-<p>These seven cases represent the tip of the iceberg. None of these witnesses needed hypnosis to recall their encounters. None of them are seeking attention. This sort of experience is far more common than most people believe. It represents the very heart of the UFO phenomenon. And it also has the potential to answer the many questions surrounding extraterrestrial contact. For that reason alone, these cases should be taken seriously.</p>
+<p>These seven cases represent the tip of the iceberg. None of these witnesses needed 
+hypnosis to recall their encounters. None of them are seeking attention. This sort of 
+experience is far more common than most people believe. It represents the very heart 
+of the UFO phenomenon. And it also has the potential to answer the many questions 
+surrounding extraterrestrial contact. For that reason alone, these cases should be 
+taken seriously.</p>
 
 <p><a href="https://prestondennett.weebly.com/">PRESTON DENNETT WEBSITE</a>.</p>
 </article>
@@ -60,24 +118,67 @@ HUMANOID ENCOUNTERS</a></h2>
   hand signals for Francesco to approach. A second humanoid appeared calling the first 
   one back inside, and the craft took off.</p>
 
-<p><b>A NICE LITTLE MAN</b>. Throughout <b>October and November of 1965</b>, a massive UFO wave struck the city of Mogi-Guacu, in Sao Paolo, Brazil. There were thousands of witnesses, but only a few saw humanoids such as one farm family who seemed to be a target when craft landed at least twice on their farm, humanoids came out and gathered samples from the ground. It was one of many other humanoid cases in the area.</p>
+<p><b>A NICE LITTLE MAN</b>. Throughout <b>October and November of 1965</b>, a massive 
+UFO wave struck the city of Mogi-Guacu, in Sao Paolo, Brazil. There were thousands of 
+witnesses, but only a few saw humanoids such as one farm family who seemed to be a 
+target when craft landed at least twice on their farm, humanoids came out and gathered 
+samples from the ground. It was one of many other humanoid cases in the area.</p>
 
-<p><b>I WILL DENY IT</b>. One <b>night in October 1968</b>, a pastor and three female high-school students drove along a remote road near Hastings, North Dakota when a UFO began to pace their car. The two girls in the backseat watched excitedly as they saw short gray humanoids looking down at them. Strangely, the pastor and the girl in front refused to even look. The UFO followed them for several miles then quickly darted off.</p>
+<p><b>I WILL DENY IT</b>. One <b>night in October 1968</b>, a pastor and three female 
+high-school students drove along a remote road near Hastings, North Dakota when a UFO 
+began to pace their car. The two girls in the backseat watched excitedly as they saw 
+short gray humanoids looking down at them. Strangely, the pastor and the girl in front 
+refused to even look. The UFO followed them for several miles then quickly darted off.</p>
 
-<p><b>NO SATISFACTORY EXPLANATION</b>. On the <b>night of October 1, 1975</b>, two young men from Hakushu, Japan took a drive into the foothills of the southern Alps. Right after parking their car in an empty parking lot, one of the men saw strange humanoids around the car. Suddenly the car was drawn backwards several times. They drove off in fear. They returned later and the same thing happened again.</p>
+<p><b>NO SATISFACTORY EXPLANATION</b>. On the <b>night of October 1, 1975</b>, two young 
+men from Hakushu, Japan took a drive into the foothills of the southern Alps. Right 
+after parking their car in an empty parking lot, one of the men saw strange humanoids 
+around the car. Suddenly the car was drawn backwards several times. They drove off in 
+fear. They returned later and the same thing happened again.</p>
 
-<p><b>DON’T BE SCARED</b>. At age 7, David woke up in the bedroom of his home in Plattsmouth, Nebraska to see a gray alien staring at him. It told him, ‘Don’t be scared, turn around,” which he did. When he looked back, the gray was gone. He woke up his brother who slept in the same room, and moments later, they saw the gray again peeking into the doorway.</p>
+<p><b>DON’T BE SCARED</b>. At age 7, David woke up in the bedroom of his home in 
+Plattsmouth, Nebraska to see a gray alien staring at him. It told him, ‘Don’t be 
+scared, turn around,” which he did. When he looked back, the gray was gone. He woke 
+up his brother who slept in the same room, and moments later, they saw the gray 
+again peeking into the doorway.</p>
 
-<p><b>DID YOU SEE WHAT I JUST SAW?</b> One <b>morning in May 1976</b>, two men were driving along a road just outside of Valdez, Alaska, when they saw a UFO landed in the field right along the highway. To their amazement, a ramp opened up and two gray ETs emerged. They seemed to be in a hurry. The men drove on but immediately turned around. When they returned, the craft was gone.</p>
+<p><b>DID YOU SEE WHAT I JUST SAW?</b> One <b>morning in May 1976</b>, two men 
+were driving along a road just outside of Valdez, Alaska, when they saw a UFO 
+landed in the field right along the highway. To their amazement, a ramp opened 
+up and two gray ETs emerged. They seemed to be in a hurry. The men drove on but 
+immediately turned around. When they returned, the craft was gone.</p>
 
-<p><b>NOT OF THIS WORLD</b>. On the <b>night of July 25, 1982</b>, world-famous bullfighter, Rafale Peralta was driving near Punta Umbria, Spain, when he noticed strange lights along the beach. He stopped his car and went to investigate. To his shock, he came upon a landed UFO and a 7-foot-tall silver-suited humanoid. The being tried to speak, but when Rafael answered, the being returned to the craft and departed.</p>
+<p><b>NOT OF THIS WORLD</b>. On the <b>night of July 25, 1982</b>, world-famous 
+bullfighter, Rafale Peralta was driving near Punta Umbria, Spain, when he 
+noticed strange lights along the beach. He stopped his car and went to 
+investigate. To his shock, he came upon a landed UFO and a 7-foot-tall 
+silver-suited humanoid. The being tried to speak, but when Rafael answered, 
+the being returned to the craft and departed.</p>
 
-<p><b>I CONTINUE TO WONDER</b>. On the <b>night of October 27, 2010</b>, Carlos woke up in his apartment in Albuquerque, New Mexico, to see a UFO hovering outside his window. Suddenly he sensed grays in his apartment and felt like he was put to sleep. Later, he awoke and saw one of the grays staring at him through the window and then was put to sleep again. He awoke again just in time to watch the UFO depart.</p>
+<p><b>I CONTINUE TO WONDER</b>. On the <b>night of October 27, 2010</b>, Carlos 
+woke up in his apartment in Albuquerque, New Mexico, to see a UFO hovering outside 
+his window. Suddenly he sensed grays in his apartment and felt like he was put to 
+sleep. Later, he awoke and saw one of the grays staring at him through the window 
+and then was put to sleep again. He awoke again just in time to watch the UFO depart.</p>
 
-<p><b>A CREATURE IN OUR HOME</b>. On <b>October 22, 2015</b>, Emma (of New York State) dreamed that she saw a gray alien crouching under her dining room table. Suddenly she was waking up in bed to a loud crashing noise. Her husband leaped out of bed and into the dining room to see that a small table had broken and spilled its contents. Their burglar alarm was malfunctioning, and they both saw strange orbs outside.</p>
+<p><b>A CREATURE IN OUR HOME</b>. On <b>October 22, 2015</b>, Emma (of New York 
+State) dreamed that she saw a gray alien crouching under her dining room table. 
+Suddenly she was waking up in bed to a loud crashing noise. Her husband leaped 
+out of bed and into the dining room to see that a small table had broken and 
+spilled its contents. Their burglar alarm was malfunctioning, and they both 
+saw strange orbs outside.</p>
 
-<p><b>I FELT I WAS BEING TAGGED</b>. It was <b>October 6, 2023</b>, and struggling from a recent divorce, Chris took a drive near his home in Olympia, Washington, to vent his emotion. Stopping his car over a bridge, he screamed. At that moment, he felt electricity jolt through him and looked up, saw two craft with three gray ETs looking down at him. He felt a telepathic link as they suddenly flew off, but since then, continues to feel that they are observing him.</p>
-<p>A face-to-face encounter with a humanoid being is one of the most life-changing experiences a person can have. Only a person who has had this experience can truly understand how transformative it is. There are now many thousands of documented cases, and some researchers believe they may number in the millions. There are too many cases to deny or explain away. We are being visited!</p>
+<p><b>I FELT I WAS BEING TAGGED</b>. It was <b>October 6, 2023</b>, and struggling 
+from a recent divorce, Chris took a drive near his home in Olympia, Washington, 
+to vent his emotion. Stopping his car over a bridge, he screamed. At that moment, 
+he felt electricity jolt through him and looked up, saw two craft with three gray 
+ETs looking down at him. He felt a telepathic link as they suddenly flew off, but 
+since then, continues to feel that they are observing him.</p>
+<p>A face-to-face encounter with a humanoid being is one of the most life-changing 
+experiences a person can have. Only a person who has had this experience can truly 
+understand how transformative it is. There are now many thousands of documented 
+cases, and some researchers believe they may number in the millions. There are 
+too many cases to deny or explain away. We are being visited!</p>
 <p>PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/</p>
   </article>
   <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #283 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
@@ -87,13 +188,13 @@ ON A<br>
 DESERT HIGHWAY</a></h2>
   <article>
 <h5>Aug 22, 2025</h5>
-<p class="tallFirstLetter">On the <b>evening of September 14, 1978</b>, Susan Ware (an artist 
-  and former 3rd Class Petty Officer in the US Navy) and her friend Karen drove along 
-  a remote highway in the deserts of central Utah. It was a beautiful night as the moon 
-  rose, and the stars shone brightly in the clear night sky. But suddenly, things changed. 
-  An eerie darkness settled over the area, blotting out their view of the sky above. Then, 
-  without warning, Karen, (who was driving) slammed on the brakes and came to a stop. Ahead 
-  of them on the highway, they saw something astonishing. A group of twenty oversized 
+<p class="tallFirstLetter">On the <b>evening of September 14, 1978</b>, Susan Ware 
+  (an artist and former 3rd Class Petty Officer in the US Navy) and her friend Karen 
+  drove along a remote highway in the deserts of central Utah. It was a beautiful night as 
+  the moon rose, and the stars shone brightly in the clear night sky. But suddenly, things 
+  changed. An eerie darkness settled over the area, blotting out their view of the sky above. 
+  Then, without warning, Karen, (who was driving) slammed on the brakes and came to a stop. 
+  Ahead of them on the highway, they saw something astonishing. A group of twenty oversized 
   jackrabbits were blocking the road. The rabbits stood unmoving, like sentries, their 
   backs facing the vehicle. The astonished women exited the car and stared with disbelief. 
   The jackrabbits were far too large to be normal, and their lack of movement betrayed the 
@@ -103,6 +204,7 @@ DESERT HIGHWAY</a></h2>
   became silent, a blinding light shone down on them from above, and all the rabbits turned 
   around in one smooth, synchronized movement. Susan screamed. The rabbits were no longer 
   rabbits: they were gray aliens!</p>
+
 <p>The next thing Susan and Karen knew, it was morning, nine hours had passed, and they 
   were in a small diner in Grand Junction, Colorado, hundreds of miles away from their 
   original location. Both women stared around them in astonishment. Susan’s mind instantly 
@@ -113,11 +215,13 @@ DESERT HIGHWAY</a></h2>
   drive earlier that evening. She didn’t remember anything about the encounter itself. Both 
   women had no idea how they got to the diner. And both felt physically ill with burns on 
   their skin, a raging thirst, nausea and more.</p>
+  
 <p>Unable to understand and process the experience, both women moved on with their lives. 
   As Susan recovered, she remembered that as a child, she had several encounters with 
   strange humanoids looking in through the window of her home. Joining the Navy as a 
   young woman, she had several UFO sightings. Once while camping with friends in the 
   desert, she had an astonishing close-up sighting.</p>
+  
 <p>For decades, she did her best to forget about her strange experiences, particularly 
   the encounter on the desert highway. She got married, had children and did her best to 
   live a normal life. But throughout the years, she continued to have experiences with 
@@ -125,12 +229,14 @@ DESERT HIGHWAY</a></h2>
   synchronicities, remote viewing, even a couple of Bigfoot encounters. But always, in 
   the back of her mind, was the encounter on the desert highway. What happened that night? 
   What had occurred during those nine hours of missing time?</p>
+
 <p>Finally, the time came when Susan realized it was time to figure things out. Her 
   children had grown up. She was  separated from her husband. She no longer had to 
   worry about what other people might think. She went to her computer and typed in 
   the word UFO. To her amazement, the film, “Alien Abduction Answers,” by John Yost 
   had just been released that very day. This incredible synchronicity inspired her 
   to reach out to John Yost. This led to her meeting hypnotherapist Debz Shakti.</p>
+
 <p>Under hypnosis, Susan recalled being pulled onboard a craft along with her friend 
   Karen. She found herself in a small room with soft blue walls. A small gray stood 
   next to her. Susan asked if she could touch the being, and it said yes. It then 
@@ -138,13 +244,17 @@ DESERT HIGHWAY</a></h2>
   starving and more. The gray warned her that Susan had to do her best to warn the 
   world about the dangers of human aggression. She was physically examined, and she 
   believes she may have been healed. Both women were returned to Earth.</p>
+
 <p>Going under hypnosis turned out to be a turning point in Susan’s life. She overcame 
   the fear of her encounter and finally had answers about what happened. She sought 
   the help of researchers like Richard Banasiak and Earl Grey of MUFON. Susan’s case 
   garnered a lot of attention and was voted as MUFON’s best case of the year for 2023.</p>
+
 <p>Susan’s story is also told in my book, “Humanoids and High Strangeness: Twenty True 
   UFO Encounters.” Now available!</p>
+
 <h4>LINKS</h4>
+
 <ul>
   <li><a href="https://www.youtube.com/watch?v=ENVCS4Vy4wc">THE JACKRABBIT CASE</a></li>
   <li><a href="">THE LIGHT GATE Welcomes Susan Ware-ET/UFO ...</a></li>
@@ -333,23 +443,24 @@ are supported by compelling evidence: landing traces, medical effects, animal re
 EM disturbances, radar returns and startling photographs. This series proves beyond a 
 reasonable doubt that we are not alone in this universe.</p>
 
-<p><b>PITTSBURGH, PENNSYLVANIA</b>. In <b>1948</b>, military pilots saw strange objects in the skies. 
-More sightings occurred in the <b>1950s</b>, which also produced startling cases of direct 
-contact. In <b>1950</b>, a woman reports that small humanoids entered her home and communicated 
-with her telepathically. In <b>1954</b>, a girl came upon a landed craft and a humanoid. In 
-<b>1964</b>, a man was taken onboard a craft and examined. In <b>1967</b>, a grade-school student 
-had a strange encounter with a gray alien who had a profound message for her. Another 
-young girl reports she was taken onboard a craft and given a medical exam by grays. In 
-<b>1978</b>, more than 200 people observed a large craft moving over the city. On <b>May 5, 1982</b>, 
-calls flooded the local police stations from people reporting UFOs. The <b>1980s</b> brought 
-more startling encounters, including a couple who saw a disc over the Birmingham Bridge, 
-and man who collided into a UFO while driving. In the years that followed, Pittsburgh 
-produced more encounters, making it clear that the city is of great interest to the ETs.</p>
+<p><b>PITTSBURGH, PENNSYLVANIA</b>. In <b>1948</b>, military pilots saw strange objects in the 
+skies. More sightings occurred in the <b>1950s</b>, which also produced startling cases of 
+direct contact. In <b>1950</b>, a woman reports that small humanoids entered her home and communicated with her telepathically. In <b>1954</b>, a girl came upon a landed craft and 
+a humanoid. In <b>1964</b>, a man was taken onboard a craft and examined. In <b>1967</b>, a grade-school student had a strange encounter with a gray alien who had a profound message 
+for her. Another young girl reports she was taken onboard a craft and given a medical exam 
+by grays. In <b>1978</b>, more than 200 people observed a large craft moving over the city. 
+On <b>May 5, 1982</b>, calls flooded the local police stations from people reporting UFOs. 
+The <b>1980s</b> brought more startling encounters, including a couple who saw a disc over 
+the Birmingham Bridge, and man who collided into a UFO while driving. In the years that 
+followed, Pittsburgh produced more encounters, making it clear that the city is of great 
+interest to the ETs.</p>
 
 <p><b>PITTSBURG, CALIFORNIA</b>. This area has produced some very close encounters. In 
-<b>1977</b>, three boys were out hiking when a UFO landed nearby, and three strange humanoids chased them for several blocks. In 2009, a man observed a UFO so close to his home, his windows 
-vibrated from the humming sound it produced. In 2014, a group of witnesses gathered in a 
-McDonald’s Restaurant Parking lot and observed strange craft at very elevation.</p>
+<b>1977</b>, three boys were out hiking when a UFO landed nearby, and three strange 
+humanoids chased them for several blocks. In 2009, a man observed a UFO so close to 
+his home, his windows vibrated from the humming sound it produced. In 2014, a group of 
+witnesses gathered in a McDonald’s Restaurant Parking lot and observed strange craft at 
+very elevation.</p>
 
 <p><b>ATTLEBORO, MASSACHUSETTS</b>. In addition to many cases of anomalous lights, this city has 
 some truly amazing cases. In <b>December 1975</b>, an entire family observed a spherical craft 
@@ -630,7 +741,7 @@ particularly unusual cases. In each of these cases, the witnesses not only held
 conversations with the ETs, but they were given information that impacted them for the 
 rest of their lives.</p>
  
-<p><span class="bigBoy">THE ALIEN PLAN</span>. One evening in April 1962, five-year-old Worthington White woke up in his 
+<p><span class="bigBoy">THE ALIEN PLAN</span>. One <b>evening in April 1962</b>, five-year-old Worthington White woke up in his 
 grandmother’s home in Quantico, Virginia to see light flooding into his bedroom through 
 the attic door. He noticed three short child-like figures standing in the room. One of 
 them approached and began to communicate telepathically, downloading information into 
@@ -640,7 +751,7 @@ challenges, but the advice given to him by the ETs appeared in his mind and help
 the course of his life, eventually putting him in an incredibly influential career at 
 the very top of the US government.</p>
 
-<p><span class="bigBoy">A GRAY SAT NEXT TO ME</span>. One night in June 1963, seventeen-year-old Victor was driving 
+<p><span class="bigBoy">A GRAY SAT NEXT TO ME</span>. One <b>night in June 1963</b>, seventeen-year-old Victor was driving 
 along a remote road in Deptford, New Jersey. Without warning, his headlights failed, 
 his car engine quit, and he rolled to a stop. A sudden inexplicable and overwhelming 
 fear swept through him and he realized someone was sitting next to him in his car. 
