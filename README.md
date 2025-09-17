@@ -2,8 +2,49 @@
 
 <h2>UFO incidences written about by Preston Dennett from 2017 to 2025. UFO info is dated 
 from 1930's worldwide.</h2>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #285 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title"><a href="https://youtu.be/E9c5mov1PcA" target="_blank" 
+rel="noopener noreferrer">EPISODE #285.<br>
+SEVEN AMAZING<br>
+ONBOARD<br>
+UFO ENCOUNTERS</a></h2>
+<article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h5>Sep 5, 2025</h5>
 
 <h3>UFO incidences dated, early-20th century - 2025, worldwide.</h3>
+transcript-286-25-09-12.txt
+https://youtu.be/a6MLY_L6oU0
+I MET AN EXTRATERRESTRIAL: TEN FIRST-HAND FACE-TO-FACE ENCOUNTERS
+Sep 12. 2025
+
+Summary:
+Sep 12, 2025
+The extraterrestrial presence on our planet has reached a point of undeniability. The vast number of reports of metallic craft and humanoids speak for themselves. In the past 100 years alone, there have been millions of documented cases coming from across the world. This video presents ten firsthand accounts involving close-up encounters with humanoids of many different kinds. The humanoid cases represent the heart of the UFO phenomenon. Most researchers agree that they represent a superior intelligence and a more advanced technology than that of humans. For these reasons alone, these cases are of tremendous importance to all humanity.
+
+A TRIP TO UNKNOWN PLACES. December 9, 1954, farmer Giovanni Aquilante of Gricignano D’Aversa, Italy went missing. Two days later, he reappeared with an incredible story to tell. He said he had encountered two small humanoids who had lifted him into the sky. He couldn’t remember much of what happened to him and came back confused and traumatized. He was also healed of a serious bone disease.
+
+TWO BEINGS APPROACHED US. On the night of July 10, 1965, a couple was motorbiking in the forests outside of Ganserndorf, Austria when a large disc-shaped craft hovered overhead and landed in a nearby field. They approached on their bike, but the engine failed. Walking on foot, they were shocked to see two tall humanoids in uniforms observing them. Shortly later, the ETs returned to their craft and flew away.
+
+LITTLE MEN OF GREAT LEARNING. On September 10, 1965, Antonio da Silva was in his farm fields in Pau Ferro. Brazil when two small silver discs landed nearby. Two little men about 3 feet tall emerged and approached Antonio, speaking a foreign language. Antonio was terrified but said that the men seemed very friendly. After a short meeting, the little men returned to their craft and departed the area.
+
+THE SING-SONG ALIENS. On July 17, 1967, a group of young children were playing in the fields outside the small town of Arc-Sous-Cicon, France. One of the little girls was shocked to encounter four little men in black suits. She ran off. Soon another witness saw and heard the beings. Afterwards, strange marks were found in the field and over the next two nights, a wave of UFO sightings hit the area.
+
+SOMETHING UNUSUAL AND EXTRAORDINARY. On the night of September 25, 1967, a young, engaged couple was driving through the hills outside of Sant Feliu de Codines, Spain when their headlights illuminated a strange figure in the road. They described it as short, fat, green, with long arms and thick legs. It walked directly in front of their vehicle, so close they almost struck it. The couple drove off in fear.
+
+I THINK THEY TRIED TO TAKE ME. On the night of March 17, 1986, farmer Rito Melgarejo was walking home in Santa Ana, Argentina when a flying saucer hovered and then landed in front of him. He was paralyzed in fear as two small humanoids in jumpsuits emerged. They spoke a strange language and used hand signals to persuade Rito to come onboard the craft. Terrified, Rito turned and ran.
+
+DO YOU BELIEVE IN ALIENS? One night in Fall 2008, Valerie woke up in her home in Breezewood, Pennsylvania to see a strange praying mantis reptilian humanoid standing by her bed. She was unable to move as the being told her telepathically that it wanted to borrow something from her and promised to return it. Valerie protested. Moments later, it departed, leaving Valerie with a strange mystery.
+
+YOU WILL KNOW IN TIME. Late on the night of August 24, 2013, Shawn was alone at Lake Arcadia in Edmond, Oklahoma, when he saw a strange glowing object moving underwater in the lake. Suddenly it shot out of the water. He soon saw a huge craft hovering nearby. Moments later, three tall human-like ETs appeared, and one of them had a message for him. Shawn had missing time and woke up two hours later.
+
+I NEVER ONCE FELT AFRAID. One night in Summer 2020, two young men saw a strange craft over Laramie, Wyoming. A few weeks later, one of the men was in his bedroom when a strange paralysis gripped him. Coming through the ceiling he saw three grays. One of them connected with him telepathically, providing a download of information, leaving the witness with more questions than answers.
+
+THE STRANGEST EXPERIENCE I EVER HAD. On the night of November 24, 2024, Oscar stepped out of a rented home in Monterrey Nuevo Leon, Mexico to get some air. A strange man approached. Oscar was shocked to see that the man had unusually large eyes, no visible ears and extra-long fingers. When the man began to communicate telepathically, he realized that the man was probably not human.
+
+These ten cases share remarkable similarities that appear consistently in humanoid reports. They also show unique details of high strangeness that raise many questions about extraterrestrial contact. Only by continuing research will we come to a consensus about the nature and origins of the UFO phenomenon.
+
+PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #285 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h2 class="chapter-title"><a href="https://youtu.be/E9c5mov1PcA" target="_blank" 
 rel="noopener noreferrer">EPISODE #285.<br>
