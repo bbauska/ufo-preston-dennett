@@ -3,18 +3,87 @@
 <h2>UFO incidences written about by Preston Dennett from 2017 to 2025. UFO info is dated 
   from 1930's worldwide.</h2>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #287 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h2 class="chapter-title"><a href="" target="_blank" 
-  rel="noopener noreferrer">EPISODE #287.<br>
-  <br>
-  <br>
-  <br>
-  </a></h2>
+<h2 class="chapter-title"><a href="https://youtu.be/XShD5OKoz4Y" target="_blank" 
+  rel="noopener noreferrer">EPISODE #287. TEN<br>
+  TRULY STRANGE<br>
+  HUMANOID<br>
+  ENCOUNTERS</a></h2>
 <article>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h5>Sep 19, 2025</h5>
-<p class="tallFirstLetter">.</p>
+<p class="tallFirstLetter">Firsthand face-to-face encounters with humanoid extraterrestrials 
+are far more common than you might think. Cases like these have been reported for more than 
+100 years. They come from all over the world and involve a huge variety of extraterrestrials. 
+The striking similarities between cases widely separated geographically and chronologically 
+argue strongly for their veracity. Interestingly, many cases also contain rare or unique 
+details of high strangeness, which reveal that we still have much to much to learn about 
+extraterrestrial contact. This video presents ten little known cases that show these patterns, 
+each containing fascinating insights with volumes to teach us about the alien agenda.</p>
 
-<p><b></b></p>
+<p><b>EIGHT-FOOT-TALL ALIENS</b>. On <b>August 7, 1954</b>, two brothers were picking peas on 
+their family farm in Saint Bernard de Lacolle, Canada, when a glowing spherical-shaped craft 
+appeared and hovered overhead. Three 8-foot-tall humanoids emerged. The boys ran home and 
+alerted their family, who saw the UFO, as did several neighbors. Later strange landing traces 
+were found.</p>
+
+<p><b>THAT UFO WAS LOOKING FOR ME</b>. One <b>evening in November 1966</b>, three people observed 
+strange lights over their home in rural Medford, Oregon. The next night, the 8-year-old son went 
+outside and was shocked to see a 4-foot-tall dressed in sparkling blue clothes. As he fled in 
+panic, the being spoke sweetly to him telepathically. Nobody believed him, but later, the UFOs 
+would return.</p>
+
+<p><b>IT WAS NOT A MONSTER</b>. One afternoon in January 1967, an anonymous engineer was walking 
+in the woods near Riachuelo, Chile, when he saw an odd light through the trees. Approaching, he 
+was shocked to see a saucer-shaped craft hovering in a clearing. Moments later, a strange-looking 
+man appeared. He had white skin, long white hair and wore a transparent white uniform. He re-entered 
+the craft which left quickly.</p>
+
+<p><b>HE LOOKED DIRECTLY INTO MY EYES</b>. On the <b>night of August 18, 1971</b>, Jonah was camping in 
+the forests of Carmel Valley, California, when a gray alien entered his campsite. It approached the 
+witness and established a telepathic connection. It then placed an object beneath a log and left. Later, 
+the witness retrieved the object which turned out to be a book.</p>
+
+<p><b>WE CLUNG TO ONE ANOTHER WITH FEAR</b>. On the <b>night of August 18, 1978</b>, two young brothers 
+were driving near Harvey, Michigan. Suddenly a craft appeared overhead, and looking out at them from a 
+window in the craft were two humanoids. Terrified, the two boys fled the scene. Arriving home, they 
+reported the sighting to the local Air Force base. Shortly later, the UFO returned over their home.</p>
+
+<p><b>IT RETURNED EIGHT TIMES</b>. One <b>evening in August 1978</b>, the Martinhos family 
+of Fuseta, Portugal, were shocked by the appearance of a sphere-shaped craft hovering right 
+over their home. Over the next two months, the craft returned at least eight times. On one 
+occasion, it landed, and humanoids emerged. Later, it hovered next to the neighbor’s home. 
+A lady looked inside and saw two aliens.</p>
+
+<p><b>FATHER AND SON ALIENS</b>. Looking outside his living room on the <b>night of August 
+6, 1980</b>, Matthew saw strange lights outside his home in rural Mauston, Wisconsin. 
+Stepping outside to investigate, he saw a massive craft hovering overhead. To his amazement, 
+two humanoid figures were looking down at him. As they moved off, Matthew had the impression 
+that the two ETs were father and son.</p>
+
+<p><b>SOMETHING ALMOST DIVINE</b>. One <b>night in August 1993</b>, Carol was 7 years old 
+and enjoying a party with family and friend outside their home in St. Marys, Pennsylvania. 
+Suddenly a huge craft appeared overhead, Looking down through one of the windows was a 
+humanoid figure. Most of the group ran away in terror, but Carol and her mother watched in 
+fascination, with a strong sense that the ETs were friendly.</p>
+
+<p><b>SOMETHING VAGUELY HUMAN</b>. At <b>2am one night in June 2001</b>, two friends drove 
+along a remote road in rural Ballard County, Kentucky. Suddenly their headlights illuminated 
+a strange pale-skinned creature crawling in a ditch by the road. They stopped and it stood 
+up to reveal itself as a gray alien. They took off in fear, and the gray began to chase 
+their car down the road.</p>
+
+<p><b>I COULDN’T BELIEVE WHAT I WAS SEEING</b>. On <b>June 15, 2022</b>, Jeff stepped outside 
+his home in Albemarle, North Carolina, to smoke a cigarette and walk his dog. Suddenly a 
+strangely shaped craft appeared in the daylight sky. He called out his girlfriend and both 
+watched it move off. The next night, the girlfriend stepped outside and was confronted by a 
+short humanoid figure with large dark eyes.</p>
+
+<p>Ten cases, each taking us on a journey deep into the heart of the UFO phenomenon, each 
+revealing what it’s like to have a face-to-face encounter with a humanoid, each with 
+something to teach us about life beyond Earth. These cases are the tip of the iceberg. 
+There are countless other cases, showing us undeniably that humans are not the only 
+intelligent life in this universe.</p>
+
 <p><a href="https://prestondennett.weebly.com/">PRESTON DENNETT WEBSITE</a>.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #285 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h2 class="chapter-title"><a href="https://youtu.be/E9c5mov1PcA" target="_blank" 
