@@ -1,7 +1,47 @@
 <h1>ufo-dennett</h1>
 
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #288 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h2>UFO incidences written about by Preston Dennett from 2017 to 2025. UFO info is dated 
   from 1930's worldwide.</h2>
+<h2 class="chapter-title"><a href="" target="_blank" rel="noopener noreferrer">EPISODE #288. ALIENS<br>
+FROM OTHER<br>
+WORLDS: TEN<br>
+SHOCKING ENCOUNTERS</a></h2>
+<article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h5>Sep 26, 2025</h5>
+<p class="tallFirstLetter">Strange humanoids have been visiting our planet for a very long 
+time. Although the mainstream scientific community has been slow to accept the veracity of 
+such accounts, there are now so many cases that they have become impossible to ignore or 
+explain away. This video presents ten lesser-known cases involving a variety of ET types. 
+These cases show how shocking it can be to have an experience like this, and how it affects 
+a person for the rest of their lives. With so many people reporting humanoid encounters, 
+it is time to take them seriously and learn all we can about these mysterious visitors to 
+our planet.</p>
+
+I WILL REMEMBER THIS EVENT UNTIL THE DAY I DIE. One morning in 1946, Will (age 7) was in the basement of his aunt’s home in Cheviot, Ohio, when he sensed a presence. Turning around he found himself face-to-face with a short gray alien looking directly at him. A staring contest ensued, until Will became scared and fled the scene. It took him 60 years to find the courage to report his encounter.
+
+I WAS SO FRIGHTENED. On the afternoon of December 9, 1954, Olmiro da Costa was feeding his sheep and cows when a strange craft appeared over his farm in Linha, Bela Vista, Brazil. Three human-looking ETs emerged. At first frightened, one of the figures approached him and smiled, which reassured Olmiro. The ETs took some of his plants and re-entered their craft. This was one of many other humanoid encounters in this area at that time.
+
+I COULD NOT TAKE MY EYES OFF THEM. One night in 1967, two boys were playing outside their apartment home in Turku, Finland. Hearing a strange sound, they were suddenly approached by two unusual-looking humanoid figures glowing with green light. The two men shuffled towards the boys in such an odd manner, the boys realized they were not normal humans and ran away.
+
+ALIENS AT THE CAR RACE. On the night of July 4, 1969, a young woman was sitting in the bleachers with a crowd of other people at the Automemories Speedway in Eau Claire, Wisconsin. Looking up, she saw an oval-shaped craft with a big window, and group of humanoids looking down and watching the race. In utter disbelief, the witness looked away and when she looked back, the UFO was gone.
+
+THREE ALIENS IN DOWNTOWN GRAFTON. One day in May 1972, a couple was window shopping in downtown Grafton, NSW, Australia when they saw three strange figures on the sidewalk. The figures were 3 feet tall, with rough brown skin, pointed ears and were wearing strange clothes. The couple was shocked and after examining the figures, realized that they could not be human.
+
+FASCINATING AND BEAUTIFUL. One night in October 1989, Susanna and her father sat in her bedroom in Murfreesboro, Tennessee. Her father had his back to the window. Susanna looked up and saw a gray alien staring back at her. She had no idea what it was, but knew it wasn’t human. Frozen in fear, she couldn’t alert her dad. The ET quickly moved off. She told her father, but he said she must have seen an animal.
+
+I THOUGHT IT WAS ONE OF SANTA’S ELVES. On December 24, 1997, Bonnie (age 5) crept out of the bedroom into the living room of her home in Athens, Alabama, to get a drink of water. To her shock, an alien was in her home. She’d never heard of aliens and thought it was an elf bringing her presents. She felt no fear but suddenly blacked out and woke up in bed. 
+THE ALIEN IN THE BARN. One night in October 1999, Kyle (age 9) noticed that the cows on his dairy farm in Roy, Washington were acting up. Going out to investigate, he came face-to-face with a short gray alien staring right at him. After a few moments, he became scared and ran off. It was an encounter that he would never forget.
+
+IT MADE OUR JAWS DROP. The town of Cachi, Argentina has a long rich history of UFO encounters. In 2003, activity ramped up and residents began to capture photos of the craft. On December 16, 2003, eight people drove outside of town when a craft landed in the distance. One of the witnesses approached and saw many glowing humanoid figures. This was one of several humanoid cases and other dramatic encounters.
+ 
+I FULLY BELIEVE IN ALIENS. On the night of October 28, 2010, a woman woke up in her home in Mount Troy, Pennsylvania to see several gray ETs around her bed. Immobilized, she watched in shock as the room filled with light and her boyfriend levitated off the bed. She managed to throw her body on top of his, but he still rose upwards. The room filled with light, and she blacked out.
+
+So many cases, so many witnesses, so many different types of humanoids…the face-to-face humanoid accounts represent the very heart of the UFO phenomenon. They have much to teach us about extraterrestrial contact and life beyond Earth. Our governments are spending an enormous amount of time, energy and money to coverup the truth of this subject. It’s time all humanity accepts the truth: we are being visited by aliens from other worlds. 
+
+PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/
+
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #287 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h2 class="chapter-title"><a href="https://youtu.be/XShD5OKoz4Y" target="_blank" 
   rel="noopener noreferrer">EPISODE #287. TEN<br>
@@ -85,7 +125,8 @@ There are countless other cases, showing us undeniably that humans are not the o
 intelligent life in this universe.</p>
 
 <p><a href="https://prestondennett.weebly.com/">PRESTON DENNETT WEBSITE</a>.</p>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #285 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #286 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h2 class="chapter-title"><a href="https://youtu.be/E9c5mov1PcA" target="_blank" 
 rel="noopener noreferrer">EPISODE #285.<br>
 SEVEN AMAZING<br>
@@ -93,8 +134,8 @@ ONBOARD<br>
 UFO ENCOUNTERS</a></h2>
 <article>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Sep 5, 2025</h5>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #286 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h5>Sep 12, 2025</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #285 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <h3>UFO incidences dated, early-20th century - 2025, worldwide.</h3>
 transcript-286-25-09-12.txt
@@ -103,7 +144,7 @@ I MET AN EXTRATERRESTRIAL: TEN FIRST-HAND FACE-TO-FACE ENCOUNTERS
 Sep 12. 2025
 
 Summary:
-Sep 12, 2025
+Sep 5, 2025
 The extraterrestrial presence on our planet has reached a point of undeniability. The vast 
 number of reports of metallic craft and humanoids speak for themselves. In the past 100 years 
 alone, there have been millions of documented cases coming from across the world. This video 
@@ -9759,4 +9800,5 @@ mines are physically effected.</p>
 
 <h7>Create Date: 8/18/2025 9+pm<br>
 Last Modified: 8/20/2025 9+pm<br>
-Last Modified: 8/21/2025 8+pm</h7>
+Last Modified: 8/21/2025 8+pm<br>
+Last Modified: 9/27/2025 9+pm</h7>
