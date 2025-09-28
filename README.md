@@ -1,7 +1,7 @@
-<h1>ufo-dennett</h1>
+        <h1>ufo-dennett</h1>
 
-<h2>UFO incidences written about by Preston Dennett from 2017 to 2025. UFO info is dated 
-from 1930's worldwide.</h2>
+        <h2>UFO incidences written about by Preston Dennett from 2017 to 2025. UFO info is dated 
+          from 1930's worldwide.</h2>
         <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #286 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
         <h2 class="chapter-title"><a href="https://youtu.be/a6MLY_L6oU0" target="_blank" 
           rel="noopener noreferrer">EPISODE #286.<br>
@@ -1532,10 +1532,10 @@ The ETs have done their part to disclose. The rest is up to us.</p>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #269 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="">EPISODE #269</a>.</h3>
-<h5>LINK:</h5>
-<h5>May 16, 2025</h5>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
+<h5>LINK:</h5>
+
+<h5>May 16, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h3><a href="https://youtu.be/g6as_XUXO-g"target="_blank" rel="noopener noreferrer">EPISODE #268. 
 FIVE INCREDIBLE ONBOARD UFO ENCOUNTERS</a>.</h3>
@@ -1562,16 +1562,16 @@ how they fly their craft, that humans are too warlike for open contact, and that
 ETs have lost some of their people to conflicts with humans. They talked about the 
 power of water and many other topics, including advising Raymond about his career.</p>
 
-<p><span class="bigBoy">WE ARE YOUR FRIENDS</span>. On February 28, 1974, Dirant Mello Ferraz (age 18) was in his home 
-in Rio de Janeiro, Brazil when he was pulled into a craft. Onboard, he met a twin of 
-himself who departed the craft and took Dirant’s place for a full 24-hours, learning 
-all he could about life on Earth. Meanwhile Dirant was kept onboard. He asked the ETs 
-many questions, which they answered, about why they chose him, what their mission on 
-Earth was, would they invade our planet, did they believe in God, and much more. They 
-asked him to tell the people of Earth that they are friendly and that it is their 
-mission to help humanity. After 24 hours, Dirant was returned to his home. Dirant’s 
-case was thoroughly researched, but afterward, he just wanted to forget about the 
-encounter and live a normal life.</p>
+<p><span class="bigBoy">WE ARE YOUR FRIENDS</span>. On February 28, 1974, Dirant Mello 
+Ferraz (age 18) was in his home in Rio de Janeiro, Brazil when he was pulled into a craft. 
+Onboard, he met a twin of himself who departed the craft and took Dirant’s place for a 
+full 24-hours, learning all he could about life on Earth. Meanwhile Dirant was kept 
+onboard. He asked the ETs many questions, which they answered, about why they chose him, 
+what their mission on Earth was, would they invade our planet, did they believe in God, 
+and much more. They asked him to tell the people of Earth that they are friendly and that 
+it is their mission to help humanity. After 24 hours, Dirant was returned to his home. 
+Dirant’s case was thoroughly researched, but afterward, he just wanted to forget about 
+the encounter and live a normal life.</p>
 
 <p><span class="bigBoy">THE PEOPLE OF EARTH AREN’T READY</span>. On December 25, 1976, an anonymous teacher, “Francisco,” 
 was hunting outside of Merida, Spain when he became tired and fell asleep. Waking up, it 
@@ -1593,16 +1593,16 @@ men had severe headaches. They tried to share their experience with friends, who
 ridiculed them. Later, their case was extensively studied, and it was learned that one 
 year earlier, another truly remarkable encounter had occurred in the same area.</p>
 
-<p><span class="bigBoy">WE WON’T DO YOU ANY HARM</span>. On the night of January 12, 2008, the Voronezhsky family were 
-puzzled by the appearance of strange lights above their home in Dubno, Ukraine. Going 
-to bed, they were awakened in the middle of the night by a light illuminating their home. 
-Rushing outside, they saw a giant craft overhead. Suddenly the parents, Vladimir and 
-Olga, were pulled up into the craft. Vladimir was unable to move as his wife was 
-examined. The gray-type ETs were very polite as they told the couple about ET society, 
-and their interest in human emotions. They said that they were able to travel great 
-distances, turn their ships invisible and much more. They gave the couple a tour through 
-space and then returned them home. Vladimir discovered he had greater strength and 
-endurance, and Olga was healed of colitis.</p>
+<p><span class="bigBoy">WE WON’T DO YOU ANY HARM</span>. On the night of January 12, 2008, 
+the Voronezhsky family were puzzled by the appearance of strange lights above their home 
+in Dubno, Ukraine. Going to bed, they were awakened in the middle of the night by a light 
+illuminating their home. Rushing outside, they saw a giant craft overhead. Suddenly the 
+parents, Vladimir and Olga, were pulled up into the craft. Vladimir was unable to move as 
+his wife was examined. The gray-type ETs were very polite as they told the couple about 
+ET society, and their interest in human emotions. They said that they were able to travel 
+great distances, turn their ships invisible and much more. They gave the couple a tour 
+through space and then returned them home. Vladimir discovered he had greater strength 
+and endurance, and Olga was healed of colitis.</p>
 
 <p>Five onboard experiences, each with amazing similarities and unique details, each 
 providing further evidence of extraterrestrial intervention on planet Earth. It is 
