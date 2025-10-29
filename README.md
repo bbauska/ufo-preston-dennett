@@ -13,8 +13,8 @@
 		  ENCOUNTERS WITH<br>
 		  EXTRATERRESTRIAL<br>
 		  HUMANOIDS</a></h2>
-        <article>
           <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<article>
           <h5>Oct 24, 2025 (1:03:23)</h5>
 
           <p class="tallFirstLetter">Most people agree that the chances of humans being the only 
@@ -93,7 +93,6 @@
           target="_blank" rel="noopener noreferrer" title="Preston Dennett Website.">
           PRESTON DENNETT WEBSITE</a>.</p>
 
-        </article>
         <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #291 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
         <h2 class="chapter-title">
           <a href="https://youtu.be/D7SwIvQMM3w" 
@@ -104,8 +103,8 @@
           VERY WEIRD<br>
           UFO<br>
           ENCOUNTERS</a></h2>
-        <article>
           <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<article>
           <h5>Oct 17, 2025 (0:59:44)</h5>
           
           <p class="tallFirstLetter">Onboard UFO encounters represent the cutting edge of UFO 
@@ -184,7 +183,6 @@
           target="_blank" rel="noopener noreferrer" title="Preston Dennett Website.">
           PRESTON DENNETT WEBSITE</a>.</p>
 
-        </article>
         <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #290 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
         <h2 class="chapter-title">
           <a href="https://youtu.be/D7SwIvQMM3w" 
@@ -197,8 +195,8 @@
           TERRIFYING<br>
           HUMANOID<br>
           ENCOUNTERS)</a></h2>
-        <article>
           <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<article>
           <h5>Oct 10, 2025 (1:01:57)</h5>
           
           <p class="tallFirstLetter">A face-to-face encounter with an unknown humanoid creature 
@@ -279,7 +277,6 @@
           <p><a href="https://prestondennett.weebly.com/" aria-label="Preston Dennett Website" 
           target="_blank" rel="noopener noreferrer" title="Preston Dennett Website.">
           PRESTON DENNETT WEBSITE</a>.</p>
-        </article>
         <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #289 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
         <h2 class="chapter-title">
           <a href="https://youtu.be/D7SwIvQMM3w" 
@@ -290,8 +287,8 @@
           UFOS LAND AND<br>
           HUMANOIDS COME OUT:<br>
           TEN TRUE CASES</a></h2>
-        <article>
           <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<article>
           <h5>Oct 3, 2025 (1:20:04)</h5>
           
           <p class="tallFirstLetter">All UFO encounters are interesting, but perhaps the most 
@@ -373,8 +370,6 @@
           <p><a href="https://prestondennett.weebly.com/" aria-label="Preston Dennett Website" 
           target="_blank" rel="noopener noreferrer" title="Preston Dennett Website.">
           PRESTON DENNETT WEBSITE</a>.</p>
-
-        </article>
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #288 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h2 class="chapter-title"><a href="" target="_blank" rel="noopener noreferrer">EPISODE #288. ALIENS<br>
