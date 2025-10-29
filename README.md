@@ -1,14 +1,388 @@
 <h1>ufo-preston-dennett</h1>
-
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #288 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h2>UFO incidences written about by Preston Dennett from 2017 to 2025. UFO info is dated 
   from 1930's worldwide.</h2>
+        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #292 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+        <h2 class="chapter-title">
+          <a href="https://youtu.be/fJ9C8e2qRNc" 
+          aria-label="292. Incredibly Strange: Ten Firsthand Encounters with Extraterrestrial Humanoids" 
+          title="292. Incredibly Strange: Ten Firsthand Encounters with Extraterrestrial Humanoids." 
+          target="_blank" rel="noopener noreferrer">
+          EPISODE #292.<br>
+		  INCREDIBLY STRANGE:<br>
+		  TEN FIRSTHAND<br>
+		  ENCOUNTERS WITH<br>
+		  EXTRATERRESTRIAL<br>
+		  HUMANOIDS</a></h2>
+        <article>
+          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+          <h5>Oct 24, 2025 (1:03:23)</h5>
+
+          <p class="tallFirstLetter">Most people agree that the chances of humans being the only 
+		  intelligent life in the universe are infinitesimally small. It is almost inconceivable 
+		  that humanity is alone. And an examination of reports involving strange humanoids shows 
+		  very clearly that we are not alone. There is now a worldwide database containing tens of 
+		  thousands of extraterrestrial humanoids. Cases go back more than 100 years. They involve 
+		  a wide variety of witnesses and a wide variety of humanoids. This video presents ten 
+		  incredibly strange cases of this kind, each adding another piece of the puzzle to solving 
+		  the UFO mystery.</p>
+
+          <p><b>A STRANGE AND INDESCRIBABLE BEAUTY</b>. One of the earliest humanoid reports in the 
+		  United States occurred one evening in November 1897, in Lodi, California. Colonel Henry 
+		  Glenville Shaw and his associate Camille Spooner were riding a carriage when they came upon 
+		  three 7-foot-tall slender, bald humanoids standing in the road. A long interaction followed, 
+		  ending with the witnesses chasing the humanoids to their craft.</p>
+
+          <p><b>THE LITTLE MEN IN RUBBER SUITS</b>. Late on the evening of October 10, 1954, Willi 
+		  Hoge (age 42) was driving outside Rinkerode, Germany when he saw what he first thought was 
+		  a crashed plane. A closer observation, however, revealed it to be a disc-shaped craft, and 
+		  standing underneath it were four 3-foot-tall humanoids. Willi watched them work on their 
+		  craft for ten minutes until they entered inside it, and the craft quickly departed.</p>
+
+          <p><b>DON’T THROW ROCKS AT THE ALIEN</b>. On <b>July 18, 1963</b>, four boys were playing 
+		  near their homes in Fern Creek, Kentucky when a large cigar-shaped craft appeared overhead. 
+		  It released a smaller disc-shaped craft which landed behind the trees. Moments later, a 
+		  humanoid appeared wearing a jumpsuit and helmet. The boys threw dirt-clods at it, and the 
+		  humanoid reacted by pointing a device at the boys, causing two of them to receive minor 
+		  burns.</p>
+
+          <p><b>TWO LITTLE HUMANOIDS</b>. On the <b>morning of October 23, 1965</b>, 57-year-old Jose 
+		  Camilo Filho took a walk in the woods on the outskirts of Canhotinho, in Pernambuco, Brazil. 
+		  Coming around a corner in the path, he saw two 3-foot-tall, little men wearing strange clothes. 
+		  The humanoids seemed startled and took off in fear. At the same time, other witnesses in town 
+		  saw a UFO pass overhead.</p>
+
+          <p><b>THE MOST FRIGHTENING MOMENT OF MY LIFE</b>. On <b>November 18, 1967</b>, a young boy was 
+		  in his home near Greenville, Ohio when two grays appeared. He was unable to move as they examined 
+		  him then floated off to another room. He chased them and saw them leaving the house, joining three 
+		  other gray aliens and walking into a large craft which had landed in their cornfield. This turned 
+		  out to be the first of many encounters.</p>
+
+          <p><b>IT’S TAKEN ME A LIFETIME</b>. Karen was eleven years old when, <b>one summer day in 1973</b>, 
+		  her older sister called her outside their home in Paramus, New Jersey. Karen was shocked to see a 
+		  massive cigar-shaped craft with portholes hovering overhead. Through the portholes, she could see 
+		  three humanoids looking down at them. The craft darted off, and the two witnesses chased it down 
+		  the highway in their car, where numerous other people also saw the craft.</p>
+
+          <p><b>SOMETHING HAPPENED</b>. <b>JULY 1998</b>. WEST COLUMBIA, SOUTH CAROLINA. In <b>July of 1998</b>, an 
+		  anonymous sheriff’s deputy woke up in the bedroom of his home in West Columbia, South Carolina. 
+		  He was immobilized as he heard a buzzing sound and saw a strange light in his bedroom. Some days 
+		  later, he woke up paralyzed, but now levitating above his bed, surrounded by gray aliens. A third 
+		  incident occurred while on patrol and resulted in two hours of missing time.</p>
+
+          <p><b>THEY DID NOT APPEAR HUMAN</b>. On <b>March 18, 2007</b>, Maria was taking a train from 
+		  Rome to Viterbo, Italy when she noticed two strange women in the train car who did not appear 
+		  human. They wore wigs, had no visible nose and very strange mouths. They were speaking a foreign 
+		  language. When they stood, Maria was amazed to see that they had only four fingers.</p>
+ 
+          <p><b>I KNOW WHAT IS OUT THERE</b>. At <b>3:00 am on June 2008</b>, 16-year-old Tracy was asleep 
+		  on the couch in her aunt’s home in Spring Creek, Nevada. Waking up, she was terrified to see the 
+		  front door open, blue-white light filling the room, and three short alien figures standing in the 
+		  doorway looking at her. Suddenly, one of the grays approached her. It touched her cheek, and Maria’s 
+		  fear left her. Instead, she felt great love coming from the being.</p>
+
+          <p><b>A VERY PERSONAL EVENT</b>. One <b>evening in 2010</b>, a New Mexico security guard’s life 
+		  changed forever. As he patrolled his assigned property in his vehicle, he came upon a gray alien 
+		  standing in front of his car. It was visible for only 10 seconds, but long enough to identify the 
+		  creature as not human. The incident became shrouded in a screen memory for some time, but the guard 
+		  eventually recalled the truth.</p>
+
+          <p>Ten cases, adding to the thousands of other accounts, making it undeniable that our planet is 
+		  being visited by extraterrestrials.</p>
+
+          <p><a href="https://prestondennett.weebly.com/" aria-label="Preston Dennett Website" 
+          target="_blank" rel="noopener noreferrer" title="Preston Dennett Website.">
+          PRESTON DENNETT WEBSITE</a>.</p>
+
+        </article>
+        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #291 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+        <h2 class="chapter-title">
+          <a href="https://youtu.be/D7SwIvQMM3w" 
+          title="291. Eight Very Weird Onboard UFO Encounters" 
+          aria-label="291. Eight Very Weird Onboard UFO Encounters" 
+          target="_blank" rel="noopener noreferrer">
+          EPISODE #291. EIGHT<br>
+          VERY WEIRD<br>
+          UFO<br>
+          ENCOUNTERS</a></h2>
+        <article>
+          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+          <h5>Oct 17, 2025 (0:59:44)</h5>
+          
+          <p class="tallFirstLetter">Onboard UFO encounters represent the cutting edge of UFO 
+          research. These cases represent the very heart of the UFO phenomenon. They contain 
+          more data than any other kind of UFO cases, and they have the potential to answer the 
+          many questions surrounding this subject. This video presents eight exceptionally 
+          unusual cases, each of which has received little or no publicity, and each which adds 
+          to our knowledge of the nature of extraterrestrial contact.</p>
+
+          <p><b>SOMETHING I’LL NEVER FORGET</b>. One hot <b>sunny summer day in 1951</b>, six-year-
+          old Stephanie played in the backyard of her home in rural Louisa, Virginia. Suddenly a 
+          disc-shaped craft appeared overhead, hovered, tilted and landed behind some trees. 
+          Stephanie ran inside and told her grandmother who did not believe her. Later, as 
+          Stephanie sat in her bedroom, she saw two gray aliens in her backyard. The next thing 
+          she knew, it was 10:00 pm; she was missing ten hours of time. She soon began having 
+          memories of being inside the craft, looking down on her town from above.</p>
+
+          <p><b>THIS CAN’T BE HAPPENING</b>. One <b>night in October 1975</b>, Michael (age 19) woke 
+          up to find himself floating above his home in Rockville, Maryland, and into a classic 
+          metallic flying saucer. Inside, he was levitated to a table. He was shocked to see an Air 
+          Force military officer in full uniform standing next to him, and what appeared to be two 
+          doctors. They proceeded to do some kind of operation, he believed, on his brain. At some 
+          point he blacked out. Waking up the next morning, he wondered if it was a dream, but later, 
+          hearing other accounts, he became convinced it really happened.</p>
+
+          <p><b>I CANNOT REVEAL WHAT I SAW</b>. Gustavo was 19 years old and living in Funchal, 
+          Portugal, when his life changed forever. Early one <b>morning in December 1977</b>, he 
+          was awakened by a flying saucer hovering outside his bedroom, filling the room with light 
+          and sending him a telepathic message. A few months later, he was visited by a female, 
+          human-looking ET, and then had a close-up sighting of a disc-shaped craft. Then, in 
+          <b>January 1979</b>, he was taken onboard a craft, given a medical examination, and was 
+          transported to an alien world.</p>
+
+          <p><b>A WARNING OF THINGS TO COME</b>. In <b>2019</b>, Gavin began to have weird memories 
+          of being taken onboard a craft while a young boy in his family’s home in Texas. He soon 
+          recalled being floated upwards into what appears to be a craft where he was greeted by 
+          short human-looking figures who began to show him moving images of future calamities on 
+          planet Earth. He had forgotten the entire encounter until the events he was shown began 
+          to happen. Only then did his memory of the encounter return. He also recalled finding a 
+          strange implant in his body as a teenager.</p>
+
+          <p><b>I HAVE NEVER BEEN SO AFRAID IN ALL MY LIFE</b>. One <b>night in October 1990</b>, 
+          Winifred Crause woke up her home in The Entrance, New South Wales, Australia, to sense 
+          strange beings outside her home. Suddenly she found herself on an operating table inside 
+          a room surrounded by grays. She felt like a bug as the grays were heedless of her protests 
+          and roughly examined her. The next morning her body was sore. But she also reports a 
+          dramatic increase in psychic abilities and soon became a world-famous psychic.</p>
+
+          <p><b>YOU DON’T HAVE ANYTHING TO FEAR FROM US</b>. On the <b>night of March 10, 1996</b>, 
+          Morris (a high school student from Omaha, Nebraska) was out looking at the Hale-Bopp 
+          comet when he saw a strange craft hovering nearby. It sent down a beam of light, and a 
+          gray alien appeared. He then floated up into the craft where he had a telepathic 
+          conversation with the grays and was given a tour of the craft before being returned. 
+          After the encounter, he reports being followed by men in black.</p>
+
+          <p><b>AN INCREDIBLE AMOUNT OF LOVE</b>. On the <b>night of December 15, 2012</b>, Cheryl 
+          was asleep in her home in Auburn, Alabama when she had an unusual dream (she thought) of 
+          being called outside where she was greeted by three human-looking figures and taken into 
+          a craft. They proceeded to hold a long philosophical conversation with her. The next 
+          thing she knew, it was morning. She assumed the experience must have been a dream until 
+          she found a mysterious circle of crushed vegetation in her yard.</p>
+
+          <p><b>I WENT RIGHT THROUGH THE WALL</b>. On the <b>night of June 5, 2015</b>, Dylan woke 
+          up in the bedroom of his home in Mount Pleasant, Michigan, sensing an intruder. He became 
+          paralyzed and was levitated off his bed and through the wall, waking up inside a craft. 
+          He lay on a table and was being examined by a gray alien. He asked to go home, and another 
+          gray appeared. Then a third gray appeared, along with a hybrid child who had a strange 
+          message for him. The next thing Dylan knew, it was morning, and he had a strange mark on 
+          his body.</p>
+
+          <p>Onboard UFO encounters are far more common than previously believed. There are now tens 
+          of thousands of cases on record, but there are indications they might number in the millions. 
+          It’s time that cases like these are taken seriously..</p>
+
+          <p><a href="https://prestondennett.weebly.com/" aria-label="Preston Dennett Website" 
+          target="_blank" rel="noopener noreferrer" title="Preston Dennett Website.">
+          PRESTON DENNETT WEBSITE</a>.</p>
+
+        </article>
+        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #290 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+        <h2 class="chapter-title">
+          <a href="https://youtu.be/D7SwIvQMM3w" 
+          title="290. I Played Dead (And Nine Other Terrifying Humanoid Encounters)."
+          aria-label="290. I Played Dead (And Nine Other Truly Terrifying Humanoid Encounters)" 
+          target="_blank" rel="noopener noreferrer">
+          EPISODE #290. I<br>
+          PLAYED DEAD (AND<br>
+          NINE OTHER TRULY<br>
+          TERRIFYING<br>
+          HUMANOID<br>
+          ENCOUNTERS)</a></h2>
+        <article>
+          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+          <h5>Oct 10, 2025 (1:01:57)</h5>
+          
+          <p class="tallFirstLetter">A face-to-face encounter with an unknown humanoid creature 
+          is often a very terrifying experience, one that changes the way a person thinks about 
+          the universe and their place in it. A direct confrontation with the unknown strikes at 
+          the very core of a person’s belief system, challenging them mentally, emotionally and 
+          spiritually. This video presents ten exceptionally scary UFO encounters from all over 
+          the world. Most of these cases involve multiple witnesses. They include a wide variety 
+          of beings, including gray aliens, human-looking figures, ape-like figures and other 
+          unusual humanoids.</p>
+ 
+          <p><b>SOCK-SNATCHING ETS</b>. One <b>morning in August 1930</b>, a woman was doing her 
+          laundry in a small stream outside of Montebenichi, Italy when an extraterrestrial craft 
+          landed a short distance away. She froze in fear as two strange beings emerged and 
+          approached her. The two creatures walked around her making odd chirping noises. Without 
+          warning, they grabbed the socks she had hung up on a clothesline to dry and ran back into 
+          their craft.</p>
+
+          <p><b>THE LITTLE MEN IN THE CLOVER FIELD</b>. One <b>summer morning in 1950</b>, a 6-year-
+          old girl felt a compulsion to go outside her home in Liiduvere, Estonia. As she stood in a 
+          field, she saw an oval-shaped craft sitting on the ground. Four red-skinned humanoids in 
+          green jumpsuits stood next to the craft. Two of the beings approached her and telepathically 
+          communicated with her. The witness fled in fear.</p>
+
+          <p><b>THEY LOOKED HUMAN</b>. One <b>day in the Summer of 1956</b>, two couples were driving 
+          on a country road outside of Marseille, France when they came upon a large craft hovering by 
+          the road. They exited the car and stared in wonder as three human-looking men wearing jumpsuits 
+          stared down at them, studying them as if they were animals in a zoo. Moments later, the craft 
+          flew away silently at high speed.</p>
+
+          <p><b>I PLAYED DEAD</b>. One <b>evening in June 1957</b>, James (age 6) woke up in the bedroom 
+          of his home in Birmingham, Michigan to hear his younger brother Mickey whimpering in fear. He 
+          knew there was something in the room, but he was too afraid to look. His fear increased when 
+          the mysterious being approached him and did something to his back. It was an experience that 
+          affected him years to come, but he never talked about it until years later, when he discovered 
+          his brother also remembered.</p>
+
+          <p><b>NEVER TELL THIS STORY</b>. One <b>evening in October 1968</b>, a family and their friends 
+          went camping in the remote Malheur Forest of Oregon. Without warning, a massive UFO appeared 
+          overhead. Humanoids could be seen looking down at them through portholes. Panic reigned as 
+          everyone scattered. One witness went to get her camera, and coming out of her trailer, saw that 
+          the craft was gone. To her shock, nobody remembered seeing the UFO.</p>
+
+          <p><b>THE JETPACK HUMANOID</b>. Around dusk <b>one night in 1974</b>, Phil and his grandmother 
+          were shocked when an unusual glowing object appeared and darted around the sky over their farm 
+          near Melbourne, Australia. Suddenly it revealed itself as a classic flying saucer. A door opened 
+          and a silver-suited humanoid appeared and began to fly around. Suddenly it landed in front of 
+          Phil, who found himself paralyzed. The man flew back into his craft.</p>
+
+          <p><b>FOUR APES AND A UFO</b>. On the <b>night of February 21, 1982</b>, two women were camping 
+          in Gorliz, Spain, when an ape-like creature approached their campsite and walked off. Moments 
+          later, they saw three more creatures walk quickly passed them. The witnesses cried out in fear, 
+          alerting the other campers just in time to see a glowing UFO fly overhead.</p>
+
+          <p><b>MY HEART WAS POUNDING</b>. In the middle of the <b>night on November 2, 1997</b>, Bret 
+          was awakened in his bedroom in Anchorage, Alaska by a presence in his room. Unable to move 
+          to first, he broke free of his paralysis to see a strange light fleeing his room. He went 
+          back to sleep, only to wake up later to the sense of another presence. This time he woke up 
+          to see a gray alien looking at him. He felt certain that he had almost been abducted, and 
+          that the gray allowed him to see it.</p>
+
+          <p><b>IT FROZE ME IN FEAR</b>. On the <b>night of November 9, 2010</b>, a couple decided 
+          to take a walk in a grove of trees near their home in Omaha, Nebraska. Seeing shadowy 
+          figures running among the trees, they approached closer and were shocked when a weird 
+          humanoid stepped across their path, turned, waved and smiled, revealing a mouth full of 
+          sharp teeth. They ran in fear.</p>
+
+          <p><b>I MADE EYE CONTACT</b>. It was <b>8pm on August 5, 2017</b>, as an older couple 
+          drove along a remote highway outside of Nageezi, New Mexico. To their shock, floating 
+          alongside the highway was a small craft with two gray aliens sitting side by side. The 
+          couple felt as though they had surprised the grays, who turned and looked at them, making 
+          direct eye contact. Moments later, the craft disappeared.</p>
+
+          <p>Ten humanoid encounters, each adding to our knowledge of the UFO phenomenon. There can 
+          be no doubt that people are seeing strange beings. There are too many cases to explain 
+          away. We are not alone!</p>
+          
+          <p><a href="https://prestondennett.weebly.com/" aria-label="Preston Dennett Website" 
+          target="_blank" rel="noopener noreferrer" title="Preston Dennett Website.">
+          PRESTON DENNETT WEBSITE</a>.</p>
+        </article>
+        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #289 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+        <h2 class="chapter-title">
+          <a href="https://youtu.be/D7SwIvQMM3w" 
+          title="289. When UFOs Land and Humanoids Come Out: Ten True Cases" 
+          aria-label="289. When UFOs Land and Humanoids Come Out: Ten True Cases" 
+          target="_blank" rel="noopener noreferrer">
+          EPISODE #289. WHEN<br>
+          UFOS LAND AND<br>
+          HUMANOIDS COME OUT:<br>
+          TEN TRUE CASES</a></h2>
+        <article>
+          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+          <h5>Oct 3, 2025 (1:20:04)</h5>
+          
+          <p class="tallFirstLetter">All UFO encounters are interesting, but perhaps the most 
+          fascinating is when UFOs land and humanoids come out! Here are ten cases of UFO 
+          landings from across the world including the United States, Brazil, Australia, Italy, 
+          Spain, Norway, Finland, Scotland, France and England. They span over a period of five 
+          decades. They involve a wide variety of humanoid figures. Many are multiple witness 
+          cases. Almost all of them involve some form hard evidence such as landing traces, 
+          animal reactions, electromagnetic disturbances, psychic effects and physiological 
+          reactions. Some include government involvement and even disturbing threats from 
+          apparent men in black.</p>
+
+          <p><b>JUL 23, 1947, PITANGA BRAZIL</b>: Topographer Jose C. Higgins hears a high-
+          pitched hum. Suddenly a metallic craft lands next to him and out come three beautiful 
+          ETs wearing weird spacesuits. Jose founds himself surrounded by them. To his relief, 
+          they appear to be friendly. Feeling fear, he retreats and watches them from a distance 
+          as they begin playing like small children.</p>
+
+          <p><b>AUG 1960, NEWCASTLE, NSW AUSTRALIA</b>: Helen Aldridge is awakened by a buzzing 
+          noise coming from outside her home. Looking out the window, she sees a craft shaped 
+          like a toy top landing in her backyard. Out steps a humanoid dressed in an olive-green 
+          jumpsuit. To her shock, it climbs over her fence and approaches right up to her window.</p>
+
+          <p><b>JUL 31, 1966, PRESQUE ISLE STATE PARK, PA</b>: When their car gets stuck in the 
+          sand, Gerald LaBelle goes for help, leaving behind Betty Klem, Doug Tibbets, Anita 
+          Haifley and her two children. Without warning, a UFO lands in the forest next to them. 
+          Police arrive and leave with Doug to investigate. At this point, a huge hairy humanoid 
+          emerges from the forest and attacks the car. Before long officers from Project Blue 
+          Book arrive to investigate.</p>
+
+          <p><b>AUG 29, 1967, CUSSAC, FRANCE</b>: When 13-year-old Francois Delpeuch and his 
+          little sister Ann-Marie (age 9) go to retrieve the family cows, they come upon a huge 
+          glowing sphere and four small humanoids walking around beneath it. When they approach 
+          for a closer look, the strange beings notice the two children and begin floating one 
+          by one back into the craft.</p>
+
+          <p><b>FEB 5, 1971, KINNULA, FINLAND</b>: Two forestry workers (Peter Aliranta and Esko 
+          Sneck) get the shock of their lives when a UFO lands next to them in the forest. A small 
+          4-foot-tall being emerges and approaches Peter. When the being turns around to enter the 
+          craft, Peter rushes forward and grabs the ET by the foot. It’s a decision that he will 
+          regret for a long time.</p>
+
+          <p><b>NOV 14, 1976, WINCHESTER, ENGLAND</b>: Joyce Bowles is driving home. Her friend 
+          Edwin Pratt is in the passenger seat. They are concerned to see a UFO dropping down from 
+          the sky ahead of them on the road. Suddenly their car steers itself off the road. When 
+          they finally get it to stop, they see a UFO blocking the roadway and humanoids looking 
+          out the windows at them. Then one emerges from the craft, walks right up to them and 
+          stares at them fixedly. Their strange adventure has only begun.</p>
+
+          <p><b>MAY 18, 1977, ELGIN, SCOTLAND</b>: Karen McLennan and Fiona Morrison (both 10-
+          years-old) are playing near their homes when they hear a soft humming noise in the 
+          woods. They go to investigate and come upon a landed craft. Standing next to it is a 
+          tall slender man dressed in a silvery jumpsuit. As the man walks towards them, the 
+          girls flee. When they turn around, they see the craft flying off. But when they get 
+          home, they learn there are more witnesses. And then the threats start coming in.</p>
+
+          <p><b>SEP 18, 1978, SAN GIORGIO DI NOGARO, ITALY</b>: Railway employee Giorgio Filiputti 
+          only wants to enjoy a quiet day of fishing. But it’s not to be. He hears a strange noise 
+          and an odd breeze. Going to investigate, he comes upon a landed craft. A weird 4-foot-
+          tall humanoid looks surprised to see Giorgio approach. He stares at Giorgio and begins 
+          to work on apparently repairing his craft.</p>
+
+          <p><b>NOV 24, 1978, GERENA, SPAIN</b>: When four young men go hunting along the Guadiamar 
+          River, they get a lot more than they bargained for. Seeing strange lights in the forest, 
+          they come upon a landed UFO and a 7-foot-tall humanoid. The strange figure starts walking 
+          towards them. When it gets too close, the men run away in a panic. Later, strange land-
+          traces are found.</p>
+
+          <p><b>JUL 25, 1981. STJORDAL, NORWAY</b>: Hjordis Hokstad wants only to enjoy her morning 
+          coffee and watch the wild deer in the field behind her house. Instead she sees a landed 
+          UFO and a weird humanoid wearing a spacesuit walking around the craft. She grabs her 
+          binoculars and gets a nice close look. Little does she know, her neighbor is watching 
+          the whole thing from his house.</p>
+
+          <p>There is no more room for denial. The evidence for the reality of UFOs and 
+          extraterrestrials is here for those with the courage to examine it. We are not alone! 
+          We are only one of many different humanoids in a universe teeming with intelligent life.</p>
+
+          <p><a href="https://prestondennett.weebly.com/" aria-label="Preston Dennett Website" 
+          target="_blank" rel="noopener noreferrer" title="Preston Dennett Website.">
+          PRESTON DENNETT WEBSITE</a>.</p>
+
+        </article>
+
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #288 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h2 class="chapter-title"><a href="" target="_blank" rel="noopener noreferrer">EPISODE #288. ALIENS<br>
 FROM OTHER<br>
 WORLDS: TEN<br>
 SHOCKING ENCOUNTERS</a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h5>Sep 26, 2025</h5>
 <p class="tallFirstLetter">Strange humanoids have been visiting our planet for a very long 
 time. Although the mainstream scientific community has been slow to accept the veracity of 
@@ -19,7 +393,10 @@ a person for the rest of their lives. With so many people reporting humanoid enc
 it is time to take them seriously and learn all we can about these mysterious visitors to 
 our planet.</p>
 
-I WILL REMEMBER THIS EVENT UNTIL THE DAY I DIE. One morning in 1946, Will (age 7) was in the basement of his aunt’s home in Cheviot, Ohio, when he sensed a presence. Turning around he found himself face-to-face with a short gray alien looking directly at him. A staring contest ensued, until Will became scared and fled the scene. It took him 60 years to find the courage to report his encounter.
+I WILL REMEMBER THIS EVENT UNTIL THE DAY I DIE. One morning in 1946, Will (age 7) was in the basement 
+of his aunt’s home in Cheviot, Ohio, when he sensed a presence. Turning around he found himself face-
+to-face with a short gray alien looking directly at him. A staring contest ensued, until Will became 
+scared and fled the scene. It took him 60 years to find the courage to report his encounter.
 
 I WAS SO FRIGHTENED. On the afternoon of December 9, 1954, Olmiro da Costa was feeding his sheep and cows when a strange craft appeared over his farm in Linha, Bela Vista, Brazil. Three human-looking ETs emerged. At first frightened, one of the figures approached him and smiled, which reassured Olmiro. The ETs took some of his plants and re-entered their craft. This was one of many other humanoid encounters in this area at that time.
 
@@ -42,7 +419,7 @@ So many cases, so many witnesses, so many different types of humanoids…the fac
 
 PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/
 
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #287 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #287 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h2 class="chapter-title"><a href="https://youtu.be/XShD5OKoz4Y" target="_blank" 
   rel="noopener noreferrer">EPISODE #287. TEN<br>
   TRULY STRANGE<br>
@@ -126,16 +503,16 @@ intelligent life in this universe.</p>
 
 <p><a href="https://prestondennett.weebly.com/">PRESTON DENNETT WEBSITE</a>.</p>
 </article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #286 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #286 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h2 class="chapter-title"><a href="https://youtu.be/E9c5mov1PcA" target="_blank" 
 rel="noopener noreferrer">EPISODE #285.<br>
 SEVEN AMAZING<br>
 ONBOARD<br>
 UFO ENCOUNTERS</a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h5>Sep 12, 2025</h5>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #285 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #285 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <h3>UFO incidences dated, early-20th century - 2025, worldwide.</h3>
 transcript-286-25-09-12.txt
