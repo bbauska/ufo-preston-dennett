@@ -1,548 +1,548 @@
 <h1>UFO Preston Dennett</h1>
 <h2>UFO incidences written about by Preston Dennett from 2017 to 2025. UFO info is dated 
 from 1930's worldwide.</h2>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #298 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title">
-          <a href="https://youtu.be/RVExbP9w6Lc" 
-          title="298. Alien Rescue: The Onboard UFO Encounters of Patricia Cotes"
-          aria-label="298. Alien Rescue: The Onboard UFO Encounters of Patricia Cotes"
-          target="_blank" rel="noopener noreferrer">EPISODE #298.<br>
-          ALIEN RESCUE:<br>
-          THE ONBOARD<br>
-          UFO ENCOUNTERS<br>
-          OF<br>
-		  PATRICIA CATES</a></h2>
-        <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Dec 5, 2025 (0:49:15)</h5>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #298 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title">
+  <a href="https://youtu.be/RVExbP9w6Lc" 
+    title="298. Alien Rescue: The Onboard UFO Encounters of Patricia Cotes"
+    aria-label="298. Alien Rescue: The Onboard UFO Encounters of Patricia Cotes"
+    target="_blank" rel="noopener noreferrer">EPISODE #298.<br>
+  ALIEN RESCUE:<br>
+  THE ONBOARD<br>
+  UFO ENCOUNTERS<br>
+  OF<br>
+  PATRICIA CATES</a></h2>
+<article>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Dec 5, 2025 (0:49:15)</h5>
 
-          <p class="tallFirstLetter">Patricia Cates (a waitress) has experienced a lifetime of high 
-		  strangeness involving UFO sightings, missing time, face-to-face experiences with humanoids 
-		  and several fully conscious onboard UFO encounters. Along with these are a wide variety of 
-		  paranormal events including precognition, spirit communication, out of body experiences and 
-		  more. Her case is one of the most unusual on record, and it provides an important contribution 
-		  to our understanding of extraterrestrial contact. This video presents her story.</p>
+  <p class="tallFirstLetter">Patricia Cates (a waitress) has experienced a lifetime of high 
+  strangeness involving UFO sightings, missing time, face-to-face experiences with humanoids 
+  and several fully conscious onboard UFO encounters. Along with these are a wide variety of 
+  paranormal events including precognition, spirit communication, out of body experiences and 
+  more. Her case is one of the most unusual on record, and it provides an important contribution 
+  to our understanding of extraterrestrial contact. This video presents her story.</p>
 
-          <p>Born in <b>1943</b> in Key West, Florida, her first encounter occurred around age four when she 
-		  saw a gray alien staring at her through the window of her second-story bedroom. She had never 
-		  heard of gray aliens and had no idea what she was looking at. But this was just the beginning. 
-		  Her childhood was filled with strange events. She experienced an amazing connection with 
-		  animals from a very young age. She was diagnosed with a life-threatening illness which 
-		  miraculously disappeared, baffling doctors. And she had a missing time encounter which, at 
-		  the time, she had no way to understand.</p>
+  <p>Born in <b>1943</b> in Key West, Florida, her first encounter occurred around age four when she 
+  saw a gray alien staring at her through the window of her second-story bedroom. She had never 
+  heard of gray aliens and had no idea what she was looking at. But this was just the beginning. 
+  Her childhood was filled with strange events. She experienced an amazing connection with 
+  animals from a very young age. She was diagnosed with a life-threatening illness which 
+  miraculously disappeared, baffling doctors. And she had a missing time encounter which, at 
+  the time, she had no way to understand.</p>
 
-          <p>As she grew up, she continued to experience numerous missing time encounters but had 
-		  no idea what was causing them. She certainly didn’t think it had anything to do with 
-		  UFOs. As she says, “If you had told me back then that there were aliens and UFOs. I would 
-		  have thought you were crazy.” She soon began to have regular premonitions and precognitive 
-		  dreams. She heard a voice which accurately predicted the death of President Eisenhower. 
-		  She had a dream that a plane would crash on a street in downtown Miami. Less than a week 
-		  later, it happened exactly as she had seen. She was able to predict other disasters, such 
-		  as hurricanes, earthquakes and more. During her job as a cocktail waitress, she astounded 
-		  customers with her uncanny psychic ability. On a few occasions, she had premonitions which 
-		  saved her life.</p>
+  <p>As she grew up, she continued to experience numerous missing time encounters but had 
+  no idea what was causing them. She certainly didn’t think it had anything to do with 
+  UFOs. As she says, “If you had told me back then that there were aliens and UFOs. I would 
+  have thought you were crazy.” She soon began to have regular premonitions and precognitive 
+  dreams. She heard a voice which accurately predicted the death of President Eisenhower. 
+  She had a dream that a plane would crash on a street in downtown Miami. Less than a week 
+  later, it happened exactly as she had seen. She was able to predict other disasters, such 
+  as hurricanes, earthquakes and more. During her job as a cocktail waitress, she astounded 
+  customers with her uncanny psychic ability. On a few occasions, she had premonitions which 
+  saved her life.</p>
 
-          <p>One day she heard a voice instructing her to attend a psychic class. By pure synchronicity, 
-		  she saw an advertisement about this and attended the class. This changed her life and offered 
-		  her the opportunity to develop her already powerful psychic abilities. She began having direct 
-		  spirit communication, past-life recall and regular out-of-body experiences. One night, after 
-		  returning to her home from this class, she had a bizarre encounter with two grays who were 
-		  waiting in her living room and had a very personal message for her.</p>
+  <p>One day she heard a voice instructing her to attend a psychic class. By pure synchronicity, 
+  she saw an advertisement about this and attended the class. This changed her life and offered 
+  her the opportunity to develop her already powerful psychic abilities. She began having direct 
+  spirit communication, past-life recall and regular out-of-body experiences. One night, after 
+  returning to her home from this class, she had a bizarre encounter with two grays who were 
+  waiting in her living room and had a very personal message for her.</p>
 
-          <p>Later she moved to Colfax, Louisiana, and there she had a series of close-up UFO 
-		  sightings. Then in <b>1985</b>, she had her first fully conscious onboard UFO encounter. She 
-		  woke up to find herself standing next to a human-looking ET in a rural area overlooking 
-		  a large village that looked to her to be a village in South America. A short distance 
-		  away was a massive craft, with grays and human-looking ETs standing beneath it. Patricia 
-		  had the impression that a large-scale disaster was about to occur. To her amazement, she 
-		  and the ET traveled into the village and began to bring people onboard. They spent most 
-		  of the night doing this, collecting hundreds (if not thousands) of people, just in time 
-		  before a major disaster struck. She was taken onboard and allowed to explore the craft. 
-		  The next thing she knew, she was being dropped off back at her home in Louisiana.</p>
+  <p>Later she moved to Colfax, Louisiana, and there she had a series of close-up UFO 
+  sightings. Then in <b>1985</b>, she had her first fully conscious onboard UFO encounter. She 
+  woke up to find herself standing next to a human-looking ET in a rural area overlooking 
+  a large village that looked to her to be a village in South America. A short distance 
+  away was a massive craft, with grays and human-looking ETs standing beneath it. Patricia 
+  had the impression that a large-scale disaster was about to occur. To her amazement, she 
+  and the ET traveled into the village and began to bring people onboard. They spent most 
+  of the night doing this, collecting hundreds (if not thousands) of people, just in time 
+  before a major disaster struck. She was taken onboard and allowed to explore the craft. 
+  The next thing she knew, she was being dropped off back at her home in Louisiana.</p>
 
-          <p>Waking up the next morning, she wondered if it might have all been just a crazy dream. 
-		  But turning on the TV, she saw her “dream” was real, as a large disaster involving massive 
-		  loss of life was garnering international headlines. The shock of this was so intense, she 
-		  sought therapy. The therapy was helpful, but she soon stopped because the therapist was so 
-		  impressed by her psychic abilities that he was more interested in that than helping her.</p>
+  <p>Waking up the next morning, she wondered if it might have all been just a crazy dream. 
+  But turning on the TV, she saw her “dream” was real, as a large disaster involving massive 
+  loss of life was garnering international headlines. The shock of this was so intense, she 
+  sought therapy. The therapy was helpful, but she soon stopped because the therapist was so 
+  impressed by her psychic abilities that he was more interested in that than helping her.</p>
 
-          <p>Just a few years later, she had another vivid premonition of a disaster. It was a 
-		  pattern that would repeat throughout her entire life. Meanwhile, she continued to have 
-		  more onboard encounters. After developing pneumonia, doctors suspected she had lung cancer. 
-		  Pat found herself being taken onboard and healed by gray aliens. During another onboard 
-		  encounter, she aliens showed her a vision of how Earth would look if all the water on the 
-		  planet dried up. Another fascinating encounter involved a display where the ETs demonstrated 
-		  how they are able to travel long distances without the use of any fuel as we know it. Further 
-		  encounters were so bizarre that she hesitated to share them but ultimately decided that the 
-		  truth was more important.</p>
+  <p>Just a few years later, she had another vivid premonition of a disaster. It was a 
+  pattern that would repeat throughout her entire life. Meanwhile, she continued to have 
+  more onboard encounters. After developing pneumonia, doctors suspected she had lung cancer. 
+  Pat found herself being taken onboard and healed by gray aliens. During another onboard 
+  encounter, she aliens showed her a vision of how Earth would look if all the water on the 
+  planet dried up. Another fascinating encounter involved a display where the ETs demonstrated 
+  how they are able to travel long distances without the use of any fuel as we know it. Further 
+  encounters were so bizarre that she hesitated to share them but ultimately decided that the 
+  truth was more important.</p>
 
-          <p>Patricia Cates extraterrestrial encounters and paranormal experiences have volumes to 
-		  teach us about the ET agenda on our planet. While some of her encounters have been scary 
-		  and traumatizing, she ultimately feels that they were benevolent and that the ETs not only 
-		  cared about her, but all of humanity.</p>
+  <p>Patricia Cates extraterrestrial encounters and paranormal experiences have volumes to 
+  teach us about the ET agenda on our planet. While some of her encounters have been scary 
+  and traumatizing, she ultimately feels that they were benevolent and that the ETs not only 
+  cared about her, but all of humanity.</p>
 
-          <p>To read more about Patricia’s encounters (and many others) check out my book, 
-		  <a href="https://www.amazon.com/Onboard-UFO-Encounters-Accounts-Extraterrestrials/dp/1653842180#:~:text=Book%20overview,%E2%80%A2" 
-		  target="blank" rel="noopener noreferrer" aria-label="Onboard UFO Encounters" 
-		  title="Onboard UFO Encounters">“Onboard UFO Encounters”</a>, now available!</p>
+  <p>To read more about Patricia’s encounters (and many others) check out my book, 
+  <a href="https://www.amazon.com/Onboard-UFO-Encounters-Accounts-Extraterrestrials/dp/1653842180#:~:text=Book%20overview,%E2%80%A2" 
+  target="blank" rel="noopener noreferrer" aria-label="Onboard UFO Encounters" 
+  title="Onboard UFO Encounters">“Onboard UFO Encounters”</a>, now available!</p>
 
-          <p><a href="https://prestondennett.weebly.com/" target="blank" rel="noopener noreferrer" 
-          title="Preston Dennett Website">PRESTON DENNETT WEBSITE:</a></p>
+  <p><a href="https://prestondennett.weebly.com/" target="blank" rel="noopener noreferrer" 
+  title="Preston Dennett Website">PRESTON DENNETT WEBSITE:</a></p>
 
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #297 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title">
-          <a href="https://youtu.be/ZxMpYHeIS6E" 
-          title="297. We are Your Friends: Eight Incredible Onboard UFO Encounters"
-          aria-label="297. We are Your Friends: Eight Incredible Onboard UFO Encounters"
-          target="_blank" rel="noopener noreferrer">EPISODE #297. WE<br>
-          ARE YOUR<br>
-          FRIENDS:<br>
-          EIGHT INCREDIBLE<br>
-          ONBOARD UFO<br>
-          ENCOUNTERS</a></h2>
-        <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Nov 28, 2025 (0:56:28)</h5>
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #297 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title">
+  <a href="https://youtu.be/ZxMpYHeIS6E" 
+  title="297. We are Your Friends: Eight Incredible Onboard UFO Encounters"
+  aria-label="297. We are Your Friends: Eight Incredible Onboard UFO Encounters"
+  target="_blank" rel="noopener noreferrer">EPISODE #297. WE<br>
+  ARE YOUR<br>
+  FRIENDS:<br>
+  EIGHT INCREDIBLE<br>
+  ONBOARD UFO<br>
+  ENCOUNTERS</a></h2>
+<article>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Nov 28, 2025 (0:56:28)</h5>
 
-          <p class="tallFirstLetter">The onboard UFO experience is the most extensive and controversial 
-          type of UFO encounter. These cases strike at the very heart of the UFO phenomenon. They contain 
-          the most information about who the ETs are, where they come from and why they are here. This 
-          alone makes them of crucial importance. This episode contains eight cases of this kind. These 
-          cases not only have the potential to teach us volumes about these strange visitors to our planet; 
-          they are also incredibly interesting.</p>
+  <p class="tallFirstLetter">The onboard UFO experience is the most extensive and controversial 
+  type of UFO encounter. These cases strike at the very heart of the UFO phenomenon. They contain 
+  the most information about who the ETs are, where they come from and why they are here. This 
+  alone makes them of crucial importance. This episode contains eight cases of this kind. These 
+  cases not only have the potential to teach us volumes about these strange visitors to our planet; 
+  they are also incredibly interesting.</p>
 
-          <p><b>WE ARE YOUR FRIENDS</b>. On the <b>night of November 12, 1968</b>, two boys were walking 
-          near their homes in Blackwood, New Jersey, when they saw a glowing orb-like object following 
-          them. They panicked and ran and remembered nothing after this. Years later, one of the witnesses 
-          was watching TV, and seeing an image of UFO, he not only recalled his childhood sighting, but 
-          remembered that they were both taken onboard, and physically examined and held a short conversation 
-          with strange humanoids.</p>
+  <p><b>WE ARE YOUR FRIENDS</b>. On the <b>night of November 12, 1968</b>, two boys were walking 
+  near their homes in Blackwood, New Jersey, when they saw a glowing orb-like object following 
+  them. They panicked and ran and remembered nothing after this. Years later, one of the witnesses 
+  was watching TV, and seeing an image of UFO, he not only recalled his childhood sighting, but 
+  remembered that they were both taken onboard, and physically examined and held a short conversation 
+  with strange humanoids.</p>
 
-          <p><b>WE WERE NOT AFRAID</b>. On the <b>night of September 27, 1974</b>, two friends (age 19 and 
-		  11) went hunting outside of Jindabyne, Australia and saw an odd glowing object sitting in a field. 
-		  They arrived home two hours later than they should have. Years later, the younger witness began 
-		  meditating and recalled what happened during the missing time. He remembered that they were both 
-		  taken into the craft and examined by tall, gray-skinned beings. Following the encounter, he 
-		  experienced many paranormal and psychic events.</p>
+  <p><b>WE WERE NOT AFRAID</b>. On the <b>night of September 27, 1974</b>, two friends (age 19 and 
+  11) went hunting outside of Jindabyne, Australia and saw an odd glowing object sitting in a field. 
+  They arrived home two hours later than they should have. Years later, the younger witness began 
+  meditating and recalled what happened during the missing time. He remembered that they were both 
+  taken into the craft and examined by tall, gray-skinned beings. Following the encounter, he 
+  experienced many paranormal and psychic events.</p>
 
-          <p><b>COME ONTO THE SHIP</b>. One <b>night in July 1977</b>, William Cole was asleep in bed when 
-		  he was awakened by a disc-shaped craft outside his home in Eliot, Maine. When it started to speak 
-		  to him telepathically, he woke up his girlfriend. She verified the sighting and also received 
-		  telepathic messages. She went to wake up their roommate, while William ran outside. By this time, 
-		  the craft had landed. A door was open in the craft and a ramp led inside. William ran up the ramp 
-		  into the craft. Suddenly he found himself back outside, minutes or hours later. His girlfriend and 
-		  roommate remembered seeing it, but only William recalled going inside it.</p>
+  <p><b>COME ONTO THE SHIP</b>. One <b>night in July 1977</b>, William Cole was asleep in bed when 
+  he was awakened by a disc-shaped craft outside his home in Eliot, Maine. When it started to speak 
+  to him telepathically, he woke up his girlfriend. She verified the sighting and also received 
+  telepathic messages. She went to wake up their roommate, while William ran outside. By this time, 
+  the craft had landed. A door was open in the craft and a ramp led inside. William ran up the ramp 
+  into the craft. Suddenly he found himself back outside, minutes or hours later. His girlfriend and 
+  roommate remembered seeing it, but only William recalled going inside it.</p>
 
-          <p><b>NOT A SINGLE DROP OF FEAR</b>. On <b>November 4, 1978</b>, two couples were driving outside 
-		  Buenos Aires, Argentina when a massive disc-shaped craft approached their truck and landed in the 
-		  road in front of them. One of the men recalled that he was invited onboard by a tall blond-haired 
-		  alien. Inside he was surprised to see how bright and large the craft was. He met other aliens and 
-		  was given a tour of the craft. The ETs were very friendly, and the encounter was entirely benevolent.</p>
+  <p><b>NOT A SINGLE DROP OF FEAR</b>. On <b>November 4, 1978</b>, two couples were driving outside 
+  Buenos Aires, Argentina when a massive disc-shaped craft approached their truck and landed in the 
+  road in front of them. One of the men recalled that he was invited onboard by a tall blond-haired 
+  alien. Inside he was surprised to see how bright and large the craft was. He met other aliens and 
+  was given a tour of the craft. The ETs were very friendly, and the encounter was entirely benevolent.</p>
 
-          <p><b>WHAT WEIRD EYES YOU HAVE!</b> On the <b>night of December 5, 1980</b>, a 13-year-old boy 
-		  stepped outside his home in Foxborough, Massachusetts. Without warning, a disc-shaped craft 
-		  appeared and struck him with a beam of light. The boy was unable to move as he heard a telepathic 
-		  mumbling in his head. He ran inside moments later but learned that at least ten minutes had passed. 
-		  That night, he dreamed that he had been taken onboard and examined by strange-looking beings. 
-		  Later, hypnosis brought out more details. The ETs, he said, were friendly, and told him they would 
-		  return.</p>
+  <p><b>WHAT WEIRD EYES YOU HAVE!</b> On the <b>night of December 5, 1980</b>, a 13-year-old boy 
+  stepped outside his home in Foxborough, Massachusetts. Without warning, a disc-shaped craft 
+  appeared and struck him with a beam of light. The boy was unable to move as he heard a telepathic 
+  mumbling in his head. He ran inside moments later but learned that at least ten minutes had passed. 
+  That night, he dreamed that he had been taken onboard and examined by strange-looking beings. 
+  Later, hypnosis brought out more details. The ETs, he said, were friendly, and told him they would 
+  return.</p>
 
-          <p><b>YOU WILL NOT REMEMBER THIS</b>. One <b>evening in August 1984</b>, Blaine woke up to 
-		  find himself being pulled from his bedroom in Beckley, West Virginia, and up into a craft. 
-		  Inside he was subjected to a painful examination by strange ETs. When he protested, the ETs 
-		  reminded him that when he was a young child, Blaine had called out for them to come. Blaine 
-		  instantly remembered the incident and realized that he had asked for this encounter. The ETs 
-		  apologized for the pain they had caused and returned him to his home.</p>
+  <p><b>YOU WILL NOT REMEMBER THIS</b>. One <b>evening in August 1984</b>, Blaine woke up to 
+  find himself being pulled from his bedroom in Beckley, West Virginia, and up into a craft. 
+  Inside he was subjected to a painful examination by strange ETs. When he protested, the ETs 
+  reminded him that when he was a young child, Blaine had called out for them to come. Blaine 
+  instantly remembered the incident and realized that he had asked for this encounter. The ETs 
+  apologized for the pain they had caused and returned him to his home.</p>
 
-          <p><b>AN OVERWHELMING FEELING OF LOVE AND COMPASSION</b>. On the <b>night of August 25, 
-		  1998</b>, a women woke up in her home in Columbia, Tennessee to find herself floating out 
-		  her bedroom window and into a craft hovering high in the sky. Inside she was greeted by 
-		  friendly ETs who radiated love and compassion. They conducted a strange examination and the 
-		  next thing she knew, she was back in bed, convinced that she had just had a face-to-face 
-		  encounter with benevolent ETs.</p>
+  <p><b>AN OVERWHELMING FEELING OF LOVE AND COMPASSION</b>. On the <b>night of August 25, 
+  1998</b>, a women woke up in her home in Columbia, Tennessee to find herself floating out 
+  her bedroom window and into a craft hovering high in the sky. Inside she was greeted by 
+  friendly ETs who radiated love and compassion. They conducted a strange examination and the 
+  next thing she knew, she was back in bed, convinced that she had just had a face-to-face 
+  encounter with benevolent ETs.</p>
 
-          <p><b>OUR ALIEN BABY</b>. On <b>November 30, 2014</b>, a woman woke up in her bedroom in 
-		  Kilgore, Texas to find the room filled with light. As it dimmed, she found herself onboard 
-		  a spacecraft with three short gray aliens. They used a strange instrument to pierce her 
-		  abdomen. Moments later, a praying mantis humanoid appeared. Frightened, the witness lost 
-		  consciousness and woke up back in bed. Days later, she learned she was pregnant and had a 
-		  incredibly unusual pregnancy, and an even more special child.</p>
+  <p><b>OUR ALIEN BABY</b>. On <b>November 30, 2014</b>, a woman woke up in her bedroom in 
+  Kilgore, Texas to find the room filled with light. As it dimmed, she found herself onboard 
+  a spacecraft with three short gray aliens. They used a strange instrument to pierce her 
+  abdomen. Moments later, a praying mantis humanoid appeared. Frightened, the witness lost 
+  consciousness and woke up back in bed. Days later, she learned she was pregnant and had a 
+  incredibly unusual pregnancy, and an even more special child.</p>
 
-          <p>These ten cases are just the tip of the iceberg. There are many thousands of documented 
-		  onboard UFO encounters, and there are good indications that they number in the millions. 
-		  It is time to take these accounts seriously and learn all we can about the extraterrestrial 
-		  presence on our planet..</p>
+  <p>These ten cases are just the tip of the iceberg. There are many thousands of documented 
+  onboard UFO encounters, and there are good indications that they number in the millions. 
+  It is time to take these accounts seriously and learn all we can about the extraterrestrial 
+  presence on our planet..</p>
 
-          <p><a href="https://prestondennett.weebly.com/" target="blank" rel="noopener noreferrer" 
-          title="Preston Dennett Website">PRESTON DENNETT WEBSITE:</a></p>
+  <p><a href="https://prestondennett.weebly.com/" target="blank" rel="noopener noreferrer" 
+  title="Preston Dennett Website">PRESTON DENNETT WEBSITE:</a></p>
 
-        </article>
+</article>
 
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #296 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title">
-          <a href="https://youtu.be/goEpygaYpgk" 
-          title="296. It Was Not Human! Seven Shocking Humanoid Encounters"
-          aria-label="296. It Was Not Human! Seven Shocking Humanoid Encounters"
-          target="_blank" rel="noopener noreferrer">EPISODE #296. IT<br>
-          WAS NOT HUMAN!<br>
-          SEVEN<br>
-          SHOCKING<br>
-          HUMANOID<br>
-          ENCOUNTERS</a></h2>
-        <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Nov 21, 2025 (1:09:54)</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #296 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h2 class="chapter-title">
+  <a href="https://youtu.be/goEpygaYpgk" 
+  title="296. It Was Not Human! Seven Shocking Humanoid Encounters"
+  aria-label="296. It Was Not Human! Seven Shocking Humanoid Encounters"
+  target="_blank" rel="noopener noreferrer">EPISODE #296. IT<br>
+  WAS NOT HUMAN!<br>
+  SEVEN<br>
+  SHOCKING<br>
+  HUMANOID<br>
+  ENCOUNTERS</a></h2>
+<article>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Nov 21, 2025 (1:09:54)</h5>
 
-          <p class="tallFirstLetter">All UFO encounters are interesting, whether a sighting, a face-
-          to-face encounter with humanoids or an onboard encounter. One category of cases that deserves 
-          more attention is known as a Close Encounter of the Second Kind. These are cases where UFOs 
-          affect the environment in some way. This video presents ten truly bizarre close encounters 
-          of the second kind, cases which boggle the mind and show that we still have much to learn 
-          about the extraterrestrial presence on our planet.</p>
+  <p class="tallFirstLetter">All UFO encounters are interesting, whether a sighting, a face-
+  to-face encounter with humanoids or an onboard encounter. One category of cases that deserves 
+  more attention is known as a Close Encounter of the Second Kind. These are cases where UFOs 
+  affect the environment in some way. This video presents ten truly bizarre close encounters 
+  of the second kind, cases which boggle the mind and show that we still have much to learn 
+  about the extraterrestrial presence on our planet.</p>
 
-          <p><b>IT WAS WATCHING US</b>. On <b>November 23, 1963</b>, two students sat on the porch of 
-          their home in a construction town along the Mattagami River in Ontario, Canada. Without 
-          warning, a humungous metallic craft appeared about 200 feet away. It hung there silently, 
-          and the two boys had the feeling they were being watched. After a few moments, the craft 
-          moved off. Two days later, another group of witnesses in the area said the UFO swooped down 
-          above them and burned their skin.</p>
+  <p><b>IT WAS WATCHING US</b>. On <b>November 23, 1963</b>, two students sat on the porch of 
+  their home in a construction town along the Mattagami River in Ontario, Canada. Without 
+  warning, a humungous metallic craft appeared about 200 feet away. It hung there silently, 
+  and the two boys had the feeling they were being watched. After a few moments, the craft 
+  moved off. Two days later, another group of witnesses in the area said the UFO swooped down 
+  above them and burned their skin.</p>
 
-          <p><b>VERY TERRIFYING</b>. At <b>1am on July 30, 1968</b>, a man from Claremont, New Hampshire 
-          observed a large glowing object fly at a very low altitude over his home. Two miles away and 
-          a half hour later, a family was woken up by apparently the same craft hovering in their 
-          backyard. The craft remained for two hours, scaring their dogs, and causing their children to 
-          start moaning in their sleep in a way they had never done before.</p>
+  <p><b>VERY TERRIFYING</b>. At <b>1am on July 30, 1968</b>, a man from Claremont, New Hampshire 
+  observed a large glowing object fly at a very low altitude over his home. Two miles away and 
+  a half hour later, a family was woken up by apparently the same craft hovering in their 
+  backyard. The craft remained for two hours, scaring their dogs, and causing their children to 
+  start moaning in their sleep in a way they had never done before.</p>
 
-          <p><b>PULLED OVER BY A UFO</b>. One <b>night in January 1969</b>, a young man was driving 
-          outside of Lake Wales, Florida when, through his rear-view mirror, he saw flashing blue 
-          lights behind his car. Thinking he was being pulled over by the police for speeding, he 
-          was shocked when the interior of his car lit up with blue light. As he parked, he saw that 
-          it wasn’t the police at all, it was a massive craft, which clearly wanted him to observe them.</p>
+  <p><b>PULLED OVER BY A UFO</b>. One <b>night in January 1969</b>, a young man was driving 
+  outside of Lake Wales, Florida when, through his rear-view mirror, he saw flashing blue 
+  lights behind his car. Thinking he was being pulled over by the police for speeding, he 
+  was shocked when the interior of his car lit up with blue light. As he parked, he saw that 
+  it wasn’t the police at all, it was a massive craft, which clearly wanted him to observe them.</p>
 
-          <p><b>IT WAS LOOKING FOR ME</b>. On <b>July 25, 1970</b>, Etienne G. (age 16) was hiking in 
-          the countryside near his home in Les Bordes, France when he saw a shiny metallic object 
-          sitting on a hill among the ferns. He crept closer when suddenly it struck him with an 
-          orange beam of light, rendering him totally unable to move. He lost all track of time. An 
-          eerie silence reigned over the area. Some moments later, the craft took off.</p>
+  <p><b>IT WAS LOOKING FOR ME</b>. On <b>July 25, 1970</b>, Etienne G. (age 16) was hiking in 
+  the countryside near his home in Les Bordes, France when he saw a shiny metallic object 
+  sitting on a hill among the ferns. He crept closer when suddenly it struck him with an 
+  orange beam of light, rendering him totally unable to move. He lost all track of time. An 
+  eerie silence reigned over the area. Some moments later, the craft took off.</p>
 
-          <p><b>WE WERE MISSING FOR A DAY</b>. One <b>afternoon in September 1973</b>, two siblings 
-          stepped off the school bus near their home in Mansfield, Ohio. Looking up, they saw a 
-          gigantic, silver, cigar-shaped craft hovering silently overhead. The normally busy street 
-          was oddly devoid of traffic and people. The craft stayed for 15 minutes, then flew away. 
-          By the time they returned home, they had totally forgotten the sighting but found they 
-          were missing 24 hours of time.</p>
+  <p><b>WE WERE MISSING FOR A DAY</b>. One <b>afternoon in September 1973</b>, two siblings 
+  stepped off the school bus near their home in Mansfield, Ohio. Looking up, they saw a 
+  gigantic, silver, cigar-shaped craft hovering silently overhead. The normally busy street 
+  was oddly devoid of traffic and people. The craft stayed for 15 minutes, then flew away. 
+  By the time they returned home, they had totally forgotten the sighting but found they 
+  were missing 24 hours of time.</p>
 
-          <p><b>SCARED STRAIGHT BY A UFO</b>. On the <b>afternoon of September 22, 1974</b>, Mrs. W. 
-          was parked along a remote country road south of Launceston, Tasmania when her radio acted 
-          up and her car filled with light. Looking up, she saw a craft approaching. The UFO moved 
-          right in front of her, no more than 5 feet above the road. Afterwards, she was so shaken 
-          up that she became ill. But even stranger were the effects on both her car and on part of 
-          her body.</p>
+  <p><b>SCARED STRAIGHT BY A UFO</b>. On the <b>afternoon of September 22, 1974</b>, Mrs. W. 
+  was parked along a remote country road south of Launceston, Tasmania when her radio acted 
+  up and her car filled with light. Looking up, she saw a craft approaching. The UFO moved 
+  right in front of her, no more than 5 feet above the road. Afterwards, she was so shaken 
+  up that she became ill. But even stranger were the effects on both her car and on part of 
+  her body.</p>
 
-          <p><b>WE WERE FROZEN IN TIME</b>. One <b>evening in June 1963</b>, a mother and her two 
-          young children were taking a walk along a residential street in Phoenix, Arizona when, 
-          to their amazement, they came upon a UFO hovering right next to a person’s house. The 
-          normally busy street became utterly silent, and the woman felt immobilized and hypnotized. 
-          Managing to break her trance, she fled the area but found herself reacting emotionally in 
-          ways that surprised her.</p>
+  <p><b>WE WERE FROZEN IN TIME</b>. One <b>evening in June 1963</b>, a mother and her two 
+  young children were taking a walk along a residential street in Phoenix, Arizona when, 
+  to their amazement, they came upon a UFO hovering right next to a person’s house. The 
+  normally busy street became utterly silent, and the woman felt immobilized and hypnotized. 
+  Managing to break her trance, she fled the area but found herself reacting emotionally in 
+  ways that surprised her.</p>
 
-          <p><b>A TIMELY UFO ENCOUNTER</b>. On <b>March 27, 1979</b>, a man was driving along a beach 
-          front road towards Oak Bluffs, Massachusetts when he saw a green cylindrical craft coming 
-          out of the water. His radio acted strangely. He watched the craft move off into the distance. 
-          Rushing to the police, he was missing about 15 minutes time. But even stranger is how the 
-          encounter affected his watch.</p>
+  <p><b>A TIMELY UFO ENCOUNTER</b>. On <b>March 27, 1979</b>, a man was driving along a beach 
+  front road towards Oak Bluffs, Massachusetts when he saw a green cylindrical craft coming 
+  out of the water. His radio acted strangely. He watched the craft move off into the distance. 
+  Rushing to the police, he was missing about 15 minutes time. But even stranger is how the 
+  encounter affected his watch.</p>
 
-          <p><b>COMPLETELY SPELLBOUND</b>. On <b>April 9, 1993</b>, an elderly couple from Braunschweig, 
-          Germany, was woken up by a UFO outside their window. They were unable to move as it hung there 
-          making a buzzing noise. Finally it moved off only to return shortly later. The event not only 
-          affected their animals, but he was physically affected, there was poltergeist-like activity 
-          in their home, and the Birch tree where the UFO hovered was badly burned.</p>
+  <p><b>COMPLETELY SPELLBOUND</b>. On <b>April 9, 1993</b>, an elderly couple from Braunschweig, 
+  Germany, was woken up by a UFO outside their window. They were unable to move as it hung there 
+  making a buzzing noise. Finally it moved off only to return shortly later. The event not only 
+  affected their animals, but he was physically affected, there was poltergeist-like activity 
+  in their home, and the Birch tree where the UFO hovered was badly burned.</p>
 
-          <p><b>MY BODY WAS NO LONGER MINE</b>. On the <b>morning of February 2, 2002</b>, a young woman 
-          opened the kitchen blinds of her boyfriend’s home in Arlington, Washington when she was confronted 
-          by a blazing white light. To her shock it entered her body, nearly causing her to levitate off 
-          the floor, and then shot out of her body. Her boyfriend saw the whole thing happen. Afterwards, 
-          she began to display amazing psychic abilities.</p>
+  <p><b>MY BODY WAS NO LONGER MINE</b>. On the <b>morning of February 2, 2002</b>, a young woman 
+  opened the kitchen blinds of her boyfriend’s home in Arlington, Washington when she was confronted 
+  by a blazing white light. To her shock it entered her body, nearly causing her to levitate off 
+  the floor, and then shot out of her body. Her boyfriend saw the whole thing happen. Afterwards, 
+  she began to display amazing psychic abilities.</p>
 
-          <p>Ten amazing cases, each showing us that UFOs can affect us and the environment in ways 
-          that we still don’t fully understand.</p>
+  <p>Ten amazing cases, each showing us that UFOs can affect us and the environment in ways 
+  that we still don’t fully understand.</p>
 
-          <p><a href="https://prestondennett.weebly.com/" target="blank" rel="noopener noreferrer" 
-          title="Preston Dennett Website">PRESTON DENNETT WEBSITE:</a></p>
+  <p><a href="https://prestondennett.weebly.com/" target="blank" rel="noopener noreferrer" 
+  title="Preston Dennett Website">PRESTON DENNETT WEBSITE:</a></p>
 
         </article>
         <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #295 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
         <h2 class="chapter-title">
-          <a href="https://youtu.be/SIKjolXpm2Q" 
-          title="295. They were not human: Ten incredible humanoid encounters"
-          aria-label="295. They were not human: Ten incredible humanoid encounters"
-          target="_blank" rel="noopener noreferrer">EPISODE #295.<br>
-          THEY WERE<br>
-          NOT HUMAN::<br>
-          TEN INCREDIBLE<br>
-          HUMANOID<br>
-          ENCOUNTERS</a></h2>
+  <a href="https://youtu.be/SIKjolXpm2Q" 
+  title="295. They were not human: Ten incredible humanoid encounters"
+  aria-label="295. They were not human: Ten incredible humanoid encounters"
+  target="_blank" rel="noopener noreferrer">EPISODE #295.<br>
+  THEY WERE<br>
+  NOT HUMAN::<br>
+  TEN INCREDIBLE<br>
+  HUMANOID<br>
+  ENCOUNTERS</a></h2>
         <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Nov 14, 2025 (1:09:54)</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Nov 14, 2025 (1:09:54)</h5>
 
-          <p class="tallFirstLetter">One of the greatest enigmas about extraterrestrials is that 
-          they are, almost without exception, humanoids. People are encountering figures that look 
-          human, but are somehow, not quite human. There are both striking similarities and undeniable 
-          differences. These cases often involve multiple witnesses and a wide variety of evidence. 
-          But it is the huge number of documented cases that makes the impossible to deny. This video 
-          presents ten firsthand face-to-face encounters involving a wide variety of humanoids, each 
-          adding to the worldwide growing database of cases.</p>
+  <p class="tallFirstLetter">One of the greatest enigmas about extraterrestrials is that 
+  they are, almost without exception, humanoids. People are encountering figures that look 
+  human, but are somehow, not quite human. There are both striking similarities and undeniable 
+  differences. These cases often involve multiple witnesses and a wide variety of evidence. 
+  But it is the huge number of documented cases that makes the impossible to deny. This video 
+  presents ten firsthand face-to-face encounters involving a wide variety of humanoids, each 
+  adding to the worldwide growing database of cases.</p>
 
-          <p><b>THE AIR PEOPLE</b>. One <b>day in August 1914</b>, in Alastaro, Finland, Aakseli 
-          Kuoppala (age 10) and his grandmother heard a strange noise. Rushing to the window, they 
-          saw a globe-shaped object drop from the sky and hover by the window. An opening appeared, 
-          revealing two humanoids. Aakseli became afraid, but his grandmother said that they only 
-          wanted to talk, and that she had seen them before.</p>
+  <p><b>THE AIR PEOPLE</b>. One <b>day in August 1914</b>, in Alastaro, Finland, Aakseli 
+  Kuoppala (age 10) and his grandmother heard a strange noise. Rushing to the window, they 
+  saw a globe-shaped object drop from the sky and hover by the window. An opening appeared, 
+  revealing two humanoids. Aakseli became afraid, but his grandmother said that they only 
+  wanted to talk, and that she had seen them before.</p>
 
-          <p><b>NO ONE WILL BELIEVE IT</b>. After <b>midnight on May 30, 1954</b>, six friends stood 
-          outside a home in East Malvern, Australia when a glowing object zoomed down towards them. It 
-          was football-shaped, and inside it they saw four humanoids. The object then swooped upwards, 
-          leaving them all utterly astonished. Little did they know, they were not the only witnesses.</p>
+  <p><b>NO ONE WILL BELIEVE IT</b>. After <b>midnight on May 30, 1954</b>, six friends stood 
+  outside a home in East Malvern, Australia when a glowing object zoomed down towards them. It 
+  was football-shaped, and inside it they saw four humanoids. The object then swooped upwards, 
+  leaving them all utterly astonished. Little did they know, they were not the only witnesses.</p>
 
-          <p><b>WE ARE COMING TO GET YOU</b>. One <b>night in June 1961</b>, a young couple parked near 
-          Greenwood Cemetery in New Orleans, Louisiana. As they talked, they saw short figures darting 
-          among the gravestones. At first the couple thought they were children, but then a UFO rose up 
-          and darted off, leaving behind landing traces. One month later, both witnesses received a 
-          telepathic message saying that the ETs were coming for them.</p>
+  <p><b>WE ARE COMING TO GET YOU</b>. One <b>night in June 1961</b>, a young couple parked near 
+  Greenwood Cemetery in New Orleans, Louisiana. As they talked, they saw short figures darting 
+  among the gravestones. At first the couple thought they were children, but then a UFO rose up 
+  and darted off, leaving behind landing traces. One month later, both witnesses received a 
+  telepathic message saying that the ETs were coming for them.</p>
 
-          <p><b>GOD, DON’T LET ME DIE!</b> Starting one <b>evening in 1966</b>, a young musician from 
-          Washington Township in New Jersey started to get the feeling he was being watched. One night, 
-          he was in bed when three grays appeared and spoke to him telepathically. Following this, he began 
-          having vivid and accurate visions of future disasters. Years later in 1984, following a dramatic 
-          UFO sighting, the musician and his wife were visited by an orb which ignited a shared OBE.</p>
+  <p><b>GOD, DON’T LET ME DIE!</b> Starting one <b>evening in 1966</b>, a young musician from 
+  Washington Township in New Jersey started to get the feeling he was being watched. One night, 
+  he was in bed when three grays appeared and spoke to him telepathically. Following this, he began 
+  having vivid and accurate visions of future disasters. Years later in 1984, following a dramatic 
+  UFO sighting, the musician and his wife were visited by an orb which ignited a shared OBE.</p>
 
-          <p><b>THE THING OF NIGHTMARES</b>. One <b>day in 1971</b>, three boys were berry-picking in rural 
-          Crestline, Ohio. When one of the boys saw a silver sphere in the bushes, they went to investigate. 
-          Suddenly they heard a creature walking through the bushes towards them. All three ran, but one boy 
-          stopped just in time to see a very strange humanoid peering at him from behind a woodpile. Decades 
-          later, the witness still struggles to understand his encounter.</p>
+  <p><b>THE THING OF NIGHTMARES</b>. One <b>day in 1971</b>, three boys were berry-picking in rural 
+  Crestline, Ohio. When one of the boys saw a silver sphere in the bushes, they went to investigate. 
+  Suddenly they heard a creature walking through the bushes towards them. All three ran, but one boy 
+  stopped just in time to see a very strange humanoid peering at him from behind a woodpile. Decades 
+  later, the witness still struggles to understand his encounter.</p>
 
-          <p><b>THEY WERE NOT HUMAN</b>. One <b>evening in May 1976</b>, a gentleman woke up in his 
-          apartment in Ridgefield, Connecticut by a strange buzzing noise. Looking outside he saw 
-          three strangely dressed men. As if on cue, they all turned and stared at him, and he 
-          realized, they were not human. He called his wife who saw them too. Later, under hypnosis, 
-          he recalled a much closer encounter.</p>
-          
-          <p><b>UFO LANDING AND HUMANOID</b>. On <b>October 11, 1977</b>, a family from Nyon, Switzerland 
-          saw a UFO hovering around their farmhouse. Seeing a glint of metal in the distant field, the 
-          niece went to investigate and came upon a landed craft and a very unusual-looking humanoid. She 
-          fled in fear. Later strange landing traces were found and the next day, the UFO came back.</p>
+  <p><b>THEY WERE NOT HUMAN</b>. One <b>evening in May 1976</b>, a gentleman woke up in his 
+  apartment in Ridgefield, Connecticut by a strange buzzing noise. Looking outside he saw 
+  three strangely dressed men. As if on cue, they all turned and stared at him, and he 
+  realized, they were not human. He called his wife who saw them too. Later, under hypnosis, 
+  he recalled a much closer encounter.</p>
+  
+  <p><b>UFO LANDING AND HUMANOID</b>. On <b>October 11, 1977</b>, a family from Nyon, Switzerland 
+  saw a UFO hovering around their farmhouse. Seeing a glint of metal in the distant field, the 
+  niece went to investigate and came upon a landed craft and a very unusual-looking humanoid. She 
+  fled in fear. Later strange landing traces were found and the next day, the UFO came back.</p>
 
-          <p><b>AN ABSOLUTE SILENCE</b>. On the <b>night of March 12, 1981</b>, Juan Gonzales Santos was 
-          driving near El Cobre, Spain when he saw a landed craft alongside the highway. He pulled over 
-          and approached it on foot. Arriving at the scene, he was amazed to see human-like figures 
-          staring at him through the portholes. He had the sense they were waiting for him. The craft 
-          took off, leaving behind a strange odor.</p>
+  <p><b>AN ABSOLUTE SILENCE</b>. On the <b>night of March 12, 1981</b>, Juan Gonzales Santos was 
+  driving near El Cobre, Spain when he saw a landed craft alongside the highway. He pulled over 
+  and approached it on foot. Arriving at the scene, he was amazed to see human-like figures 
+  staring at him through the portholes. He had the sense they were waiting for him. The craft 
+  took off, leaving behind a strange odor.</p>
 
-          <p><b>NOTHING COMPARED TO THIS</b>. On the <b>morning of June 3, 2012</b>, a hunter was 
-          setting up a deer-stand in rural North Carolina when he noticed an odd craft in the sky. 
-          It moved out of view but returned shortly later, landing on the ground. The witness walked 
-          towards it and saw what he first thought were children. To his shock, they were aliens. The 
-          next thing he knew, he was driving home, thoroughly traumatized.</p>
+  <p><b>NOTHING COMPARED TO THIS</b>. On the <b>morning of June 3, 2012</b>, a hunter was 
+  setting up a deer-stand in rural North Carolina when he noticed an odd craft in the sky. 
+  It moved out of view but returned shortly later, landing on the ground. The witness walked 
+  towards it and saw what he first thought were children. To his shock, they were aliens. The 
+  next thing he knew, he was driving home, thoroughly traumatized.</p>
  
-          <p><b>I TOLD NO ONE</b>. On the <b>night of November 17, 2018</b>, a man woke up in his 
-          bedroom in Albany, Oregon to find two tall gray aliens pulling him from his bed. He kicked 
-          at them and they vanished. As his cat hid in fear, the man felt drawn outside and was amazed 
-          to see and photograph a strange orb hovering near his home.</p>
+  <p><b>I TOLD NO ONE</b>. On the <b>night of November 17, 2018</b>, a man woke up in his 
+  bedroom in Albany, Oregon to find two tall gray aliens pulling him from his bed. He kicked 
+  at them and they vanished. As his cat hid in fear, the man felt drawn outside and was amazed 
+  to see and photograph a strange orb hovering near his home.</p>
 
-          <p>These ten cases represent just the tip of the iceberg. And yet, they represent an 
-          accurate cross-section of cases revealing what it’s like to have an encounter with 
-          extraterrestrials, beings that are very much like us, but not quite human. While 
-          skeptics try to explain these cases away, thousands (if not millions) of people 
-          continue to experience firsthand visitations by strange humanoids.</p>
+  <p>These ten cases represent just the tip of the iceberg. And yet, they represent an 
+  accurate cross-section of cases revealing what it’s like to have an encounter with 
+  extraterrestrials, beings that are very much like us, but not quite human. While 
+  skeptics try to explain these cases away, thousands (if not millions) of people 
+  continue to experience firsthand visitations by strange humanoids.</p>
 
-          <p><a href="https://prestondennett.weebly.com/" target="blank" rel="noopener noreferrer" 
-          title="Preston Dennett Website">PRESTON DENNETT WEBSITE:</a></p>
+  <p><a href="https://prestondennett.weebly.com/" target="blank" rel="noopener noreferrer" 
+  title="Preston Dennett Website">PRESTON DENNETT WEBSITE:</a></p>
 
         </article>
         <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #294 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
         <h2 class="chapter-title">
-          <a href="https://youtu.be/Qsmw9NacgQA" 
-          title="294. I was in complete disbelief: twelve firsthand face-to-face encounters with aliens"
-          aria-label="294. I was in complete disbelief: twelve firsthand face-to-face encounters with aliens"
-          target="_blank" rel="noopener noreferrer">EPISODE #294. I WAS IN<br>
-          COMPLETE DISBELIEF:<br>
-          TWELVE FIRSTHAND<br>
-          FACE-TO-FACE<br>
-          ENCOUNTERS<br>
-          WITH ALIENS</a></h2>
+  <a href="https://youtu.be/Qsmw9NacgQA" 
+  title="294. I was in complete disbelief: twelve firsthand face-to-face encounters with aliens"
+  aria-label="294. I was in complete disbelief: twelve firsthand face-to-face encounters with aliens"
+  target="_blank" rel="noopener noreferrer">EPISODE #294. I WAS IN<br>
+  COMPLETE DISBELIEF:<br>
+  TWELVE FIRSTHAND<br>
+  FACE-TO-FACE<br>
+  ENCOUNTERS<br>
+  WITH ALIENS</a></h2>
         <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Nov 7, 2025 (0:56:25)</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Nov 7, 2025 (0:56:25)</h5>
 
-          <p class="tallFirstLetter">Many skeptics have a hard time accepting the reality of humanoid 
-          encounters. Imagine how difficult it must be for those who have this kind of experience 
-          themselves. A humanoid encounter causes an instant shift in a person’s worldview, forcing 
-          them to re-evaluate everything they thought they knew about the universe we live in. The 
-          problem is, countless cases like these come from all over the world. This video presents a 
-          dozen cases of face-to-face encounters with different types of humanoids, providing a glimpse 
-          into what it’s like to have this kind of experience.</p>
+  <p class="tallFirstLetter">Many skeptics have a hard time accepting the reality of humanoid 
+  encounters. Imagine how difficult it must be for those who have this kind of experience 
+  themselves. A humanoid encounter causes an instant shift in a person’s worldview, forcing 
+  them to re-evaluate everything they thought they knew about the universe we live in. The 
+  problem is, countless cases like these come from all over the world. This video presents a 
+  dozen cases of face-to-face encounters with different types of humanoids, providing a glimpse 
+  into what it’s like to have this kind of experience.</p>
 
-          <p><b>AN ALIEN ARTIFACT</b>. On <b>Aug 14, 1965</b>, Joao do Rio was fishing in the Paraiba 
-          River in Cruzeiro, Sao Paolo, Brazil when a disc-shaped craft landed nearby. A small humanoid 
-          emerged and spoke with him, asking Joao to tell the world about the ETs. Joao said nobody 
-          would believe him. The ET gave him a piece of metal. Sadly, this led to big problems for the 
-          witness.</p>
+  <p><b>AN ALIEN ARTIFACT</b>. On <b>Aug 14, 1965</b>, Joao do Rio was fishing in the Paraiba 
+  River in Cruzeiro, Sao Paolo, Brazil when a disc-shaped craft landed nearby. A small humanoid 
+  emerged and spoke with him, asking Joao to tell the world about the ETs. Joao said nobody 
+  would believe him. The ET gave him a piece of metal. Sadly, this led to big problems for the 
+  witness.</p>
 
-          <p><b>THEY WANT ME</b>. Tyler was just a kid when <b>one night in Jun, 1966</b>, he stepped out 
-          of his home in Scotch Plains, New Jersey. A UFO appeared and looking down at him were three 
-          humanoids. He ran inside and told his family. They came outside, but the craft was gone. The 
-          next day, the military showed up at his home and threatened him not to talk.</p>
+  <p><b>THEY WANT ME</b>. Tyler was just a kid when <b>one night in Jun, 1966</b>, he stepped out 
+  of his home in Scotch Plains, New Jersey. A UFO appeared and looking down at him were three 
+  humanoids. He ran inside and told his family. They came outside, but the craft was gone. The 
+  next day, the military showed up at his home and threatened him not to talk.</p>
 
-          <p><b>THREE GLOWING HUMANOIDS</b>. At <b>2:30 am, on Dec 14, 1972</b>, a man was driving 
-          near his home in Lauhala, Finland when he saw three glowing beings cross the road. He fled 
-          the area but returned with his friend. Both men saw the short glowing humanoids move into the 
-          forest. Unknown to them, a man just a few miles away saw a UFO around the same time.</p>
+  <p><b>THREE GLOWING HUMANOIDS</b>. At <b>2:30 am, on Dec 14, 1972</b>, a man was driving 
+  near his home in Lauhala, Finland when he saw three glowing beings cross the road. He fled 
+  the area but returned with his friend. Both men saw the short glowing humanoids move into the 
+  forest. Unknown to them, a man just a few miles away saw a UFO around the same time.</p>
 
-          <p><b>THE ALIEN ON HAMPTON BEACH</b>. After <b>midnight on May 20, 1974</b>, a young man 
-          decided to swim at Hampton Beach off the coast of New Hampshire. A saucer showed up and 
-          landed on the beach. To his Shock, a tall humanoid wearing a bulky suit stepped out and 
-          surveyed the beach. The being quickly returned and the craft departed, leaving behind 
-          strange landing traces.</p>
+  <p><b>THE ALIEN ON HAMPTON BEACH</b>. After <b>midnight on May 20, 1974</b>, a young man 
+  decided to swim at Hampton Beach off the coast of New Hampshire. A saucer showed up and 
+  landed on the beach. To his Shock, a tall humanoid wearing a bulky suit stepped out and 
+  surveyed the beach. The being quickly returned and the craft departed, leaving behind 
+  strange landing traces.</p>
 
-          <p><b>A GRAY TOOK ME AWAY</b>. One <b>afternoon in May 1975</b>, four siblings were 
-          playing outside their home in Oklahoma City, Oklahoma when a silver UFO appeared overhead. 
-          They felt like it was watching them, so they fled inside. That evening, two of the sisters 
-          who shared a room were shocked when a gray alien appeared, taking one of the sisters from 
-          her room.</p>
+  <p><b>A GRAY TOOK ME AWAY</b>. One <b>afternoon in May 1975</b>, four siblings were 
+  playing outside their home in Oklahoma City, Oklahoma when a silver UFO appeared overhead. 
+  They felt like it was watching them, so they fled inside. That evening, two of the sisters 
+  who shared a room were shocked when a gray alien appeared, taking one of the sisters from 
+  her room.</p>
 
-          <p><b>IT HAD NO FACE</b>. On the <b>night of Jan 11, 1976</b>, 14-year-old Bobby F. was 
-          walking to a friend’s house in Hamden, Connecticut when he saw a glowing humanoid floating 
-          above a field. He ran to his friend’s house. He returned with two others, and all three saw 
-          the creature. One of the kids shone a flashlight at it, which made the creature flee. But it 
-          soon returned, until the other kid pulled out his shotgun and fired.</p>
+  <p><b>IT HAD NO FACE</b>. On the <b>night of Jan 11, 1976</b>, 14-year-old Bobby F. was 
+  walking to a friend’s house in Hamden, Connecticut when he saw a glowing humanoid floating 
+  above a field. He ran to his friend’s house. He returned with two others, and all three saw 
+  the creature. One of the kids shone a flashlight at it, which made the creature flee. But it 
+  soon returned, until the other kid pulled out his shotgun and fired.</p>
 
-          <p><b>THE LEAPING ALIEN</b>. At <b>5:30 pm on Oct 15, 1977</b>, a mother and daughter 
-          drove along a country road in Midland, Michigan when, without warning, a humanoid leaped 
-          30 feet out of the woods, landing in the middle of the road in front of them. They slammed 
-          on the brakes and watched as the creature leaped another 30 feet into the woods on the left 
-          side of the road, leaving both witnesses stunned with disbelief.</p>
+  <p><b>THE LEAPING ALIEN</b>. At <b>5:30 pm on Oct 15, 1977</b>, a mother and daughter 
+  drove along a country road in Midland, Michigan when, without warning, a humanoid leaped 
+  30 feet out of the woods, landing in the middle of the road in front of them. They slammed 
+  on the brakes and watched as the creature leaped another 30 feet into the woods on the left 
+  side of the road, leaving both witnesses stunned with disbelief.</p>
 
-          <p><b>A THIRSTY UFO</b>. At <b>6pm on Mar 23, 1978</b>, a man walked along a beach near 
-          Sao Paolo, Brazil when a silver craft zoomed towards him and hovered just above the water 
-          offshore. Two short humanoids emerged, stood on top of the craft and used a hose-like 
-          device to suck up the water. After ten minutes, the UFO dove into the water, leaving 
-          behind a shocked and frightened witness.</p>
+  <p><b>A THIRSTY UFO</b>. At <b>6pm on Mar 23, 1978</b>, a man walked along a beach near 
+  Sao Paolo, Brazil when a silver craft zoomed towards him and hovered just above the water 
+  offshore. Two short humanoids emerged, stood on top of the craft and used a hose-like 
+  device to suck up the water. After ten minutes, the UFO dove into the water, leaving 
+  behind a shocked and frightened witness.</p>
 
-          <p><b>HUMANOID ENCOUNTER ON RIVER STYX RD</b>. On the <b>night of May 1982</b>, two men 
-          drove along a country road in Chatham, Ohio when a glowing object appeared high in the 
-          sky. Then it zoomed closer, showing itself to be a metallic craft with windows. Inside, 
-          they could see three aliens looking at them. The craft darted off and they drove home, 
-          only to realize they were missing 30 minutes of time.</p>
+  <p><b>HUMANOID ENCOUNTER ON RIVER STYX RD</b>. On the <b>night of May 1982</b>, two men 
+  drove along a country road in Chatham, Ohio when a glowing object appeared high in the 
+  sky. Then it zoomed closer, showing itself to be a metallic craft with windows. Inside, 
+  they could see three aliens looking at them. The craft darted off and they drove home, 
+  only to realize they were missing 30 minutes of time.</p>
 
-          <p><b>IT WAS COMFORTING ME</b>. One <b>night in Jul 1994</b>, a young girl woke up in her 
-          home in Verona, Wisconsin to see a strange figure looking in the window. It glowed with 
-          white-gold light, and had a bald head, small dark eyes and four fingers on each hand. She 
-          had the feeling it was there to protect her. The encounter started the witness on a lifelong 
-          search for answers.</p>
+  <p><b>IT WAS COMFORTING ME</b>. One <b>night in Jul 1994</b>, a young girl woke up in her 
+  home in Verona, Wisconsin to see a strange figure looking in the window. It glowed with 
+  white-gold light, and had a bald head, small dark eyes and four fingers on each hand. She 
+  had the feeling it was there to protect her. The encounter started the witness on a lifelong 
+  search for answers.</p>
 
-          <p><b>I FELT INEXPLICABLY HAPPY</b>. One <b>night in Fall 2011</b>, a young woman woke up 
-          in her home in Alabama to see a gray alien looking down at her. Instead of fear, she felt 
-          a strange sense of amusement and surprised herself by laughing uncontrollably. The gray 
-          alien disappeared. That week she made a pivotal decision about the direction of her life.</p>
+  <p><b>I FELT INEXPLICABLY HAPPY</b>. One <b>night in Fall 2011</b>, a young woman woke up 
+  in her home in Alabama to see a gray alien looking down at her. Instead of fear, she felt 
+  a strange sense of amusement and surprised herself by laughing uncontrollably. The gray 
+  alien disappeared. That week she made a pivotal decision about the direction of her life.</p>
 
-          <p><b>I WAS IN COMPLETE DISBELIEF</b>. One <b>night in July 2019</b>, a Reiki Healer was 
-          shocked when a gray alien appeared in her bedroom. She was unable to move and was initially 
-          terrified. But as the alien examined her with curiosity, her fear evaporated. After the 
-          encounter, she was affected physically, mentally and emotionally.</p>
-          
-          <p><a href="https://prestondennett.weebly.com/" aria-label="Preston Dennett Website" 
-          target="_blank" rel="noopener noreferrer" title="Preston Dennett Website">
-          PRESTON DENNETT WEBSITE</a>.</p>
+  <p><b>I WAS IN COMPLETE DISBELIEF</b>. One <b>night in July 2019</b>, a Reiki Healer was 
+  shocked when a gray alien appeared in her bedroom. She was unable to move and was initially 
+  terrified. But as the alien examined her with curiosity, her fear evaporated. After the 
+  encounter, she was affected physically, mentally and emotionally.</p>
+  
+  <p><a href="https://prestondennett.weebly.com/" aria-label="Preston Dennett Website" 
+  target="_blank" rel="noopener noreferrer" title="Preston Dennett Website">
+  PRESTON DENNETT WEBSITE</a>.</p>
         </article>
         <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #293 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
         <h2 class="chapter-title">
-          <a href="https://youtu.be/EZ3H9KNaWak" 
-          title="293. Three True Cases of Demonic Possession" 
-          aria-label="293. Three True Cases of Demonic Possession"
-          target="_blank" rel="noopener noreferrer">EPISODE #293.<br>
-          THREE TRUE<br>
-          CASES OF<br>
-          DEMONIC POSSESSION</a></h2>
+  <a href="https://youtu.be/EZ3H9KNaWak" 
+  title="293. Three True Cases of Demonic Possession" 
+  aria-label="293. Three True Cases of Demonic Possession"
+  target="_blank" rel="noopener noreferrer">EPISODE #293.<br>
+  THREE TRUE<br>
+  CASES OF<br>
+  DEMONIC POSSESSION</a></h2>
         <article>
-          <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-          <h5>Oct 31, 2025 (1:20:00)</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Oct 31, 2025 (1:20:00)</h5>
 
-          <p class="tallFirstLetter">There are many types of hauntings, and they can manifest in a 
-          myriad of ways. Some involve spirit visitation from deceased loved ones. Some involve 
-          earthbound spirits who haunt specific locations or people. There are also residual 
-          hauntings, more of a psychic echo than an actual entity. And then there are poltergeists 
-          and demonic spirits. These remain poorly understood and there are many theories to explain 
-          them. Some say these hauntings are caused by disturbed individuals who externalize 
-          psychokinetic activity. Some explain it as uncontrolled physical mediumship. Others believe 
-          they are evil human spirits. Others believe that they are non-human spirits whose goal is 
-          to cause fear and harm. Whatever the explanation, poltergeist/demonic hauntings follow a 
-          prominent pattern of manifestation.</p>
-          
-          <p>The first phase is <b>“infestation”</b>. Somehow a door is opened, and minor unexplained 
-          events begin to occur. The second phase is <b>“oppression”</b>. Paranormal events increase 
-          and often one individual is targeted. The third phase is <b>“possession”</b>. In this phase, 
-          the spirit launches an all-out attack on the individual and attempts to take them over mentally. 
-          This video presents three extensive cases of poltergeist/demonic hauntings that moved to the 
-          final stage of possession. Each of these cases involves multiple witnesses. Each displays a 
-          wide variety of manifestations and follows the familiar pattern of these kinds of hauntings. 
-          And each of them are harrowing and bone-chillingly scary.</p>
+  <p class="tallFirstLetter">There are many types of hauntings, and they can manifest in a 
+  myriad of ways. Some involve spirit visitation from deceased loved ones. Some involve 
+  earthbound spirits who haunt specific locations or people. There are also residual 
+  hauntings, more of a psychic echo than an actual entity. And then there are poltergeists 
+  and demonic spirits. These remain poorly understood and there are many theories to explain 
+  them. Some say these hauntings are caused by disturbed individuals who externalize 
+  psychokinetic activity. Some explain it as uncontrolled physical mediumship. Others believe 
+  they are evil human spirits. Others believe that they are non-human spirits whose goal is 
+  to cause fear and harm. Whatever the explanation, poltergeist/demonic hauntings follow a 
+  prominent pattern of manifestation.</p>
+  
+  <p>The first phase is <b>“infestation”</b>. Somehow a door is opened, and minor unexplained 
+  events begin to occur. The second phase is <b>“oppression”</b>. Paranormal events increase 
+  and often one individual is targeted. The third phase is <b>“possession”</b>. In this phase, 
+  the spirit launches an all-out attack on the individual and attempts to take them over mentally. 
+  This video presents three extensive cases of poltergeist/demonic hauntings that moved to the 
+  final stage of possession. Each of these cases involves multiple witnesses. Each displays a 
+  wide variety of manifestations and follows the familiar pattern of these kinds of hauntings. 
+  And each of them are harrowing and bone-chillingly scary.</p>
 
-          <p><b>WHEN POLTERGEISTS KNOCK</b>. In <b>1977</b>, thirteen-year-old Mitchell Sorensen 
-          (pseudonym) broke his leg and was diagnosed with a disease that made his bones fragile. He 
-          remained bedridden for the entire summer. It was then that strange knockings began in his 
-          mom’s home in Lake Balboa, California. The knockings slowly became stronger and more 
-          frequent. Unknown to Mitchell, his sister, Nancy was also hearing the strange knocks. 
-          Nancy realized that it was feeding off her fear, so she ignored them, but Mitchell became 
-          intrigued and curious. This is when the knockings became even stronger, and he also began 
-          to hear footsteps and sense a presence. Then, one evening the knockings came fast and 
-          furious and Mitchell heard footsteps in his room. He sensed a presence and suddenly, a 
-          dark force climbed onto his bed and pressed down on his body. Mitchell prayed for his 
-          life and after a while, the spirit lifted off him. Mitchell learned his lesson the hard 
-          way and from that point on, refused to interact with the dark spirit.</p>
+  <p><b>WHEN POLTERGEISTS KNOCK</b>. In <b>1977</b>, thirteen-year-old Mitchell Sorensen 
+  (pseudonym) broke his leg and was diagnosed with a disease that made his bones fragile. He 
+  remained bedridden for the entire summer. It was then that strange knockings began in his 
+  mom’s home in Lake Balboa, California. The knockings slowly became stronger and more 
+  frequent. Unknown to Mitchell, his sister, Nancy was also hearing the strange knocks. 
+  Nancy realized that it was feeding off her fear, so she ignored them, but Mitchell became 
+  intrigued and curious. This is when the knockings became even stronger, and he also began 
+  to hear footsteps and sense a presence. Then, one evening the knockings came fast and 
+  furious and Mitchell heard footsteps in his room. He sensed a presence and suddenly, a 
+  dark force climbed onto his bed and pressed down on his body. Mitchell prayed for his 
+  life and after a while, the spirit lifted off him. Mitchell learned his lesson the hard 
+  way and from that point on, refused to interact with the dark spirit.</p>
 
-          <p><b>THE HAUNTED APARTMENTS</b>. In <b>1989</b>, girlfriends and co-workers Trudy and Kim 
-          (pseudonyms) moved together into an apartment in Van Nuys, California. It was surprisingly 
-          inexpensive for its location and condition. Almost immediately, they began to hear strange 
-          knocking noises on the walls. The haunting quickly escalated to feeling cold spots, smelling 
-          strange odors, seeing apparitions, objects moving by themselves and more. The witnesses learned 
-          that many other people in the building were also experiencing strange activity, and some 
-          had moved out because of it. Almost everyone who visited their apartment would experience 
-          the ghosts. Events reached a climax when the apparitions began to cause arguments and cause 
-          their bed to shake on a nearly nightly basis. Then, one night, the ghosts attacked. Trudy 
-          was praying for the ghosts to go away and suddenly found herself pinned to the bed as the 
-          dark spirit entered inside of her. She gasped for breath and after several moments of 
-          fighting, managed to break free. They decided to move out the next day, but little did they 
-          know, the spirit would follow them.</p>
+  <p><b>THE HAUNTED APARTMENTS</b>. In <b>1989</b>, girlfriends and co-workers Trudy and Kim 
+  (pseudonyms) moved together into an apartment in Van Nuys, California. It was surprisingly 
+  inexpensive for its location and condition. Almost immediately, they began to hear strange 
+  knocking noises on the walls. The haunting quickly escalated to feeling cold spots, smelling 
+  strange odors, seeing apparitions, objects moving by themselves and more. The witnesses learned 
+  that many other people in the building were also experiencing strange activity, and some 
+  had moved out because of it. Almost everyone who visited their apartment would experience 
+  the ghosts. Events reached a climax when the apparitions began to cause arguments and cause 
+  their bed to shake on a nearly nightly basis. Then, one night, the ghosts attacked. Trudy 
+  was praying for the ghosts to go away and suddenly found herself pinned to the bed as the 
+  dark spirit entered inside of her. She gasped for breath and after several moments of 
+  fighting, managed to break free. They decided to move out the next day, but little did they 
+  know, the spirit would follow them.</p>
 
-          <p><b>THE WILDWOOD DEMON</b>. Whitney Wright grew up in an old house on Wildwood Avenue in San 
-          Carlos, California. From an early age, he noticed strange activity. He used to play with 
-          his imaginary friend but found that sometimes his “friend” was able to cause objects to 
-          move or events to happen. It wasn’t until he got older that he realized that his house 
-          was badly haunted. Doors were constantly opening and closing. Objects would move or 
-          disappear. Strange sounds occurred regularly, and a presence seemed to lurk the house at 
-          night. Foul odors appeared at random. When Whitney was a teenager, his friend Paul Delgado 
-          moved into the loft and he also experienced activity. It seemed to enjoy taunting the boys 
-          and causing arguments. Friends would come to visit and would soon become believers. Paul 
-          and Whitney soon learned they could track the ghost by the cold spot it created. They 
-          used a Ouija board to try to communicate, but this only made the haunting worse. Then 
-          Paul decided to experiment with stepping into the cold spots and calling the ghost to 
-          him. The ghost then moved to the final stage of possession, and Paul learned the hard 
-          way, you don’t mess around with dark spirits.</p>
+  <p><b>THE WILDWOOD DEMON</b>. Whitney Wright grew up in an old house on Wildwood Avenue in San 
+  Carlos, California. From an early age, he noticed strange activity. He used to play with 
+  his imaginary friend but found that sometimes his “friend” was able to cause objects to 
+  move or events to happen. It wasn’t until he got older that he realized that his house 
+  was badly haunted. Doors were constantly opening and closing. Objects would move or 
+  disappear. Strange sounds occurred regularly, and a presence seemed to lurk the house at 
+  night. Foul odors appeared at random. When Whitney was a teenager, his friend Paul Delgado 
+  moved into the loft and he also experienced activity. It seemed to enjoy taunting the boys 
+  and causing arguments. Friends would come to visit and would soon become believers. Paul 
+  and Whitney soon learned they could track the ghost by the cold spot it created. They 
+  used a Ouija board to try to communicate, but this only made the haunting worse. Then 
+  Paul decided to experiment with stepping into the cold spots and calling the ghost to 
+  him. The ghost then moved to the final stage of possession, and Paul learned the hard 
+  way, you don’t mess around with dark spirits.</p>
 
-          <p>If you would like to explore more about these three ghostly encounters, and several 
-          others, check out my book: 
-          <a href="https://www.amazon.com/California-Ghosts-Accounts-Hauntings-Golden/dp/0764319728" 
-          target="_blank" rel="noopener noreferrer" aria-label="California Ghosts: True Accounts of 
-          Hauntings in the Golden State" title="California Ghosts: True Accounts of Hauntings in the 
-          Golden State.">"California Ghosts: True Accounts of Hauntings in the Golden State"</a>. Now 
-          available!</p>
+  <p>If you would like to explore more about these three ghostly encounters, and several 
+  others, check out my book: 
+  <a href="https://www.amazon.com/California-Ghosts-Accounts-Hauntings-Golden/dp/0764319728" 
+  target="_blank" rel="noopener noreferrer" aria-label="California Ghosts: True Accounts of 
+  Hauntings in the Golden State" title="California Ghosts: True Accounts of Hauntings in the 
+  Golden State.">"California Ghosts: True Accounts of Hauntings in the Golden State"</a>. Now 
+  available!</p>
 
-          <p><a href="https://prestondennett.weebly.com/" aria-label="Preston Dennett Website" 
-          target="_blank" rel="noopener noreferrer" title="Preston Dennett Website.">
-          PRESTON DENNETT WEBSITE</a>.</p>
+  <p><a href="https://prestondennett.weebly.com/" aria-label="Preston Dennett Website" 
+  target="_blank" rel="noopener noreferrer" title="Preston Dennett Website.">
+  PRESTON DENNETT WEBSITE</a>.</p>
         </article>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #292 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h2 class="chapter-title">
@@ -556,8 +556,8 @@ from 1930's worldwide.</h2>
   ENCOUNTERS WITH<br>
   EXTRATERRESTRIAL<br>
   HUMANOIDS</a></h2>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <article>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
   <h5>Oct 24, 2025 (1:03:23)</h5>
 
 <p class="tallFirstLetter">Most people agree that the chances of humans being the only 
@@ -646,9 +646,9 @@ PRESTON DENNETT WEBSITE</a>.</p>
   VERY WEIRD<br>
   UFO<br>
   ENCOUNTERS</a></h2>
-  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <article>
-<h5>Oct 17, 2025 (0:59:44)</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Oct 17, 2025 (0:59:44)</h5>
   
 <p class="tallFirstLetter">Onboard UFO encounters represent the cutting edge of UFO 
 research. These cases represent the very heart of the UFO phenomenon. They contain 
@@ -738,8 +738,9 @@ PRESTON DENNETT WEBSITE</a>.</p>
   TERRIFYING<br>
   HUMANOID<br>
   ENCOUNTERS)</a></h2>
-  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+
 <article>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
   <h5>Oct 10, 2025 (1:01:57)</h5>
   
 <p class="tallFirstLetter">A face-to-face encounter with an unknown humanoid creature 
@@ -830,9 +831,9 @@ PRESTON DENNETT WEBSITE</a>.</p>
   UFOS LAND AND<br>
   HUMANOIDS COME OUT:<br>
   TEN TRUE CASES</a></h2>
-  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <article>
-<h5>Oct 3, 2025 (1:20:04)</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Oct 3, 2025 (1:20:04)</h5>
   
 <p class="tallFirstLetter">All UFO encounters are interesting, but perhaps the most 
 fascinating is when UFOs land and humanoids come out! Here are ten cases of UFO 
@@ -920,8 +921,8 @@ FROM OTHER<br>
 WORLDS: TEN<br>
 SHOCKING ENCOUNTERS</a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Sep 26, 2025</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Sep 26, 2025</h5>
 <p class="tallFirstLetter">Strange humanoids have been visiting our planet for a very long 
 time. Although the mainstream scientific community has been slow to accept the veracity of 
 such accounts, there are now so many cases that they have become impossible to ignore or 
@@ -964,8 +965,8 @@ PRESTON DENNETT WEBSITE: https://prestondennett.weebly.com/
   HUMANOID<br>
   ENCOUNTERS</a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Sep 19, 2025</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Sep 19, 2025</h5>
 <p class="tallFirstLetter">Firsthand face-to-face encounters with humanoid extraterrestrials 
 are far more common than you might think. Cases like these have been reported for more than 
 100 years. They come from all over the world and involve a huge variety of extraterrestrials. 
@@ -1048,8 +1049,8 @@ SEVEN AMAZING<br>
 ONBOARD<br>
 UFO ENCOUNTERS</a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Sep 12, 2025</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Sep 12, 2025</h5>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #285 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 
 <h3>UFO incidences dated, early-20th century - 2025, worldwide.</h3>
@@ -1059,7 +1060,8 @@ I MET AN EXTRATERRESTRIAL: TEN FIRST-HAND FACE-TO-FACE ENCOUNTERS
 Sep 12. 2025
 
 Summary:
-Sep 5, 2025
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  Sep 5, 2025
 The extraterrestrial presence on our planet has reached a point of undeniability. The vast 
 number of reports of metallic craft and humanoids speak for themselves. In the past 100 years 
 alone, there have been millions of documented cases coming from across the world. This video 
@@ -1138,8 +1140,8 @@ SEVEN AMAZING<br>
 ONBOARD<br>
 UFO ENCOUNTERS</a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Sep 5, 2025</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Sep 5, 2025</h5>
 
 <p class="tallFirstLetter">Onboard UFO encounters are perhaps the most extensive 
 and interesting of all UFO experiences. They are also the most controversial. 
@@ -1227,8 +1229,8 @@ DON'T BE SCARED:<br>
 TEN VERY STRANGE<br>
 HUMANOID ENCOUNTERS</a></h2>
   <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Aug 29, 2025</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Aug 29, 2025</h5>
 
 <p class="tallFirstLetter">Cases of strange humanoids come from all over the world. 
   They have been reported by a wide variety of people for over 100 years. The huge 
@@ -1396,8 +1398,8 @@ ENCOUNTERS:<br>
 SIX<br>
 SHOCKING CASES</a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Aug 15, 2025</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Aug 15, 2025</h5>
 
 <p class="tallFirstLetter">A face-to-face encounter with a humanoid creature is one 
   of the most shocking and mindboggling experiences a person can have. And it happens 
@@ -1475,8 +1477,8 @@ AN EXTRATERRESTRIAL<br>
 CRAFT: FIVE FANTASTIC<br>
 FIRSTHAND CASES</a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Aug 8, 2025</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Aug 8, 2025</h5>
 
 <p class="tallFirstLetter">It is the closest of all UFO experiences: being taken onboard 
 a craft. Cases like these represent the frontline of research. They contain more 
@@ -1553,8 +1555,8 @@ UFOS IN YOUR<br>
 HOMETOWN:<br>
 EPISODE THIRTEEN</a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Aug 1, 2025</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Aug 1, 2025</h5>
 <p class="tallFirstLetter">Welcome to “UFOs in Your Hometown Episode Thirteen,” the 
   continuing investigative series which proves that UFOs are being seen everywhere 
   on this planet. This series was born from a challenge: name any town, city or 
@@ -1632,8 +1634,8 @@ ALIENS: TWELVE<br>
 ASTONISHING CASES<br>
 </a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Jul 25, 2025</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Jul 25, 2025</h5>
 <p class="tallFirstLetter">One controversial aspect of extraterrestrial encounters is the phenomenon known as missing time. People who have a close encounter suddenly find that minutes or even hours have passed that they cannot account for. Research has shown that cases of missing time are likely unremembered onboard experiences. This feature is very common and very confusing and scary for the witness. This video presents twelve amazing cases of missing time in connection with a face-to-face encounter with humanoids.</p>
 
 <p><b>A SENSE OF COMPLETE PEACE</b>. One <b>summer day in 1942</b>, two children from Surrey, England, were taking a walk and became overcome with a feeling of utter peace. Two handsome men in strange clothes approached and proceeded to impart prophecies of future events. The children lost consciousness. They ran home to discover that they had been missing for 24 hours.</p>
@@ -1668,8 +1670,8 @@ ASTONISHING CASES<br>
 rel="noopener noreferrer"><br>EPISODE #278. THE<br><br>
 GRAY ALIEN BOY</a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Jul 18, 2025</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Jul 18, 2025</h5>
 
 <p class="tallFirstLetter">This is the true story of Janet and her lifelong experiences with gray extraterrestrials. Her contacts started around age nine. But it was an incredibly unusual encounter at age 10 that changed her life forever. Along with her UFO/ET experiences, which include instances of missing time, added time, and at least three onboard encounters, Janet, like most contactees, has also experienced many paranormal events such as ghost encounters, angels, a near-death experience, premonitions, mediumship and more high strangeness.</p>
 
@@ -1695,8 +1697,8 @@ AN EXTRATERRESTRIAL<br>
 CRAFT: SEVEN<br>
 FIRSTHAND CASES</a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Jul 11, 2025</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Jul 11, 2025</h5>
 
 <p class="tallFirstLetter">The onboard UFO experience is the cutting edge of UFO 
   research. It is the closest and most extensive of all encounters and holds the 
@@ -1777,8 +1779,8 @@ NOT HUMAN: SEVEN<br>
 SHOCKING HUMANOID<br>
 ENCOUNTERS</a></h2>
 <article>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h5>Jul 4, 2025</h5>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>Jul 4, 2025</h5>
 
 <p class="tallFirstLetter">One of the most interesting aspects of the UFO phenomenon are 
   humanoid encounters, and there are a lot of them. People across the world report a wide 
@@ -1855,8 +1857,8 @@ of great interest.</p>
 MINDBOGGLING HUMANOID ENCOUNTER: SIX SHOCKING CASES</a>.</h3>
 <h4>LINK: https://youtu.be/TnGr33HOAaM</h4>
 <h5>August 15, 2025</h5>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h6>18,435 views  Aug 15, 2025</h6>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>18,435 views  Aug 15, 2025</h5>
 
 <p>A face-to-face encounter with a humanoid creature is one of the most shocking and 
 mindboggling experiences a person can have. And it happens more often than you might 
@@ -1930,9 +1932,8 @@ powerful role in a person’s life-path.</p>
 <h3><a href="https://youtu.be/cdvOvf3C4RE" target="_blank" rel="noopener noreferrer">EPISODE #274. 
 ONBOARD AN EXTRATERRESTRIAL CRAFT: FIVE FANTASTIC FIRSTHAND CASES</a>.</h3>
 <h5>LINK:https://youtu.be/cdvOvf3C4RE</h5>
-<h5>August 8, 2025</h5>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h6>44,502 views  Aug 8, 2025</h6>
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>44,502 views  Aug 8, 2025</h5>
 
 <p>It is the closest of all UFO experiences: being taken onboard a craft. Cases like these 
 represent the frontline of research. They contain more information than any other type 
@@ -2004,8 +2005,9 @@ by the ETs?</p>
 <h3><a href="https://youtu.be/6TBn8rcJ6jQ" target="_blank" rel="noopener noreferrer">EPISODE #273. 
 UFOS IN YOUR HOMETOWN: EPISIDE THIRTEEN</a>.</h3>
 <h5>LINK: https://youtu.be/6TBn8rcJ6jQ</h5>
-<h5>August 1, 2025</h5>
-<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+  <h5>August 1, 2025</h5>
+
 <p>Welcome to “UFOs in Your Hometown Episode Thirteen,” the continuing investigative series 
 which proves that UFOs are being seen everywhere on this planet. This series was born 
 from a challenge: name any town, city or location on Earth, and I will find a UFO 
