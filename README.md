@@ -271,9 +271,9 @@ from 1930's worldwide.</h2>
   <p><a href="https://prestondennett.weebly.com/" target="blank" rel="noopener noreferrer" 
   title="Preston Dennett Website">PRESTON DENNETT WEBSITE:</a></p>
 
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #295 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title">
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #295 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title">
   <a href="https://youtu.be/SIKjolXpm2Q" 
   title="295. They were not human: Ten incredible humanoid encounters"
   aria-label="295. They were not human: Ten incredible humanoid encounters"
@@ -283,7 +283,7 @@ from 1930's worldwide.</h2>
   TEN INCREDIBLE<br>
   HUMANOID<br>
   ENCOUNTERS</a></h2>
-        <article>
+<article>
   <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
   <h5>Nov 14, 2025 (1:09:54)</h5>
 
@@ -361,9 +361,9 @@ from 1930's worldwide.</h2>
   <p><a href="https://prestondennett.weebly.com/" target="blank" rel="noopener noreferrer" 
   title="Preston Dennett Website">PRESTON DENNETT WEBSITE:</a></p>
 
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #294 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title">
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #294 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title">
   <a href="https://youtu.be/Qsmw9NacgQA" 
   title="294. I was in complete disbelief: twelve firsthand face-to-face encounters with aliens"
   aria-label="294. I was in complete disbelief: twelve firsthand face-to-face encounters with aliens"
@@ -373,7 +373,7 @@ from 1930's worldwide.</h2>
   FACE-TO-FACE<br>
   ENCOUNTERS<br>
   WITH ALIENS</a></h2>
-        <article>
+<article>
   <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
   <h5>Nov 7, 2025 (0:56:25)</h5>
 
@@ -456,9 +456,9 @@ from 1930's worldwide.</h2>
   <p><a href="https://prestondennett.weebly.com/" aria-label="Preston Dennett Website" 
   target="_blank" rel="noopener noreferrer" title="Preston Dennett Website">
   PRESTON DENNETT WEBSITE</a>.</p>
-        </article>
-        <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #293 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-        <h2 class="chapter-title">
+</article>
+<!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #293 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
+<h2 class="chapter-title">
   <a href="https://youtu.be/EZ3H9KNaWak" 
   title="293. Three True Cases of Demonic Possession" 
   aria-label="293. Three True Cases of Demonic Possession"
@@ -466,7 +466,7 @@ from 1930's worldwide.</h2>
   THREE TRUE<br>
   CASES OF<br>
   DEMONIC POSSESSION</a></h2>
-        <article>
+<article>
   <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
   <h5>Oct 31, 2025 (1:20:00)</h5>
 
@@ -543,7 +543,7 @@ from 1930's worldwide.</h2>
   <p><a href="https://prestondennett.weebly.com/" aria-label="Preston Dennett Website" 
   target="_blank" rel="noopener noreferrer" title="Preston Dennett Website.">
   PRESTON DENNETT WEBSITE</a>.</p>
-        </article>
+</article>
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ episode #292 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
 <h2 class="chapter-title">
   <a href="https://youtu.be/fJ9C8e2qRNc" 
